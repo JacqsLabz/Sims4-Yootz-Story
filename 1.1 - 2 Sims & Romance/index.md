@@ -1,10 +1,14 @@
 This story begins way back in 2016, with two roommate sims when their friendship became more.
 
-![](05-21-22_8-24-46%C2%A0AM.png)
+![](05-22-22_1-48-25%C2%A0AM.png)
+
+<!-- ![](05-21-22_8-24-46%C2%A0AM.png) -->
 
 Sara Yootz, always the hot-head;
 
-![](05-21-22_8-27-15%C2%A0AM.png)
+<!-- ![](05-21-22_8-27-15%C2%A0AM.png) -->
+
+![](05-22-22_1-46-29%C2%A0AM.png)
 
 and Jane Witt, the creative soul.
 
@@ -296,4 +300,4 @@ Jane stayed with her the whole time.
 
 ![](12-23-16_2-05-46%C2%A0PM.png)
 
-Turns out, Sara had twin girls. Savanna & Emma Yootz. 
+Turns out, Sara had twin girls. Savanna & Emma Yootz.
