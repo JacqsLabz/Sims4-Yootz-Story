@@ -188,6 +188,6 @@ Sara's mind went to the past, and memories she didn't recognize came to the surf
 
 ![](12-12-17_5-44-01%C2%A0PM.png)
 
-Sara needed answers. And as the smoke disapated, Sara knew where she needed to go to get them.
+Sara needed answers. And as the smoke disapated, she knew where she needed to go to get them.
 
 ![](12-12-17_6-49-16%C2%A0PM.png)
