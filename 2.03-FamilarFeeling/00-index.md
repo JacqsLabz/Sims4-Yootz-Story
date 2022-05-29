@@ -156,7 +156,7 @@ But it turned out ot be positive.
 
 ![](12-12-17_5-40-48%C2%A0PM.png)
 
-Jane was getting the girls ready for bed one night, and Sara was about to turn in early, when a stabbing pain of hunger from her stomach almost had hre doubled over.
+Jane was getting the girls ready for bed one night, and Sara was about to turn in early, when a stabbing pain of hunger from her stomach almost had her doubled over.
 
 ![](12-12-17_5-40-38%C2%A0PM.png)
 
@@ -188,6 +188,6 @@ Sara's mind went to the past, and memories she didn't recognize came to the surf
 
 ![](12-12-17_5-44-01%C2%A0PM.png)
 
-As the smoke disapated, Sara knew where she needed to go.
+Sara needed answers. And as the smoke disapated, Sara knew where she needed to go to get them.
 
 ![](12-12-17_6-49-16%C2%A0PM.png)

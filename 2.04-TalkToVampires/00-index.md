@@ -1,12 +1,14 @@
+Sara knocked, and it was Lilith who answered the door. Lilith lead her in with little preamble, then addressed a man sitting at a chess table. "Caleb, this is Sara, the one I told you about."
+
 ![](12-12-17_6-50-14%C2%A0PM.png)
 
-"We need to talk." Sara skipped any real greetings.
+"We need to talk." Sara said to Lilith, skipping any real greeting.
 
-"Yes, I suppose we do. Let's sit." Lilith guestered to the couch and arm chairs.
+"Yes, I suppose we do. Let's sit over there." Lilith guestered to the couch and arm chairs.
 
-Caleb stood "Do want me to join you sister?"
+Caleb stood, "Shall I join you, sister?"
 
-"No, that's ok."
+"No, that is ok." Lilith said.
 
 ![](12-12-17_7-16-22%C2%A0PM.png)
 
@@ -18,17 +20,17 @@ But she managed to swallow it down, and followed Lilith.
 
 ![](12-12-17_6-54-32%C2%A0PM.png)
 
-"You bit me, you turned me. Which is one thing, but it turns out I'm pregnant."
+"You bit me, you turned me. Which is one thing, but what's more important is it turns out I'm pregnant."
 
-"Oh my! Congradutation!" Lilith stood and came near Sara. "I had no idea, but"
+"Oh my! Congradutation!" Lilith put her hands to her face. "I had no idea," stood and came near Sara,
 
 ![](12-12-17_6-53-52%C2%A0PM.png)
 
-"the bite is a gift. And I could sense that you wanted it."
+"but the bite is a gift. And I could sense that you wanted it."
 
 ![](12-12-17_6-53-20%C2%A0PM.png)
 
-Sara's stomach churned with her conflicting mixure emotions, and knew she was about to lose the fight with her guts. "I'm going to be sick, do you even toilet?"
+Sara's stomach churned with her conflicting mixure emotions, and moan when she knew she was about to lose the fight with her guts. "I'm going to be sick, do you even have a toilet?"
 
 "Yes, that way." Lilith pointed.
 
@@ -44,27 +46,27 @@ She felt weak as she stubbled back to the living room, and sat on the couch acro
 
 ![](12-12-17_7-06-28%C2%A0PM.png)
 
-Sara list off things on her fingers, "Fruit, pancakes, even freaking coffee."
+Sara list off things on her fingers, "Fruit salad, pancakes, sandwhiches, even freaking coffee doesn't taste right."
 
 ![](12-12-17_7-04-23%C2%A0PM.png)
 
-"Ah, yes. You see, some of our kind can eat like the human. But for some, their stomach whithers. When it does, anything solid makes them sick."
+"Ah, yes. You see, most of our kind can eat like the humans do. But for others, their stomach withers up until it cannot tolerate solid food anymore. Typically, if it happens, it takes years or centries to happen. But you wouldn't be the first for the transformation itself to wither you insides."
 
-"Whithers?"
+Sara swallowed, and looked down at her midsection. So her gut was trashed? But she was still pregnant, the baby was clearly growing, and see needed to feed both of them... Feed. She was a vampire that needed to *feed*. "So, I need to drink blood then?" At first thought made her skin crawl. But as she pictured doing so, a thirsty hunger awoke within her, and that made it sound like the best idea in the world.
 
-"Yes, usually it happens over time, but it can happen as someone transforms. A change in your diet should give you much relief."
+"That is one option. There is also a tree native to this area that bears the blood-fruit. Anyone who knows what they're doing behind a bar counter can make the fruit into a drink that serves as a nice alternative."
 
 ----
 
 ![](12-12-17_7-06-53%C2%A0PM.png)
 
-Lilith explained multiple things to Sarila, but when it came to using their dark powers, Lilith difered to Caleb.
+Lilith explained multiple things to Sara, but when it came to using their dark powers, Lilith difered to Caleb.
 
 ----
 
 ![](12-12-17_7-07-18%C2%A0PM.png)
 
-Lilith stood, "Come this way, my brother is better at this then myself."
+Lilith stood, "Come this way, my brother is better at this than myself."
 
 ![](12-12-17_7-09-40%C2%A0PM.png)
 
@@ -76,7 +78,7 @@ Lilith stood, "Come this way, my brother is better at this then myself."
 
 ![](12-12-17_7-14-07%C2%A0PM.png)
 
-"Then expell it to do your bidding!" Then when his feet returned to the floor, "First try sensing for the dark power."
+"Then expell it to do your bidding!" After his feet returned to the floor, "First try sensing for the dark power."
 
 ![](12-12-17_7-15-34%C2%A0PM.png)
 
