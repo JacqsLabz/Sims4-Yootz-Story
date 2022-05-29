@@ -2,7 +2,7 @@ Giving birth to not one, but two baby girls left Sara weakened and tired. So at 
 
 Jane got both girls to sleep at the same time as Sara was outside swimming. Jane figured Sara was probably nearly done, so she went out to the front porch to see Sara struggle to pull herself up out of the water. Jane called out, "Hey there you." Jane made her way down towards the pool. "How you holding up?"
 
-Sara sighed as she started walking towards her wife, "I'm ok I guess? Still exhaushed, feels like I can hardly move sometimes. My body just isn't capable of anything impressive for now."
+Sara shrugged as she started walking towards her wife, "I'm ok I guess? Still exhaushed, feels like I can hardly move sometimes. My body just isn't capable of anything impressive." She sighed and frowned as she walked.
 
 "Sara," Jane met her half way, and took Sara's hands in her own, "don't be so hard on yourself. You have achieved a great, enormous physical feat."
 
@@ -42,4 +42,4 @@ and that her muscle tone returned pretty quickly.
 
 ![](12-23-16_7-14-44%C2%A0PM.png)
 
-There was a lot of love in the house.
+There was a lot of love in their house.
