@@ -96,7 +96,7 @@ Sara left the Vatore siblings ready to put what she had learned to use.
 
 ----
 
-So when she found some stranger, she let instinct take over and guide her.
+So when she found some strangers, she let instinct take over and guide her.
 
 ![](12-12-17_7-19-22%C2%A0PM.png)
 
@@ -110,7 +110,7 @@ So when she found some stranger, she let instinct take over and guide her.
 
 ----
 
-She felt so evergized that she jogged home, and then kept running while she waited for Jane to get home.
+She felt so evergized that she jogged home, and then kept running on her tredmill while she waited for Jane to get home.
 
 ![](12-12-17_7-24-21%C2%A0PM.png)
 
@@ -118,7 +118,7 @@ She felt so evergized that she jogged home, and then kept running while she wait
 
 ![](12-12-17_7-40-04%C2%A0PM.png)
 
-So I have some odd news, well, good new, I know why I've felt so sick lately... I got bit by a vampire.
+"So I have some odd news, well, good news, I know why I've felt so sick lately... I got bit by a vampire."
 
 ![](12-12-17_7-40-11%C2%A0PM.png)
 
