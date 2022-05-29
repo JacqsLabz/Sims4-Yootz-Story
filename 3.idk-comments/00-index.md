@@ -25,7 +25,7 @@ Who needs shoes?
 Just like old times.
 
 ![](06-04-18_4-27-12%C2%A0PM.png)
-WTF. You'd better not f*cking come back preggers, I swear, 3 kids is enough.
+WTF
 
 ![](06-05-18_6-47-11%C2%A0AM.png)
 Oops
