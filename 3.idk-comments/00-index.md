@@ -1,9 +1,11 @@
+(this is in no paticular order... just some random sims being sims crap for at least some of it.)
+
 ![](05-16-22_10-29-41%C2%A0PM.png)
 
 Emma tried eating bloodfruit salad for the first time since her pregnancy...
 
 ![](05-17-22_7-29-11%C2%A0AM.png)
-you're wearing snow boots.....
+you're wearing snow boots..... srsly??
 
 ![](06-02-18_12-31-06%C2%A0PM.png)
 Just a family of vampires chilling
@@ -47,7 +49,7 @@ Out of hibernation on her
 The vase that finished the collection :)
 
 ![](06-06-18_2-10-39%C2%A0PM.png)
-"Fly here as bat"
+"Fly here as bat" -> Yes, that is flying and you are all bats. Just keep telling yourselves that. WTF.
 
 ![](06-12-18_10-27-10%C2%A0PM.png)
 Time for the girls to learn to parent!
@@ -68,7 +70,7 @@ This is how classy we are -.-
 I did nothing to cause this......
 
 ![](06-19-18_10-12-30%C2%A0PM.png)
-So we have morning sickness, lost, vampire and confused, and crying. Yap. This family is great on vaca.
+So we have: Anne's morning sickness, Sara being lost, Jane still not accpeting being a vampire, Cassandra hella confused, and Emma crying. Yap. This family is great on vaca.
 
 ![](06-19-18_10-14-06%C2%A0PM.png)
 Emma has stomach issues, and worries that she's not going to be able to eat food here soon, like her sister and Sara.
@@ -108,7 +110,7 @@ Anne:I know you'll be fine, either way.
 Emma: Well that makes one of us.
 
 ![](06-19-18_10-40-14%C2%A0PM.png)
-Sarila joined them, as reassured Emma too. Anne's morning sickness acted up a little, but it wasn't a real issue.
+Sara joined them, as reassured Emma too. Anne's morning sickness acted up a little, but it wasn't a real issue.
 
 ![](06-19-18_11-38-02%C2%A0PM.png)
 Emma's stomach continued to act weird while she put on a bit of weight.
@@ -122,7 +124,7 @@ Out on a hike, she noticed the Grim Reaper fishing.
 ![](06-19-18_11-49-42%C2%A0PM.png)
 Old friends you could say....
 
-<!-- ![](06-19-18_11-51-57%C2%A0PM.png) -->
+<!-- delete: ![](06-19-18_11-51-57%C2%A0PM.png) -->
 ![](06-19-18_11-52-12%C2%A0PM.png)
 "I'm not coming up on your list again any time soon, right?"
 
