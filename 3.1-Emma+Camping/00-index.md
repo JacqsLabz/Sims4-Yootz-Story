@@ -40,11 +40,11 @@ Anne was up to her usual romantic pursuits. This time with Kaylie Vatore, daught
 
 ![](06-19-18_8-53-41%C2%A0PM.png)
 
-Meanwhile, Emma still had no idea what was going on either her stomach.
+Meanwhile, Emma still wasn't sure about her stomach.
 
 ![](06-19-18_8-59-43%C2%A0PM.png)
 
-But she still danced with her sister.
+But that didn't stop Anne & Emma from having random dance-off's.
 
 ![](06-19-18_10-03-19%C2%A0PM.png)
 
@@ -52,15 +52,19 @@ But she still danced with her sister.
 
 ![](06-19-18_10-07-37%C2%A0PM.png)
 
-"I got an idea," Emma said, "How about we all go out ot the cabin?"
+"I got an idea," Emma said, "How about we all go out to the cabin? It's so relaxing out there."
 
-![](06-19-18_10-12-30%C2%A0PM.png)
+"That's sounds great." Anne said.
 
-Everyone agreed, so they went.
+"Yeah, just like when you were two were young." Sara agreed, thinking about Cassandra.
+
+----
+
+<!-- ![](06-19-18_10-12-30%C2%A0PM.png) -->
 
 ![](06-19-18_10-15-11%C2%A0PM.png)
 
-Emma still had no idea what was wrong with her stomach, but didn't want to draw attention ot it.
+Emma was still in pain, but she didn't draw attention to it.
 
 ![](06-19-18_10-18-19%C2%A0PM.png)
 
@@ -148,4 +152,4 @@ She used the dark power of vampire to meditate for a little while to help calm h
 
 ![](06-20-18_12-14-34%C2%A0AM.png)
 
-They were all hanging out at the bar, and sitting there, Emma couldn't help but think about how silly they all were, and how that would never change. Seeing them all just being themselves brougth her some peace of mind. 
+They were all hanging out at the bar, and sitting there, Emma couldn't help but think about how silly they all were, and how that would never change. Seeing them all just being themselves brougth her some peace of mind.

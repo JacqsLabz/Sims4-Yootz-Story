@@ -24,13 +24,13 @@ Thankfully, everyone still had a lot of death flowers left over from the ambrosi
 ![](06-05-18_7-56-24%C2%A0AM.png)
 
 ![](06-05-18_7-59-08%C2%A0AM.png)![](06-05-18_7-59-41%C2%A0AM.png)
-Anne added bear blood to her limited diet.
+Anne added bear blood to her limited, liquid diet.
 
 ----
 
 ![](06-04-18_4-28-00%C2%A0PM.png)
 
-Sara went on a trip out of this world.
+Sara went on a short trip out of this world.
 
 ----
 
@@ -76,7 +76,7 @@ Sara made drinks for everyone.
 Sara started to experiment with what they could do.
 
 ![](06-06-18_10-32-32%C2%A0AM.png)
-"That thing makes me really unease." Jane said.
+"That thing makes me really uneasy." Jane said.
 
 ----
 
@@ -84,33 +84,47 @@ Sara started to experiment with what they could do.
 Sara pushed at the box's heavy lid
 
 ![](06-06-18_11-12-48%C2%A0AM.png)
-What? What is it?
+"What? What is it?" Sara looked from Emma to Jane, and glanced behind herself.
+
+"Your-your... your..." Emma guestered at Sara.
+
+"I'm what?" Sara held out her arms and looked down at herself... to find her body was nothing but bones.
 
 ![](06-06-18_11-15-04%C2%A0AM.png)
-She ran ourside.
+She screamed, and ran ourside to the moonlight.
+
 ![](06-06-18_11-16-59%C2%A0AM.png)
-But the moonlight didn't do anything.
+But the moonlit night air didn't do anything.
+
 ![](06-06-18_11-18-05%C2%A0AM.png)
-She tried to call on the dark powers of vampires, but it still did nothing.
+Sara tried to call on the dark powers of vampires, but still her hands were those of an animated skelton instead of her own.
+
 ![](06-06-18_11-15-10%C2%A0AM.png)
-I have an idea: I'm going back to the rental house.
+With her usual inhuman vampiric speed, Sara rushed back to her family. "I have an idea: I'm going back to the rental house."
+
 ![](06-06-18_11-19-37%C2%A0AM.png)
 She got in the coffin in the basement, and went into vampiric hyberation, hoping it would heal her body.
 
 ![](06-06-18_11-43-38%C2%A0AM.png)
-It took time, but it did work.
+It took time, but it did work. Sara pulled Jane close, and help her while she sobbed. Jane was too relieved to even form sentances at first.
+
+Once Jane calmed down, they went to the nearest bar to celebrate Sara being ok.
 
 ![](06-06-18_1-49-42%C2%A0PM.png)
+
 ![](06-06-18_1-51-08%C2%A0PM.png)
+
 ![](06-06-18_1-52-39%C2%A0PM.png)
-So celebration was in order. Everyone tried to learn the local dances.
+They tried to learn the local dances.
+
+----
 
 ![](06-06-18_1-56-35%C2%A0PM.png)
-They explored jungle.
+They explored jungle more.
 
 ![](06-06-18_2-06-34%C2%A0PM.png)
 ![](06-06-18_2-08-42%C2%A0PM.png)
-They found some treasure.
+They found some more treasure.
 
 ![](06-06-18_2-13-55%C2%A0PM.png)
-Everyone was happy to be safe back home.
+Went they got back, everyone was happy to be safe back home.

@@ -2,13 +2,13 @@
 
 Anne grew up into a teenager.
 
-![](05-30-18_9-03-26%C2%A0AM.png)
-
 ![](05-30-18_8-25-25%C2%A0AM.png)
+
+![](05-30-18_9-03-26%C2%A0AM.png)
 
 ![](05-30-18_8-51-24%C2%A0AM.png)
 
-And after some lessons from her parents, tried drinking blood for the first time.
+And after some lessons from her parents, tried drinking blood for her first time.
 
 ![](05-30-18_8-55-20%C2%A0AM.png)
 
@@ -26,13 +26,13 @@ Congraduations
 
 ----
 
-They had a birthday party for Emma becoming an young adult.
+They had a birthday party for Emma.
 
 ![](05-30-18_7-38-02%C2%A0PM.png)
 
 ![](05-30-18_7-40-00%C2%A0PM.png)
 
-"Oh, wow," Sara's eyes got big
+"Oh, wow," Sara's eyes got big,
 
 ![](05-30-18_7-40-13%C2%A0PM.png)
 
@@ -44,4 +44,4 @@ They had a birthday party for Emma becoming an young adult.
 Fusball games.
 
 ![](05-30-18_8-11-11%C2%A0PM.png)![](05-30-18_8-14-41%C2%A0PM.png)
-candles
+Emma blew out the candles, as became an young adult!
