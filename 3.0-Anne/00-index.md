@@ -1,18 +1,22 @@
+Even after the festivals, Anne continued to explore her romantic side.
+
 ![](06-12-18_4-16-24%C2%A0PM.png)
 
-Anne started working her charms,
+She worked her charms,
 
 ![](06-12-18_4-23-37%C2%A0PM.png)
 
-And they were quite effective.
+and they were quite effective for her.
 
 ![](06-12-18_4-25-07%C2%A0PM.png)
 
-Very effective.
+Very effective indeed.
+
+----
 
 ![](06-12-18_4-29-36%C2%A0PM.png)
 
-And came into her own as a vampire,
+At the same time, she came into her own as a vampire.
 
 ![](06-12-18_4-41-09%C2%A0PM.png)
 
@@ -26,15 +30,17 @@ Proving her place amoung other vampire and the members of her mother's coven.
 
 ![](06-12-18_4-53-37%C2%A0PM.png)
 
-"Hey mom, can vampire even get queezy? I've been feeling weird lately." Anne said.
+"Hey mom," Anne held her stomach, "I've been avoiding solid food like you said, but here recently-" she burped then swallowed, "Oh, excuse me... here recently... what else can make vampires feel queezy? Because that some sort of neasous feeling has started to come back."
+
+"Well, as far as I know, just pregnancy. So congratulations sweetie." Sara smiled as she hugged her daughter.
 
 ![](06-12-18_4-53-13%C2%A0PM.png)
 
-"Really? It likely mean you're pregnant sweetie. Just wait a little while and get one of those tests." Sara hugged her.
+"And you can always wait a bit then take a test if you want to."
 
 ![](06-12-18_5-15-37%C2%A0PM.png)
 
-So she did, having fun along the way.
+Anne decided she would, having fun as she waited for some time to pass.
 
 ![](06-12-18_5-18-49%C2%A0PM.png)
 
@@ -42,13 +48,13 @@ And positive was her result.
 
 ![](06-12-18_5-28-43%C2%A0PM.png)![](06-12-18_5-22-28%C2%A0PM.png)![](06-12-18_5-25-07%C2%A0PM.png)
 
-But she still had some fun.
+But that didn't stop her fun.
 
 ----
 
 ![](06-12-18_10-27-10%C2%A0PM.png)
 
-When she told Emma, she suggested they learn more about how to care for the little one.
+When she told Emma, her sister suggested they learn more about how to care for the little one.
 
 ![](06-13-18_6-42-16%C2%A0PM.png)
 
@@ -64,7 +70,7 @@ She took some time to relax
 
 ![](06-14-18_8-02-39%C2%A0AM.png)
 
-"Hi there little niece of nehew!" Emma said.
+"Hi there little niece or nehew!" Emma said.
 
 ![](06-14-18_10-16-34%C2%A0AM.png)![](06-14-18_10-25-16%C2%A0AM.png)![](06-14-18_10-26-21%C2%A0AM.png)
 
