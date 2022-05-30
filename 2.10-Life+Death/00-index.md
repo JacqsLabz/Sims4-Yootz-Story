@@ -54,7 +54,7 @@ Jane took too a deep breath, "Ok."
 
 ![](12-21-17_11-44-16%C2%A0PM.png)
 
-and made the special dish
+And made the special dish
 
 ![](12-21-17_11-45-12%C2%A0PM.png)
 
@@ -62,7 +62,7 @@ for Emma.
 
 ![](12-21-17_11-46-49%C2%A0PM.png)
 
-The anticpation was nearly a tagniable thing in the room.
+The anticpation was nearly a tagniable, solid thing in the room.
 
 ![](12-21-17_11-47-20%C2%A0PM.png)
 
@@ -70,7 +70,7 @@ The magic didn't take long
 
 ![](12-21-17_11-47-28%C2%A0PM.png)
 
-to fill her, and give her back a body.
+to fill her spirit, and return her to the mortal plane with a body.
 
 ![](12-21-17_11-49-05%C2%A0PM.png)
 
