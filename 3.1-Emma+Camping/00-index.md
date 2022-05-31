@@ -64,7 +64,7 @@ But that didn't stop Anne & Emma from having random dance-off's.
 
 ![](06-19-18_10-15-11%C2%A0PM.png)
 
-Emma was still in pain, but she didn't draw attention to it.
+Emma still had waves of pain, but she didn't draw attention to it.
 
 ![](06-19-18_10-18-19%C2%A0PM.png)
 
