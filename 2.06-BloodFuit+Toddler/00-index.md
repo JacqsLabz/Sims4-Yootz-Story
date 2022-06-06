@@ -60,7 +60,10 @@ While they wanted for the blood fruit to come to harvest, Sara made sure to drin
 
 ![](12-13-17_6-57-41%C2%A0PM.png)
 
+Because she had decided on breastfeeding; she hadn't found any formula for vampires.
+
 ----
+
 ![](12-15-17_12-32-32%C2%A0AM.png)
 
 Sara could only be in the sun for short bits of time,

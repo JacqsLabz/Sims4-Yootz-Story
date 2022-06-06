@@ -20,7 +20,7 @@ Sara started training Don how to be a vampire, including how they dueled.
 
 He took it. "But I still need more rep's, coach?"
 
-"Exactly dude." She smirked, it was the same type of thing he used to tell her in the gym.
+"Exactly dude." She smirked, it was the same type of thing he used to tell her in the gym: that she needed more rep's.
 
 ----
 
@@ -40,7 +40,7 @@ Jane & Sara enjoyed their remoantic nights together.
 
 ![](12-20-17_11-49-27%C2%A0PM.png)
 
-And the occational night out with their coven.
+And the occational night out with their coven of vampires.
 
 ----
 
@@ -70,4 +70,4 @@ That is until, "I think I have an idea... I think we can get her back." Sara sai
 
 "Sara, this is hard enough without talk like that... please.. I think I need to be alone."
 
-Sara knew Jane wasn't as in touch with death, she could feel it. So, she did as Jane asked, and left her to sort things out by herself. 
+Sara knew Jane wasn't as in touch with death, she could feel it. So, she did as Jane asked, and left her wife to sort things out by herself. 

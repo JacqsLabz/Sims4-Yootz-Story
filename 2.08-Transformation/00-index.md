@@ -34,18 +34,19 @@ After she finished another bite, "Yeah, that sounds nice. A little coffee should
 
 ![](12-20-17_8-23-02%C2%A0AM.png)
 
-"Ow." Jane sucked in air through her teeth, making a slight hiss, "Does this mean I won't be able to eat either?"
+"Ow." Jane sucked in air through her teeth, making a slight hiss.
 
-"Well, for me it was a neasous feeling, and the flavor was gross. So you're probably fine?"
+<!-- , "That really hurts. Does this mean I won't be able to eat either?" -->
 
-Jane waited for the feeling to pass
+<!-- "Well, for me it was a neasous feeling, and the flavor was gross. So you're probably fine?" -->
 
-![](12-20-17_8-24-23%C2%A0AM.png)
+<!-- Jane waited for the feeling to pass -->
 
-----
+<!-- ![](12-20-17_8-24-23%C2%A0AM.png) -->
+
 ![](12-20-17_8-23-25%C2%A0AM.png)
 
-Yeah, I think I'm done eating for now
+As the feeling passed, "Yeah, I think I'm done eating for now. That really hurts."
 
 
 ----
@@ -65,11 +66,11 @@ WHen it came time to eat, Jane decided she wasn't hungry
 
 ![](12-20-17_8-40-17%C2%A0AM.png)
 
-"Can you turn other people into vampire? Is that a think you can do."
+"Can you turn others into vampires? Would you turn me?"
 
 Sara raised an eyebrow, "Really? Are you sure you want that?"
 
-"You're immoralt, right? Who wouldn't want that?"
+"You're immortal, right? Who wouldn't want that?"
 
 Sara noddeed, back up a little, and channeled the dark energy of the vampires.
 
@@ -83,7 +84,7 @@ Sara noddeed, back up a little, and channeled the dark energy of the vampires.
 
 ![](12-20-17_6-01-50%C2%A0PM.png)
 
-Sara released the dark energy, and let her disguse come back.
+Sara released the dark energy, and returned to her normal form.
 
 ![](12-20-17_6-03-01%C2%A0PM.png)
 

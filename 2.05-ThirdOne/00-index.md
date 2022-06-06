@@ -10,15 +10,15 @@ Make sure to feed very regularly,
 
 and explained this all as best as she could to her daughters, Savanna and Emma.
 
-![](12-12-17_8-39-55%C2%A0PM.png)
-
 ----
 
 She fed very regularly,
 
+![](12-12-17_8-39-55%C2%A0PM.png)
+
 ![](12-12-17_8-40-34%C2%A0PM.png)
 
-and found the blood to be delicisous beyond description from quite a number of sims.
+and found the blood to be delicious beyond description from quite a number of sims.
 
 ----
 
