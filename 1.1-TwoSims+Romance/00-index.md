@@ -74,7 +74,7 @@ For a time, normal life roled on, spending time together, at their jobs, and pur
 
 ![](12-22-16_5-29-37%C2%A0PM.png)
 
-Sara got more tips from Don, including protient shakes.
+Sara got more tips from Don, including protien shakes.
 
 ----
 
