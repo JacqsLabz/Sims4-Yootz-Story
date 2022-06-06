@@ -66,7 +66,7 @@ and eloped that same day.
 
 ![](12-22-16_5-51-37%C2%A0PM.png)
 
-They went on another day to that same club to celebrate.
+They went on another date at the same club as before to celebrate.
 
 ----
 
