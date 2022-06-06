@@ -110,7 +110,7 @@ Jane stepped closer, and offered her neck.
 
 "How long does this part last for?"
 
-"Welcome to my world." Sara smirked, "Don't worry, I promise it is temporary."
+"Welcome to my world." Sara smirked, "Don't worry, I promise it is temporary; just a few days."
 
 ![](12-19-17_10-55-53%C2%A0PM.png)
 

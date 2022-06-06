@@ -20,7 +20,7 @@ So, Jane asked Sara if she could help bring her back.
 
 ![](12-21-17_6-14-05%C2%A0PM.png)
 
-Sara explained her plan, and taught Jane how to fish.
+Sara explained her plan; she taught Jane how to fish and explained whta they would need from the garden.
 
 ----
 

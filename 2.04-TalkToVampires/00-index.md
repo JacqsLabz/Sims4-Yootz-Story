@@ -46,13 +46,13 @@ She felt weak as she stubbled back to the living room, and sat on the couch acro
 
 ![](12-12-17_7-06-28%C2%A0PM.png)
 
-Sara list off things on her fingers, "Fruit salad, pancakes, sandwhiches, even freaking coffee doesn't taste right."
+Sara list off things on her fingers, "Fruit salad, pancakes, sandwiches, even freaking coffee doesn't taste right."
 
 ![](12-12-17_7-04-23%C2%A0PM.png)
 
 "Ah, yes. You see, most of our kind can eat like the humans do. But for others, their stomach withers up until it cannot tolerate solid food anymore. Typically, if it happens, it takes years or centries to happen. But you wouldn't be the first for the transformation itself to wither you insides."
 
-Sara swallowed, and looked down at her midsection. So her gut was trashed? But she was still pregnant, the baby was clearly growing, and see needed to feed both of them... Feed. She was a vampire that needed to *feed*. "So, I need to drink blood then?" At first thought made her skin crawl. But as she pictured doing so, a thirsty hunger awoke within her, and that made it sound like the best idea in the world.
+Sara swallowed, and looked down at her midsection. So her gut was trashed? But she was still pregnant, the baby was clearly growing, and see needed to feed both of them... Feed. She was a vampire that needed to *feed*. "So, I need to drink blood then?" At first thought made her skin crawl. But as she pictured doing so, a thirsty hunger awoke within her... which made it sound like the best idea in the world.
 
 "That is one option. There is also a tree native to this area that bears the blood-fruit. Anyone who knows what they're doing behind a bar counter can make the fruit into a drink that serves as a nice alternative."
 
@@ -70,7 +70,7 @@ Lilith stood, "Come this way, my brother is better at this than myself."
 
 ![](12-12-17_7-09-40%C2%A0PM.png)
 
-"You have to learn to sense the dark power both in and around you."
+"You have to learn to sense the dark power both in and around you." He explained the principle behind it before getting up the demonstrate.
 
 ![](12-12-17_7-13-56%C2%A0PM.png)
 
@@ -82,7 +82,7 @@ Lilith stood, "Come this way, my brother is better at this than myself."
 
 ![](12-12-17_7-15-34%C2%A0PM.png)
 
-Sara let instinct guide her, and found that she could feel the dark force of the vampires.
+Sara let instinct guide her, and found that she could feel the dark power of the vampires.
 
 "You're quite the natural." Caleb remarked.
 
@@ -110,7 +110,7 @@ So when she found some strangers, she let instinct take over and guide her.
 
 ----
 
-She felt so evergized that she jogged home, and then kept running on her tredmill while she waited for Jane to get home.
+She felt so energized that she jogged home, and then kept running on her tredmill while she waited for Jane to get home.
 
 ![](12-12-17_7-24-21%C2%A0PM.png)
 
