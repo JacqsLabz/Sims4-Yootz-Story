@@ -1,8 +1,9 @@
-But Sara knew she could bringing back Emma, she could feel it.
+
+Sara wasn't sure she could bring back Emma, but she had to try. She had seen the grim reaper with her own eyes, who knew what was possible. 
 
 ![](12-21-17_4-15-54%C2%A0PM.png)
 
-First she needed a fish. So Sara started learning how to fish near their home.
+First she needed a fish. So Sara started learning how to fish near their home. 
 
 ----
 
@@ -12,15 +13,17 @@ Strange puddles started to appear around the house for what seemed like no reaso
 
 ![](12-21-17_5-04-33%C2%A0PM.png)
 
-"Emma?" Jane squinted, she thought she was seeing a ghost.
+"Emma?" Jane squinted, she thought she was seeing a ghost. 
 
-Emma faded away, but Jane went to find Sara. To help bring their daughter back.
+Emma faded away, but Jane went to find Sara. If vampires and ghosts were real, if Emma wasn't completely just gone, maybe Sara was right. Maybe they could bring Emma back. 
 
-So, Jane asked Sara if she could help bring her back.
+So, Jane asked Sara if she could help. 
 
 ![](12-21-17_6-14-05%C2%A0PM.png)
 
-Sara explained her plan; she taught Jane how to fish and explained whta they would need from the garden.
+Sara explained her plan, and taught Jane how to fish. "I'm not sure certain it will work, but we can try."
+
+"If this doesn't work," Jane shifted her weight, "then we'll try something else. I saw her, she's not really gone." 
 
 ----
 
@@ -38,11 +41,13 @@ Savanna was less welcoming.
 
 ![](12-21-17_9-34-45%C2%A0PM.png)
 
-Anne didn't have a strong reaaction, even when Emma's ghost started a bear phase.
+Anne didn't have a strong reaction, even when Emma's ghost started a bear phase. She just waved and went in the house. 
 
 ----
 
-Jane stood before the fidge. "Are you sure you want me to do this?"
+When they finally had everything they needed, they summoned Emma to the kitchen. 
+
+Jane stood before the fridge. "Are you sure you want me to do this?"
 
 ![](12-21-17_11-42-18%C2%A0PM.png)
 
@@ -70,11 +75,11 @@ The magic didn't take long
 
 ![](12-21-17_11-47-28%C2%A0PM.png)
 
-to fill her spirit, and return her to the mortal plane with a body.
+to fill her spirit, and return her body to the mortal plane.
 
 ![](12-21-17_11-49-05%C2%A0PM.png)
 
-Sara covered her in kisses. "My girl, you're back."
+Sara covered her in kisses. "My dear, you're back."
 
 ![](12-21-17_11-48-42%C2%A0PM.png)
 
@@ -86,7 +91,7 @@ Anne hugged her too, happy to have her other big sister back. "Emma!"
 
 ![](12-22-17_12-06-13%C2%A0AM.png)
 
-Emma decided purple was her favorite color now.
+Emma felt like she needed a change after all of that, and decided purple was her favorite color now.
 
 ![](12-23-17_10-36-14%C2%A0PM.png)
 

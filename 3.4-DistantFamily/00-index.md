@@ -1,3 +1,4 @@
+
 ![](05-25-22_8-36-22%C2%A0PM.png)
 
 One afternoon, Anne was watching Clara when she got a text from Kaylie.
@@ -12,7 +13,7 @@ Anne decided to give her a call, and invited her over.
 Brenda gifted
 
 ![](05-25-22_8-48-13%C2%A0PM.png)
-Meanwhile Emma tried her best to help Brenda with her homework.
+Meanwhile Emma tried her best to help Brenda with her studies.
 
 ![](05-28-22_7-57-29%C2%A0AM.png)
 Brenda: Don't I have 2 parents too? Where's my other mom?

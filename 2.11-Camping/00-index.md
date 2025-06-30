@@ -1,3 +1,4 @@
+
 After everything, Sara and Jane decided to take the girls on a vacation, to get away from it all at a cabin out in the woods.
 
 ![](12-22-17_1-07-28%C2%A0AM.png)
@@ -6,7 +7,7 @@ They did things like playing cards,
 
 ![](12-22-17_1-13-15%C2%A0AM.png)
 
-horseshoe
+horseshoe,
 
 ![](12-22-17_1-22-29%C2%A0AM.png)
 
@@ -24,7 +25,7 @@ Savanna grew up into a teenager.
 
 "That was really nice." Jane said.
 
-"Yeah." Sara said.
+"Yeah." Sara agreed, "good to get away and focus on the girls."
 
 ----
 
@@ -40,7 +41,7 @@ Savanna grew up into a teenager.
 
 ![](12-23-17_10-54-28%C2%A0PM.png)
 
-Sara leaned in close to Jane and whispered, "She can't be serious, let me handle this.""
+Sara leaned in close to Jane and whispered, "She can't be serious, let me handle this."
 
 ![](12-23-17_10-54-41%C2%A0PM.png)
 "Of course I'm serious!" Savanna yelled.
@@ -63,7 +64,7 @@ When they were done, Savanna's voice was flat. "Neither of your are freaking lis
 
 Jane's face filled with rage as she stood.
 
-But Sara saw her, recongized that type of look from the mirror. "Dear, stop, before you say something you might regret. Trust me."
+But Sara saw her, and recognized that type of look from the mirror. "Dear, stop, before you say something you might regret. Trust me."
 
 ![](12-23-17_11-02-18%C2%A0PM.png)
 
@@ -73,6 +74,6 @@ Jane let Savanna walk past.
 
 ![](12-23-17_11-09-08%C2%A0PM.png)
 
-Jane colapsed on the couch, defeated. "We're losing our other little girl."
+Jane did, and after a few moments colapsed on the couch, defeated. "We're losing our other little girl."
 
 "Look, with how old she is, short of mind control, we can't stop her. I don't want to lose them either, but we can't protect them from everything."

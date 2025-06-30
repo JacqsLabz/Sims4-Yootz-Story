@@ -1,3 +1,4 @@
+
 I probably won't do these much, but here's a look at Savanna and what happened after she moved out.
 
 ![](05-30-18_2-54-51%C2%A0PM.png)
@@ -64,7 +65,7 @@ Her job she got wasn't the best, but it helped pay the bills.
 
 "Ug, this thing always makes me so hungry!" Savanna complained.
 
-There's some brownies someone at work made in the fridge."
+"There's some brownies someone at work made in the fridge."
 
 ![](05-30-18_3-39-48%C2%A0PM.png)
 
@@ -96,7 +97,7 @@ She was often so hungry after work, and would eat before her boyrfriend got home
 
 ![](05-30-18_9-22-43%C2%A0PM.png)
 
-Not ot mention midnight snacks.
+Not to mention midnight snacks.
 
 ----
 
@@ -116,10 +117,6 @@ But when she sat down to eat, a pain came over here. Savanna realized she was in
 
 She tried to sit down, but that seemed to only make it worse.
 
-![](05-30-18_9-44-30%C2%A0PM.png)
-
-Between conctration she managed to stand up and eat some of her food.
-
 ![](05-30-18_9-44-58%C2%A0PM.png)
 
 ![](05-30-18_9-51-31%C2%A0PM.png)
@@ -138,4 +135,4 @@ Her daughter, Mckinley, was born.
 
 Eventually, they end up as:
 
-Savanna married to Genji, with their duaghter Mckinley a teenager, and their two sons Demarus (toddler) and Brenton (infant). As a teenager, Mckinley hooked up with their married landlord, and had a daughter, Gracie (who's actually slightly older than Demarus).
+Savanna married to Genji, with their daughter Mckinley a teenager, and their two sons Demarus (toddler) and Brenton (infant). As a teenager, Mckinley hooked up with their married landlord, and had a daughter, Gracie (who's actually slightly older than Demarus).

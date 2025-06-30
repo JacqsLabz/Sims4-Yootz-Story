@@ -1,4 +1,5 @@
-*The next morning... / One morning a few days later...*
+
+*The next morning...*
 
 "Hey sweetie, how you doing?" Sara asked.
 
@@ -6,7 +7,7 @@
 
 ![](12-19-17_11-08-11%C2%A0PM.png)
 
-"How about I make you some breakfast for once?" Sara smiled.
+"How about I make you some breakfast for once?" Sara smiled. "See how your stomach takes it?"
 
 Jane nodded.
 
@@ -14,7 +15,7 @@ When it was finished, Sara sat down next to her again.
 
 ![](12-20-17_8-12-21%C2%A0AM.png)
 
-"One omlette, with love."
+"One omelette, with love."
 
 "You're too cute sweetie." Jane smiled.
 
@@ -22,7 +23,7 @@ When it was finished, Sara sat down next to her again.
 
 "Let me know what you think; at this point I don't think my taste for food will even come back."
 
-Jane took a tenative bite. After the chewed and swallowed, "It tastes fine, thank you sweetie."
+Jane took a tentative bite. After the chewed and swallowed, "It tastes fine, thank you sweetie."
 
 Sara smiled. "You're welcome. I know this a bit last minute, but Don invited us to a party later today, did you want to come with me?"
 
@@ -34,57 +35,60 @@ After she finished another bite, "Yeah, that sounds nice. A little coffee should
 
 ![](12-20-17_8-23-02%C2%A0AM.png)
 
-"Ow." Jane sucked in air through her teeth, making a slight hiss.
+"Ow." Jane sucked in air through her teeth, making a slight hiss, "Does this mean I won't be able to eat either?"
 
-<!-- , "That really hurts. Does this mean I won't be able to eat either?" -->
+"Well, for me it was a nauseous feeling, and the flavor was beyond gross. Some pain is normal, but getting sick like I did isn't common."
 
-<!-- "Well, for me it was a neasous feeling, and the flavor was gross. So you're probably fine?" -->
+Jane waited for the feeling to pass, then went back to enjoying the meal as they chatted. 
 
-<!-- Jane waited for the feeling to pass -->
+![](12-20-17_8-24-23%C2%A0AM.png)
+Jane finished the first then asked for seconds.
 
-<!-- ![](12-20-17_8-24-23%C2%A0AM.png) -->
-
+----
 ![](12-20-17_8-23-25%C2%A0AM.png)
 
-As the feeling passed, "Yeah, I think I'm done eating for now. That really hurts."
+Though she got full half way through it. "Yeah, I think I'm done eating for now. Sorry."
 
+"Don't worry about it darling." Sara smiled. You stomach still might be a little temperamental sometimes." 
 
 ----
 
 ![](12-20-17_8-33-00%C2%A0AM.png)
 
 ![](12-20-17_8-36-02%C2%A0AM.png)
-WHen it came time to eat, Jane decided she wasn't hungry
+When it came time to eat at the party, Jane decided she wasn't hungry
 
 ![](12-20-17_8-37-17%C2%A0AM.png)
 
 ![](12-20-17_8-40-07%C2%A0AM.png)
 
-"It's been great to see you and catch up!" Sara gave Don a bro hug.
+"It's been great to see you and catch up!" Sara smiled as Don wrapped her in one one his so-called bro hugs.
 
 "Actually part of the reason I invited you was because I wanted to ask you something..." he leaned in close.
 
 ![](12-20-17_8-40-17%C2%A0AM.png)
 
-"Can you turn others into vampires? Would you turn me?"
+"Can you turn other people into vampire? Is that a thing you can do?"
 
 Sara raised an eyebrow, "Really? Are you sure you want that?"
 
-"You're immortal, right? Who wouldn't want that?"
+"You're immoral, right? Who wouldn't want that?"
 
-Sara noddeed, back up a little, and channeled the dark energy of the vampires.
+Sara nodded, back up a little, and channeled the dark energy of the vampires.
 
 ![](12-20-17_6-00-18%C2%A0PM.png)
 
+As the power filled her, Sara could feel it again, stronger this time: this was what Don truly wanted. But just like with Jane, she would make sure he knew that, by making him come for it willingly. 
+
 ![](12-20-17_6-02-32%C2%A0PM.png)
 
-"If this is what you want, then come here."
+"If this is what you want, then come here." She let her fangs show. 
 
 ![](12-20-17_6-00-48%C2%A0PM.png)
 
 ![](12-20-17_6-01-50%C2%A0PM.png)
 
-Sara released the dark energy, and returned to her normal form.
+After he drank, Sara released the dark energy and switched forms.
 
 ![](12-20-17_6-03-01%C2%A0PM.png)
 
@@ -94,11 +98,15 @@ Sara released the dark energy, and returned to her normal form.
 
 ----
 
-![](12-20-17_6-04-33%C2%A0PM.png)![](12-20-17_6-04-57%C2%A0PM.png)![](12-20-17_6-05-12%C2%A0PM.png)
+![](12-20-17_6-04-33%C2%A0PM.png)
+
+![](12-20-17_6-04-57%C2%A0PM.png)
+
+![](12-20-17_6-05-12%C2%A0PM.png)
 
 ----
 
-They were hanging out their house with some friends over
+They were hanging out their house with some friends over a few days later, when… 
 
 ![](12-20-17_6-09-40%C2%A0PM.png)
 
@@ -118,6 +126,8 @@ They were hanging out their house with some friends over
 
 "Let me make you a drink?"
 
+They went to the bar, and Sara whipped up one of her Bloody Mary's for Jane.
+
 ![](12-20-17_8-57-29%C2%A0PM.png)
 
 ![](12-20-17_8-57-03%C2%A0PM.png)
@@ -126,7 +136,7 @@ They were hanging out their house with some friends over
 
 ----
 
-One night, they were at a party at the bluff's
+A few nights later, they were at a party at the bluff's
 
 ![](12-20-17_10-17-58%C2%A0PM.png)
 

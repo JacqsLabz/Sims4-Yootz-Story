@@ -1,18 +1,19 @@
+
 ![](12-19-17_10-23-38%C2%A0PM.png)
 
 "I've been thinking, what about a night out on the town?" Sara asked.
 
 ----
 
-They decided to get a sitter and go out to the city right around sun down. It burned Sara a bit, but it wouldn't be long enough to really matter.
+They decided to get a sitter and go out to the city right around sun down. 
 
 ![](12-19-17_8-31-49%C2%A0PM.png)
 
-The started with stopping by the romance festival, and taking a few hits on a bubbleblower.
+They started with stopping by the romance festival, and taking a few hits on a bubble blower.
 
 ![](12-19-17_10-28-25%C2%A0PM.png)
 
-"This feeel different..." Jane hesitated.
+"This feels different..." Jane hesitated.
 
 "You'll get used to it." Sara smiled.
 
@@ -32,17 +33,16 @@ They made their way to a karaoke bar.
 
 ![](12-19-17_10-36-59%C2%A0PM.png)
 
-Sara tried her best to surpress the hiss as her need to feed filled her.
+Sara tried her best to suppress the hiss as her need to feed filled her, but mostly failed. 
 
 ![](12-19-17_10-38-49%C2%A0PM.png)
-
-"Just wait here, and I'll be back soon. Ok love?"
+"Just wait here, and I'll be back soon. Ok love?" Sara rubbed her cheek. 
 
 Jane found herself weak in the knees. "Ok Sara."
 
 ![](12-19-17_10-43-28%C2%A0PM.png)
 
-She didn't need to even go far to find prey, there was some all around. As she swallowed, fresh blood filled her decayed whithered up belly.
+She didn't need to even go far to find prey, there was some all around. As she swallowed, fresh blood filled her decayed and withered husk of a stomach. 
 
 ![](12-19-17_10-47-40%C2%A0PM.png)
 
@@ -62,7 +62,7 @@ At first Jane seemed to enjoy it,
 
 ![](12-19-17_10-49-50%C2%A0PM.png)
 
-but she suddenly pulled back. "Wait."
+but she suddenly pulled away. "Wait." Fear tinged her tone. 
 
 "What is it? What's the matter?" Sara didn't hide her concern.
 
@@ -73,28 +73,25 @@ but she suddenly pulled back. "Wait."
 "What if what? What if I bit you?" Sara raised an eyebrow. "Then we'd be immortal together. What would be wrong with that?"
 
 ![](12-19-17_10-50-42%C2%A0PM.png)
-
 Jane put her hands to her mouth, "I- I..."
 
 ![](12-19-17_10-50-48%C2%A0PM.png)
-
 "I'm sorry," Jane sighed, "You're right."
 
 ![](12-19-17_10-52-48%C2%A0PM.png)
-
 She sighed and looked down. "You're completely right. I'm just so scared. This fear doesn't make sense, but it is still there."
 
 ![](12-19-17_10-54-45%C2%A0PM.png)
 
-"Come here." Sara caressed Jane's cheek.
+"Come here." Sara caressed Jane's cheek again. In that moment, she knew what Lilith had meant about wanting the gift of the bite. It was faint, but Sara could sense it: Jane did want to turn. 
 
 ![](12-19-17_10-55-07%C2%A0PM.png)
 
 "Trust me?" Sara whispered.
 
-Jane blink away a tear as she nodded up Sara.
+Jane blinked away a tear as she nodded up Sara.
 
-"If you want my bite, then come here."
+"If you want my bite, then come here." Sara kept her voice low. 
 
 Jane stepped closer, and offered her neck.
 
@@ -110,7 +107,9 @@ Jane stepped closer, and offered her neck.
 
 "How long does this part last for?"
 
-"Welcome to my world." Sara smirked, "Don't worry, I promise it is temporary; just a few days."
+"A while." Sara smirked, "Welcome to my world."
+
+Jane's smiled was pained. 
 
 ![](12-19-17_10-55-53%C2%A0PM.png)
 

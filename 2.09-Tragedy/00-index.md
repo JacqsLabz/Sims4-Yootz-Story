@@ -1,6 +1,7 @@
+
 ![](12-21-17_9-47-04%C2%A0AM.png)
 
-Jane adjust to her new diet of eating and drinking blood fruit.
+Jane adjust to her new diet of eating and drinking blood fruit. She started adding it to salads, and found they were quiet delicious. 
 
 ![](12-21-17_9-46-56%C2%A0AM.png)
 
@@ -14,13 +15,13 @@ Sara started training Don how to be a vampire, including how they dueled.
 
 ![](12-21-17_5-27-08%C2%A0PM.png)
 
-"You're getting better," Sara said as she floated back down to the floor, and offered Don a hand to get up.
+"You're getting better," Sara said as she floated back down to the floor, then offered Don a hand to get up.
 
 ![](12-21-17_5-27-20%C2%A0PM.png)
 
 He took it. "But I still need more rep's, coach?"
 
-"Exactly dude." She smirked, it was the same type of thing he used to tell her in the gym: that she needed more rep's.
+"Exactly dude." She smirked, it was the same type of thing he used to tell her at the gym.
 
 ----
 
@@ -32,7 +33,7 @@ The girls had friends from school over. Emma made a best friend.
 
 ![](12-20-17_11-03-42%C2%A0PM.png)
 
-Jane & Sara enjoyed their remoantic nights together.
+Jane & Sara enjoyed their romantic nights together.
 
 ![](12-20-17_11-37-23%C2%A0PM.png)
 
@@ -40,7 +41,7 @@ Jane & Sara enjoyed their remoantic nights together.
 
 ![](12-20-17_11-49-27%C2%A0PM.png)
 
-And the occational night out with their coven of vampires.
+And the occational night out with their coven.
 
 ----
 
@@ -58,16 +59,18 @@ but he refused, and reaped the young child's soul.
 
 ----
 
-Sara couldn't even get the words out to explain it to Jane.
+Sara couldn't even get the words out to explain it to Jane when she first got home.
 
 ![](12-21-17_2-27-33%C2%A0PM.png)
 
-There weren't words as they wepped in Emma's bedroom.
+There weren't words as they weeped in Emma's bedroom.
 
 ![](12-21-17_2-27-27%C2%A0PM.png)
 
-That is until, "I think I have an idea... I think we can get her back." Sara said.
+That is until, "I think I have an idea... I think we can get her back." Sara felt almost as if the darkness itself had put the idea in her mind. 
 
 "Sara, this is hard enough without talk like that... please.. I think I need to be alone."
 
-Sara knew Jane wasn't as in touch with death, she could feel it. So, she did as Jane asked, and left her wife to sort things out by herself. 
+While they were both vampires, Sara was far more attuned to their dark power, to death itself. Whereas Jane could barely channel any darkness at all, and had never truly embraced it, preferring to be more like a human. 
+
+Sara knew Jane wasn't as in touch with the moral vale, she could feel it. So, she did as Jane asked, and left her to sort her emotions out by herself. 

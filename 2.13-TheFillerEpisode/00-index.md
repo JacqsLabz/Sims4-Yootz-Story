@@ -1,3 +1,4 @@
+
 For a time, their lives were basically uneventful.
 
 ----
@@ -8,7 +9,7 @@ Anne got to play like a normal child.
 
 ![](05-22-18_7-02-11%C2%A0PM.png)
 
-Jane, Anne, and Emma had family dinners of different types of salad.
+Jane, Anne, and Emma had family dinners, just not all of the same salad type. 
 
 ![](05-22-18_7-05-00%C2%A0PM.png)
 
@@ -48,7 +49,7 @@ Sometimes Sara would join the family dinners with a bloody mary made from blood 
 
 ----
 
-There were two others that asked Sarila for the bite.
+There were two others that asked Sara for the bite.
 
 ![](05-23-18_1-36-12%C2%A0PM.png)
 
@@ -86,29 +87,46 @@ I give you Vlad the pirate.
 
 ![](05-29-18_2-39-35%C2%A0PM.png)
 
-![](05-29-18_3-19-08%C2%A0PM.png)![](05-29-18_3-32-58%C2%A0PM.png)![](05-29-18_3-53-46%C2%A0PM.png)![](05-29-18_3-51-57%C2%A0PM.png)
+![](05-29-18_3-19-08%C2%A0PM.png)
 
-![](05-29-18_3-56-29%C2%A0PM.png)![](05-29-18_3-56-48%C2%A0PM.png)
+![](05-29-18_3-32-58%C2%A0PM.png)
+
+![](05-29-18_3-53-46%C2%A0PM.png)
+
+![](05-29-18_3-51-57%C2%A0PM.png)
+
+They had root beer floats 
+
+![](05-29-18_3-56-48%C2%A0PM.png)
+
 Movie night with Jane & the girls.
 
 ----
 
-
 They got some new things:
 
 ![](05-29-18_3-58-45%C2%A0PM.png)
+
 A rock climbing wall.
 
 ![](05-29-18_4-14-25%C2%A0PM.png)
+
 A hot tub
 
 ![](05-30-18_9-41-03%C2%A0AM.png)
+
 And a yoga studio
 
-![](05-29-18_4-20-33%C2%A0PM.png)![](05-29-18_4-20-52%C2%A0PM.png)
+![](05-29-18_4-20-33%C2%A0PM.png)
 
-![](05-29-18_4-22-11%C2%A0PM.png)![](05-29-18_4-22-33%C2%A0PM.png)
+![](05-29-18_4-20-52%C2%A0PM.png)
+
+![](05-29-18_4-22-11%C2%A0PM.png)
+
+![](05-29-18_4-22-33%C2%A0PM.png)
 
 ![](05-29-18_4-39-17%C2%A0PM.png)
 
-![](05-29-18_7-07-17%C2%A0PM.png)![](05-29-18_7-08-12%C2%A0PM.png)
+![](05-29-18_7-07-17%C2%A0PM.png)
+
+![](05-29-18_7-08-12%C2%A0PM.png)

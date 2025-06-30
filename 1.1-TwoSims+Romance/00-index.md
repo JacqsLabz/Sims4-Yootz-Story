@@ -4,7 +4,7 @@ This story begins way back in 2016, with two roommate sims when their friendship
 
 <!-- ![](05-21-22_8-24-46%C2%A0AM.png) -->
 
-Sara Yootz, always the hot-head;
+Sara Yootz, always the athletic hot-head;
 
 <!-- ![](05-21-22_8-27-15%C2%A0AM.png) -->
 
@@ -12,7 +12,7 @@ Sara Yootz, always the hot-head;
 
 and Jane Witt, the creative soul.
 
-They had been living together in the small Daisy Hovel for some time. One evening Sara had finished her workout and Jane was getting ready for bed, when Sara decided to take the advice from her friend Don from the gym & make the first move.
+They lived together in Daisy Hovel as roommates, just trying to get by. As time passed, Sara found herself having feelings for Jane. She asked her friend at the gym, Don for some advice. He recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
 
 ![](12-22-16_6-21-05%C2%A0PM.png)
 
@@ -34,19 +34,13 @@ Sara supressed a giggle.
 
 "It's the hat isn't it?" Jane reach for the brim, "Do you think it's too much?"
 
-"No... ok maybe it is, but I like it." Sara glance around the night club. "How about a dance?"
+"No... ok maybe it is a bit much, but I like it." Sara glance around the night club. "How about a dance?"
 
 ![](12-22-16_5-51-50%C2%A0PM.png)
 
 ----
 
-One morning, while Jane was in the shower and Sara was doing her morning workout, she decided to surprise Jane again.
-
-<!-- One morning not long after their date, it was during Sara's usual ealy morning workout -->
-
-<!-- ![](12-22-16_6-15-27%C2%A0PM.png) -->
-
-<!-- that she decided to surprise Jane again. -->
+One morning, after her normal morning workout, Sara decided to surprise Jane again.
 
 ![](12-22-16_4-47-03%C2%A0PM.png)
 
@@ -58,7 +52,7 @@ They decided to waste no time,
 
 ![](12-22-16_5-18-40%C2%A0PM.png)
 
-and eloped that same day.
+and eloped soon after.
 
 ![](12-22-16_5-18-49%C2%A0PM.png)
 
@@ -66,11 +60,11 @@ and eloped that same day.
 
 ![](12-22-16_5-51-37%C2%A0PM.png)
 
-They went on another date at the same club as before to celebrate.
+They went on another date to the same club to celebrate.
 
 ----
 
-For a time, normal life roled on, spending time together, at their jobs, and pursuing their respective hobbies.
+For a time, normal life rolled on, spending time together, at their jobs, and pursuing their respective hobbies.
 
 ![](12-22-16_5-29-37%C2%A0PM.png)
 
@@ -80,7 +74,7 @@ Sara got more tips from Don, including protien shakes.
 
 ![](12-22-16_6-15-41%C2%A0PM.png)
 
-"Hey Jane, does it look like I've put on any weight to you?" Sara asked inbetween breathes as she ran on the tredmil.
+"Hey Jane, does it look like I've put on any weight to you?" Sara asked in between breathes as she ran on the tredmil.
 
 "I think you look just prefect, my love."
 
@@ -88,11 +82,11 @@ Sara got more tips from Don, including protien shakes.
 
 ----
 
-The next day Sara had off work happened to be a day Jane had to work. So, Sara decide to use the time to get in some extra workouts. She pushed herself as hard as she could.
+Whenever Sara had the day off work and Jane had to work, Sara got in some extra workouts.
 
 ![](12-22-16_6-34-09%C2%A0PM.png)
 
-"You aren't getting the better of me!" was one of the many things she yelled in the empty house, pushing herself harder and harder to try to lose the extra cub from her middle.
+One such day, her workout was going great.
 
 ![](12-22-16_6-35-20%C2%A0PM.png)
 
@@ -108,11 +102,11 @@ She didn't know what think as she tried to clean up the mess.
 
 ----
 
-It turned out to be the first time of many. So, Sara tried chaning a few things. She dropped the protien drinks, and generally tried to be easier on herself. But it didn't seem to make any difference.
+It turned out to be the first time of many. So, Sara tried chaning a few things. She dropped the protein drinks, and generally tried to take it easier with her workouts. But it didn't seem to make any difference.
 
 ![](12-22-16_6-48-29%C2%A0PM.png)
 
-''*When am I going to get over this... whatever it is?'* she found herself wondering.
+*'When am I going to get over this... whatever it is?'* she found herself wondering.
 
 ----
 
@@ -130,15 +124,15 @@ The food was great, but it still went down rough for Sara. She managed to keep i
 
 ![](12-22-16_6-31-15%C2%A0PM.png)
 
-"Oh," Sara moaned and held her rioting stomach. *'Can't I keep anything down?'* she thought.
+"Oh," Sara moaned and held her rebeling stomach. *'Can't I keep anything down?'* she thought.
 
-"Still feeling under the weather, dear?" Jane sat back down across from Sara. "Look, I've been kind of wondering lately; what if you're pregnant."
+"Still feeling under the weather, dear?" Jane sat back down across from Sara. "Look, I've been kind of wondering lately; what if you're pregnant?"
 
-"Wait," Sara closed her eyes, "is that eve possible? But we're... How would..."
+"Wait," Sara closed her eyes, "is that even possible? But we're... How would..."
 
 ![](12-22-16_6-32-20%C2%A0PM.png)
 
-"I'm not sure, but it would explain a lot."
+"I'm not sure, but it would explain a lot." Jane shrugged.
 
 "I need some time to think..." Sara stood. "Like, I need a minute."
 
@@ -168,21 +162,23 @@ Jane gave her a peck on the cheek.
 
 ----
 
-"Hey there sweeite," Jane came around the couch, "how you doing?"
+Soon after, Sara took a pregnancy test, then came to sit out on the couch.
+
+"Hey there sweetie," Jane came around the couch, "how you doing?"
 
 ![](12-22-16_6-50-48%C2%A0PM.png)
 
-"Better, I think." Sara tried a tenative smile, "How about you?"
+"Better, I think." Sara tried a tentative smile, "How about you?"
 
 ![](12-22-16_6-51-01%C2%A0PM.png)
 
-"Honestly, I'm so excited that we're going to be parents. Have you thought about any names?"
+"Honestly, I'm so excited that we're going to be parents. Have you thought about any names?" Jane was so excited.
 
-"I haven't, not yet anyway."
+"I haven't, not yet anyway." Sara was caught off guard.
 
 ----
 
-Taking it easy on herself included less time at the gym. So Sara invited over her buddy Don so they could catch up some.
+Taking it easy on herself included less time at the gym. Sara invited over her buddy Don so they could catch up some.
 
 ![](12-22-16_7-31-53%C2%A0PM.png)
 
@@ -198,9 +194,9 @@ Sara swallowed and waited to see what her stomach was going to do. Thankfully, t
 
 ![](12-22-16_7-35-37%C2%A0PM.png)
 
-"Honestly that's probably the worst part; it's just like how am I supposed to get used to this, you know? I can't eat hardly anything; my endurance is totally shot." Sara guestered with her arm.
+"Honestly that's probably the worst part; it's just like how am I supposed to get used to this, you know? I can't eat hardly anything; my endurance is totally shot." Sara complained.
 
-"Give it time, I'm sure you'll get it back afterwards."
+"Give it time, I'm sure you'll get at least some endurance back when you can breath again."
 
 ![](12-22-16_7-35-00%C2%A0PM.png)
 
@@ -210,7 +206,7 @@ Sara swallowed and waited to see what her stomach was going to do. Thankfully, t
 
 "Is that a challange?" She looked at him out of the side of her eye.
 
-"Go get your gym clothes and get on that tredmil."
+"Go get your gym clothes and get on that treadmill." Don smirked.
 
 ![](12-22-16_7-38-57%C2%A0PM.png)
 
@@ -242,11 +238,11 @@ Sara's grin grew as she looked deep in Jane's eyes and gave a little nod.
 
 ![](12-22-16_7-17-06%C2%A0PM.png)
 
-"How was your workout?" Jane asked when Sara got off the tredmil.
+"How was your workout?" Jane asked when Sara got off the treadmill.
 
 ![](12-22-16_7-18-33%C2%A0PM.png)
 
-Sara sat with her. "Good, it really helps to move my body around, get the muscles working."
+Sara sat with her. "Good, it really helps to move my body around a little, just enough to get the muscles working."
 
 ![](12-22-16_7-18-48%C2%A0PM.png)
 
@@ -270,9 +266,7 @@ Before she knew it, her belly had grown even larger.
 
 ![](12-22-16_7-47-30%C2%A0PM.png)
 
-To the point that swimming was just about the only form of exercise she could do anymore.
-
-![](12-22-16_7-54-53%C2%A0PM.png)
+To the point that swimming was just about the only form of exercise she could do anymore. It was a rough adjustment for Sara.
 
 ![](12-22-16_7-55-34%C2%A0PM.png)
 

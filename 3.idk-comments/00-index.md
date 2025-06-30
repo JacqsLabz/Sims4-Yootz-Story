@@ -106,7 +106,7 @@ lol, their faces. Anne: omg, could she be more annoying?
 Anne: I promise, it's not as bad as you're making it out to be. No where near as bad. I'm sure you'll be fine.
 
 ![](06-19-18_10-36-22%C2%A0PM.png)
-Anne:I know you'll be fine, either way.
+Anne: I know you'll be fine, either way.
 Emma: Well that makes one of us.
 
 ![](06-19-18_10-40-14%C2%A0PM.png)
@@ -133,8 +133,10 @@ Knowing she didn't near death, Emma went hiking to clear her mind. Her body was 
 
 ![](06-19-18_5-22-20%C2%A0PM.png)
 Wilson
+
 ![](06-19-18_5-22-43%C2%A0PM.png)
 Pancakes
+
 ![](06-19-18_5-30-10%C2%A0PM.png)
 Party in the closet/hall?
 

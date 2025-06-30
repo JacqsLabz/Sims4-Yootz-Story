@@ -1,3 +1,6 @@
+
+To keep Brenda safe, the family secluded themselves for a while. Sara didn't call meetings if the vampire coven, and instead they stayed home or went on vacation to remote spots.
+
 ![](06-21-18_11-00-36%C2%A0AM.png)
 
 Not long after, Anne went into labor as well.
@@ -16,9 +19,10 @@ Brenda grew up into a toddler.
 
 ![](06-26-18_2-40-12%C2%A0PM.png)
 
-And so did Clara.
+And so did Clara. (Far right, in white) 
 
 ![](06-26-18_8-13-55%C2%A0PM.png)
+
 ![](06-26-18_8-20-32%C2%A0PM.png)
 
 ----
@@ -52,37 +56,66 @@ Cassandra's b-day
 ----
 
 ![](11-07-18_11-13-20%C2%A0PM.png)
+
 Good times around the camp fire
 
 ![](11-10-18_3-19-04%C2%A0PM.png)
-Helping Cassie with school project
 
-![](08-31-20_7-28-48%C2%A0AM.png)![](11-10-18_6-19-10%C2%A0PM.png)
+Helping Cass with school project
+
+![](08-31-20_7-28-48%C2%A0AM.png)
+
+![](11-10-18_6-19-10%C2%A0PM.png)
+
 Sara & Jane
 
 ![](08-31-20_7-40-53%C2%A0AM.png)
-![](05-06-22_5-37-06%C2%A0AM.png)![](05-06-22_12-12-19%C2%A0PM.png)
+
+![](05-06-22_5-37-06%C2%A0AM.png)
+
+![](05-06-22_12-12-19%C2%A0PM.png)
+
 Toddler spam
 
 ![](05-06-22_2-01-55%C2%A0PM.png)
-Fusball
 
-![](05-06-22_2-08-51%C2%A0PM.png)![](05-06-22_2-14-44%C2%A0PM.png)![](05-06-22_2-21-04%C2%A0PM.png)![](05-06-22_2-29-34%C2%A0PM.png)![](05-06-22_2-31-27%C2%A0PM.png)
+Foosball
+
+![](05-06-22_2-08-51%C2%A0PM.png)
+
+![](05-06-22_2-14-44%C2%A0PM.png)
+
+![](05-06-22_2-21-04%C2%A0PM.png)
+
+![](05-06-22_2-29-34%C2%A0PM.png)
+
+![](05-06-22_2-31-27%C2%A0PM.png)
+
 Island Date (Sara & Jane)
 
-![](05-06-22_2-42-51%C2%A0PM.png)![](05-06-22_2-55-02%C2%A0PM.png)
+![](05-06-22_2-42-51%C2%A0PM.png)
+
+![](05-06-22_2-55-02%C2%A0PM.png)
 Cute plating in tent
 
 ![](05-15-22_7-42-04%C2%A0PM.png)
+
 ![](05-15-22_7-51-44%C2%A0PM.png)
+
 ![](05-15-22_8-04-46%C2%A0PM.png)
+
 ![](05-15-22_8-08-27%C2%A0PM.png)
+
 ![](05-15-22_8-12-08%C2%A0PM.png)
-![](05-15-22_8-08-44%C2%A0PM.png)
+
+![](/05-15-22_8-08-44%C2%A0PM.png)
+
 Sara and Cassandra tried snow boarding. Cassie was a natural, Sara less so.
 
 ![](05-16-22_10-11-12%C2%A0PM.png)
+
 ![](05-16-22_10-16-49%C2%A0PM.png)
+
 Egg day
 
 Emma eats blood fruit salad

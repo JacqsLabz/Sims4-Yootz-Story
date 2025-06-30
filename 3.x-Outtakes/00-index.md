@@ -19,8 +19,8 @@ Why are you wearing like full on winter ski boots in the bath? Why?
 
 ![](05-15-22_12-36-56%C2%A0PM.png)
 ![](05-15-22_12-37-10%C2%A0PM.png)
-Emma, what prompted this "fuck it, I'm done with every one of you f*ckers" moment?
+Emma, what prompted this "fuck it, I'm done with every one of you fuckers" moment?
 
 Told Sara to ride the jet ski.
 ![](05-06-22_2-23-56%C2%A0PM.png)![](05-06-22_2-25-02%C2%A0PM.png)![](05-06-22_2-26-05%C2%A0PM.png)
-She decide clothes were over rated all by herself. 
+She decide clothes were over rated all by herself.
