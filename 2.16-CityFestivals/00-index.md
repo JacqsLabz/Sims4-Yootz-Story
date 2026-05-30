@@ -7,11 +7,7 @@ Jane and Emma decided to visit the spicy festival.
 
 ![](06-07-18_9-41-22%C2%A0AM.png)
 
-Sara and Anne came with them, but their withered stomachs meant they couldn't really participate.
-
-%%though at first Anne didn't enjoy it. She missed eating regular solid food, the way she had as a child. Her stomach had withered as soon as she gotten her thirst when she grew into a teen.
-
-because similar to Sara, her stomach had withered. In her case, as she became a teenager and her vampire powers manifested. %%
+Sara and Anne came with them, but their withered stomachs meant they couldn't really enjoy the spicy food. 
 
 ![](06-07-18_11-49-35%C2%A0AM.png)
 
@@ -57,7 +53,10 @@ Sara got her back though.
 
 Being out in the sun meant Jane needed to be very careful to not have the sun burn away all her dark energy.
 
-Emma found the sun didn't burn her, and credited it to being a former ghost. Sara and Anne were also both immune due to how they became vampires together. While Sara was bitten as an adult, Anne changing to a born vampire had affected Sara as well.
+Emma found it odd that the sun didn't affect her, but Lilith had said it was her connection to the afterlife. Apparently being a former ghost had some perks. 
+
+Anne and Sara were both immune to the sunlight, a side effect of their unusual joint transformation. 
+
 
 ![](06-07-18_1-23-17%C2%A0PM.png)
 

@@ -18,6 +18,7 @@ Very effective indeed.
 ----
 
 ![](06-12-18_4-29-36%C2%A0PM.png)
+
 At the same time, she came into her own as a vampire.
 
 ![](06-12-18_4-41-09%C2%A0PM.png)
@@ -54,11 +55,11 @@ But Anne didn't let that didn't stop her fun.
 
 ----
 
+When Anne told Emma, Emma suggested they learn more about how to care for the little one.
+
 ![[06-12-18_10-26-42 PM.png]]
 
-![](06-12-18_10-27-10%C2%A0PM.png)
-
-When she told Emma, her sister suggested they learn more about how to care for the little one.
+So both sisters got to studying. 
 
 ![](06-13-18_6-42-16%C2%A0PM.png)
 
@@ -66,11 +67,11 @@ Jane was excited, naturally.
 
 ![](06-14-18_7-32-28%C2%A0AM.png)
 
-Anne spent a lot of time studying,
+Anne spent a lot of time studying a few different subjects,
 
 ![](06-14-18_7-36-36%C2%A0AM.png)
 
-and taking time to relax and pamper herself.
+and took plenty of time to relax and pamper herself.
 
 ![](06-14-18_8-02-39%C2%A0AM.png)
 
@@ -88,7 +89,7 @@ Of course, she shared the news with the whole coven.
 
 ![](06-14-18_10-54-40%C2%A0AM.png)
 
-"Healthy as can be!" Lilith smiled.
+"Healthy as can be!" Lilith smiled. "And due very soon."
 
 ![](06-14-18_10-55-13%C2%A0AM.png)
 

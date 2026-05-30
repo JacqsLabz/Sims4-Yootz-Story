@@ -1,10 +1,12 @@
-(this is in no paticular order... just some random sims being sims crap for at least some of it.)
+
+(this is in no particular order... just some random sims being sims crap for at least some of it.)
 
 ![](05-16-22_10-29-41%C2%A0PM.png)
 
 Emma tried eating bloodfruit salad for the first time since her pregnancy...
 
 ![](05-17-22_7-29-11%C2%A0AM.png)
+
 you're wearing snow boots..... srsly??
 
 ![](06-02-18_12-31-06%C2%A0PM.png)

@@ -43,7 +43,7 @@ and so did Anne.
 
 ![](05-23-18_7-33-37%C2%A0AM.png)
 
-Sometimes Sara would join the family dinners with a bloody mary made from blood fruit.
+Sometimes Sara would join the family dinners, with a Bloody Mary.
 
 ![](05-23-18_7-34-02%C2%A0AM.png)
 

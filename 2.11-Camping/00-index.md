@@ -44,6 +44,7 @@ Savanna grew up into a teenager.
 Sara leaned in close to Jane and whispered, "She can't be serious, let me handle this."
 
 ![](12-23-17_10-54-41%C2%A0PM.png)
+
 "Of course I'm serious!" Savanna yelled.
 
 "Well, hold on." Sara turned to her daughter. "Hear us out first."

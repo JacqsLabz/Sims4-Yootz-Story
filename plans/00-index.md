@@ -2,7 +2,7 @@ So I'm thinking:
 
 # Emma
 
-I like having Emma get in touch with more ghosts, maybe even becoming a witch. 
+I like having Emma get in touch with more ghosts and the afterlife. 
 
 # Anne
 

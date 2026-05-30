@@ -13,7 +13,7 @@ Who attacked her twin sister, Emma.
 
 ![](06-18-18_7-51-06%C2%A0PM.png)
 
-But Emma showed Savanna.
+But Emma, being a vampire, could handle herself. 
 
 ----
 
@@ -29,21 +29,17 @@ Emma took her own trip to another world.
 
 ![](06-19-18_4-57-40%C2%A0PM.png)
 
-"It was so weird." She told Anne about the experience.
-
-![](06-19-18_5-07-08%C2%A0PM.png)
-
-*'Is my stomach withering like Sara's and Anne's?'* Emma thought.
+"It was so weird." She told Anne about her experience. 
 
 ----
 
 ![](06-19-18_5-22-20%C2%A0PM.png)
 
-Say hi to Willson
+Say hi to Wilson 
 
 ![](06-19-18_5-22-43%C2%A0PM.png)
 
-and Pancakes, important members of the family, lol.
+and Pancakes, very important members of the family, lol.
 
 ----
 
@@ -51,11 +47,13 @@ and Pancakes, important members of the family, lol.
 
 Anne was up to her usual romantic pursuits. This time with Kaylie Vatore, daughter of Lilith Vatore and Alexander "Goth"
 
-*(Lilith bit Sara, Anne's mother, while she was pregnant with Anne. Alexander married and changed his last name, because why would the game keep things simple for me)*
+*(Lilith bit & changed Sara, Anne's mother, while she was pregnant with Anne. Alexander married and changed his last name, because why would the game keep things simple for me?)*
 
-![](06-19-18_8-53-41%C2%A0PM.png)
+Meanwhile, Emma didn't feel well sometimes. 
 
-Meanwhile, Emma still dealt with her body (especially her stomach) feeling off.
+![](06-19-18_5-07-08%C2%A0PM.png)
+
+*'Is my stomach withering like Sara's and Anne's?'* she wondered. 
 
 ![](06-19-18_8-59-43%C2%A0PM.png)
 
@@ -65,11 +63,11 @@ Anne called a family meeting.
 
 ![](06-19-18_10-03-19%C2%A0PM.png)
 
-"So I have some great news everyone, I'm pregnant again!" Anne said.
+"So I have some great news everyone, I'm pregnant again!" Anne told her family.
 
 ![](06-19-18_10-07-37%C2%A0PM.png)
 
-"I got an idea," Emma said, "How about we all go out to the cabin? It's so relaxing out there."
+"I got an idea," Emma smiled, "How about we all go out to the cabin? It's so relaxing out there."
 
 "That's sounds great." Anne said.
 
@@ -81,25 +79,19 @@ Anne called a family meeting.
 
 Emma still had waves of pain in her gut, but she didn't draw attention to it. *'Its just my stomach withering, Sara and Anne both got through this without it being a big deal, I can too.'* she told herself.
 
+Though she wasn't about to go out hunting like her mother and her sister. Emma decided to try her hand at making the drink her mother often had around them. 
+
 ![](06-19-18_10-18-19%C2%A0PM.png)
 
-To try to take it easy on her stomach, she changed her diet to a liquid one, though she wasn't about to go out and hunt like her mother and her sister.
+If she had to switch to a liquid diet, she would miss solid food, but it would be worth if it got her stomach to calm down.
 
 ![](06-19-18_10-19-48%C2%A0PM.png)
 
-Main Emma just wanted to feel better. She would miss solid food, but it would be worth if it got her stomach to calm down.
+*'No time like the present.'* Emma thought before taking her first sip of the drink. 
 
 ![](06-19-18_10-24-15%C2%A0PM.png)
 
-![](06-19-18_10-23-38%C2%A0PM.png)
-
-Meanwhile Anne had plenty of 'food' to choose from.
-
-![](06-19-18_10-26-14%C2%A0PM.png)
-
-![](06-19-18_10-26-26%C2%A0PM.png)
-
-Anne: "Hey death, guess what?"
+Anne of course easily found plenty to drink. 
 
 ----
 
@@ -117,15 +109,15 @@ One of the waves of pain crashed into Emma.
 
 "Hey, are you ok?" Anne asked.
 
-"Yeah," Emma tried to breath. "I think my stomach is withering."
+"Yeah," Emma tried to breath. "I'm fine, though I think my stomach is withering."
 
 ![](06-19-18_10-31-41%C2%A0PM.png)
 
-"Ah, yeah." Anne nodded. "I remember that feeling."
+"Ah, yeah." Anne nodded. "Mom told me about how it felt when she went through it."
 
 ![](06-19-18_10-34-59%C2%A0PM.png)
 
-"I know it hurts, but trust me it will be over before you know it."
+"I am so happy it wasn't painful for me. She said it was just awful." Anne shook her head. "I'm sorry you have to deal with that during our vaca."
 
 "Thanks." Emma smiled. 
 
@@ -155,9 +147,9 @@ Death made a noise, Emma wasn't sure if it was a sigh. "I am not here for you or
 
 "Another job?"
 
-"Yes, we're short on grimterns. So much so taht we've had to start posting openning one regular mortal job boards. If you ever need a job, reply to one. Given you history, you should be a natural at reaping souls."
+"Yes, we're short on grimterns. So much so that we've had to start posting opening one regular mortal job boards. If you ever need a job, reply to one. Given you history, you should be a natural at reaping souls."
 
-"Th-thanks." Emma raised an eye brow, "I'm fine right now."
+"Th-thanks." Emma raised an eye brow, "I'll keep that in mind."
 
 He nodded and floated away.
 

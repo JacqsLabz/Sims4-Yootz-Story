@@ -12,11 +12,11 @@ Sara Yootz, always the athletic hot-head;
 
 and Jane Witt, the creative soul.
 
-They lived together in Daisy Hovel as roommates, just trying to get by. As time passed, Sara found herself having feelings for Jane. She asked her friend at the gym, Don for some advice. He recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
+They lived together in Daisy Hovel as roommates, just trying to get by. As time passed, Sara found herself having feelings for Jane. She asked her friend at the gym, Don, for some advice. He recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
 
 ![](12-22-16_6-21-05%C2%A0PM.png)
 
-It definately surprised Jane, but
+It definitely surprised Jane, but
 
 ![](12-22-16_3-48-25%C2%A0PM.png)
 

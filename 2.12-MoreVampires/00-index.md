@@ -77,13 +77,13 @@ Emma got the chance to talk to Lilith and Don when they were all sitting at the 
 
 "It's actually not been painful for me." Emma admitted. 
 
-"Intreging, I've never head of that." Lilith said.
+"Intriguing, I've never head of that." Lilith said.
 
 "Really? How does it feel for you then?" Don asked.
 
 "It's hard to describe..." Emma paused, "Almost like when I ate the ambrosia."
 
-"You may have a physical body," Lilith said, "but you still have a connection with the other side of death, young one."
+"You may have a physical body," Lilith said, "but you still have a strong connection with the other side of death, young one."
 
 ----
 
@@ -139,6 +139,6 @@ Plus, Emma and Anne became best friends.
 
 ----
 
-I didn't get an pictures for it, but the father of Lilith's unborn child is Alexander Goth, married and changed his name to Alexander Bheeda (when he married Jayceon Bheeda, son of Arun Bheeda and Jesminder Bheeda). Lilith named her daughter Kaylie Vatore. And Kaylie comes up again later, in a while, when she's grown up a bit. 
+I didn't get an pictures for it, but Lilith's unborn child's father is Alexander Goth, married and changed his name to Alexander Bheeda (when he married Jayceon Bheeda, son of Arun Bheeda and Jesminder Bheeda). Lilith named her daughter Kaylie Vatore. And Kaylie comes up again later, in a while, when she's grown up a bit. 
 
 Look things got weird in this save. Vlad birthed a son with Morter Goth before Morter died, and I had NOTHING to do with that, ok? Yes I put in MC CC, but I didn't tell it to do that. 

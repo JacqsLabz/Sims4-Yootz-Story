@@ -108,7 +108,7 @@ Cute plating in tent
 
 ![](05-15-22_8-12-08%C2%A0PM.png)
 
-![](/05-15-22_8-08-44%C2%A0PM.png)
+![](05-15-22_8-08-44%C2%A0PM.png)
 
 Sara and Cassandra tried snow boarding. Cassie was a natural, Sara less so.
 

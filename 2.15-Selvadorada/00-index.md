@@ -85,7 +85,7 @@ and found more artifacts.
 
 Back at the rental house,
 
-![](/06-06-18_9-48-04%C2%A0AM.png)
+![](06-06-18_9-48-04%C2%A0AM.png)
 
 ![](06-06-18_10-12-56%C2%A0AM.png)
 
@@ -95,11 +95,11 @@ Sara made drinks for everyone.
 
 Then started to put some artifacts together.
 
-![](/06-06-18_8-43-28%C2%A0AM.png)
+![](06-06-18_8-43-28%C2%A0AM.png)
 
-![](/06-06-18_10-32-02%C2%A0AM.png)
+![](06-06-18_10-32-02%C2%A0AM.png)
 
-![](/06-06-18_10-32-32%C2%A0AM.png)
+![](06-06-18_10-32-32%C2%A0AM.png)
 
 "That thing makes me really uneasy." Jane said.
 
@@ -107,13 +107,13 @@ Then started to put some artifacts together.
 
 Back out on another adventure, they found the treasure room.
 
-![](/06-06-18_11-11-44%C2%A0AM.png)
+![](06-06-18_11-11-44%C2%A0AM.png)
 
-![](/06-06-18_11-11-59%C2%A0AM.png)
+![](06-06-18_11-11-59%C2%A0AM.png)
 
 Sara pushed at the box's heavy lid to get it open
 
-![](/06-06-18_11-12-48%C2%A0AM.png)
+![](06-06-18_11-12-48%C2%A0AM.png)
 
 Emma gasped, Jane screamed.
 
@@ -127,17 +127,17 @@ Emma gasped, Jane screamed.
 
 She screamed, and ran outside to the moonlight.
 
-![](/06-06-18_11-16-59%C2%A0AM.png)
+![](06-06-18_11-16-59%C2%A0AM.png)
 But the moonlit night air didn't do anything.
 
-![](/06-06-18_11-18-05%C2%A0AM.png)
+![](06-06-18_11-18-05%C2%A0AM.png)
 Sara tried to call on the dark powers of vampires, but still her hands were those of an animated skeleton instead of her own.
 
 ![](06-06-18_11-15-10%C2%A0AM.png)
 
 With her usual inhuman vampiric speed, Sara rushed back to her family. "I have an idea: I'm going back to the rental house. I'll be in the basement."
 
-![](/06-06-18_11-19-37%C2%A0AM.png)
+![](06-06-18_11-19-37%C2%A0AM.png)
 
 She got in the coffin in the basement, and went into vampiric hibernation, hoping it would heal her body.
 
