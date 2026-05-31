@@ -34,7 +34,7 @@ Or, Sara could know right away that aliens can implant some people. She's been a
 
 That could give Sara more knowledge about them, and say knowing that some are a danger to aliens? Idk, I really ought to solve the strangerville thing to know what's down there. If they kept to their roots, then the military hates/fears the aliens, but who knows?
 
-Maybe Sara remember enough from her travels in space & from what she saw when they took her to know where to find them? Or just because she wasn't compatiable? Or like the knockout drugs didn't work on her.
+Maybe Sara remember enough from her travels in space & from what she saw when they took her to know where to find them? Or just because she wasn't compatible? Or like the knockout drugs didn't work on her.
 
 All I know is I want to set this up soon. ~~And I might put Cassandra back to being mommy's little proper girl because she's probably going too? I'm not sure.~~ I like the idea of her being Sara's rough & tumble little one, and I like the idea of less sims in this freaking house. These's too many of them & the house is way too big & has too much stuff everywhere.
 
@@ -50,7 +50,7 @@ Eventually, Kaylie and Lilith insisted that they needed to talk, all of them. Ma
 
 Emma is like, "But..." and looks at Sara. 
 
-Sara nods at Emma. Then she sighs, "I don't want to say it, but maybe..." She took a deep breath to study herself, "but maybe we need to split up." She turned to Ann and Kaylee, "I guess technically your family is already split up, and has been this whole time. As much as we would love to have you move in here, there's already too many of us here. We are drawing too much attention to ourselves." 
+Sara nods at Emma. Then she sighs, "I don't want to say it, but maybe..." She took a deep breath to steady herself, "but maybe we need to split up." She turned to Anne and Kaylee, "I guess technically your family is already split up, and has been for quite some time now. As much as we would love to have you move in here, there's already too many of us here. We are drawing too much attention to ourselves." 
 
 Lilith, "The house next to ours in available, they can move there, in Forgotten Hollow. I've seen the inside, there's plenty of room for both of them and their two daughters." 
 
@@ -90,7 +90,7 @@ Maybe Sarah takes some time to think. Especially once Anne and her second daught
 
 "What do you mean?" Jane sat down. 
 
-"The safest place for Amne, Kaylie, and their two daughters is the Hollow. Lilith is right about that. I've been thinking about the safest place for Brenda, but I'm not sure it's on this planet." 
+"The safest place for Anne, Kaylie, and their two daughters is the Hollow. Lilith is right about that. I've been thinking about the safest place for Brenda, but I'm not sure it's on this planet." 
 
 "You mean..."
 
@@ -123,3 +123,19 @@ Everything however of course did not go so smoothly of course.
 Cassandra started exploring the woods anywhere she could, and ended up with a weird bite. Jane discovered magic, and decided it was a good way to still seem like a normal human, while being able to better protect Cassandra. Witches didn't hiss, or have weird diets after all. 
 
 Once she's a teen, Cassandra starts finding a rougher area to explore. She gets to know some people, and changes her hair & style to be very wild. Eventually getting a weird bite that turns out to be werewolf. 
+
+----
+
+No werewolves? Idk, I thought maybe vampires would be able to help since they're strong and powerful and could be left alone with a werewolf to help them get through losing control, but that's no officially in the game. 
+
+Though neither is a grown alien going home. 
+
+Idk, point is I'm going to have Lilith and Kaylie come over and tell Anne & Sara about Kaylie's daughter, and Anne is going to want to be with her other vampiric daughter. 
+
+And maybe Brenda is asking about "where's my other mom?" because Emma explained about how Kaylie is Clara's other mom. 
+
+----
+
+Since there's no way to have a vampire help a werewolf, I might have Cassandra go back to be all fancy and proper while also having embrace her love of nature so she ends up a fairy? Because that fancy & nature. 
+
+Honestly that's just not as fun. I could use pose mods to make it look like Sara physically restraints Cass as a teenage werewolf. Jane could become a fairy while seeking inspiring landscapes to paint for money to pay their bills. After Brenda move to another planet, Sara could get wrapped up in the strangerville mystery. 

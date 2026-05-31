@@ -82,7 +82,7 @@ Sara got more tips from Don, including protien shakes.
 
 ----
 
-Whenever Sara had the day off work and Jane had to work, Sara got in some extra workouts.
+Whenever Sara had the day off work and Jane didn't, Sara got in some extra workouts.
 
 ![](12-22-16_6-34-09%C2%A0PM.png)
 

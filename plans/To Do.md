@@ -1,0 +1,47 @@
+
+## Get game ready to edit save file
+- [ ] Go through mods, see if I need to remove any (probably google about each one, one by one?)
+- [ ] Back My Docs folder
+- [ ] Go through Tray stuff and delete
+- [ ] Back My Docs folder again
+- [ ] Fix "new" crap
+	- [x] Try "bb.showhiddenobjects true" 
+	- [ ] https://sims4.crinrict.com/eng/2020/01/manually-removing-new-highlights/ 
+- [ ] The festivals as holiday mod has HS pack stuff, either remove that stuff or add the pack? 
+- [ ] Clear localthumbcache.package (delete it)
+- [ ] Load the game without mods & check the attic (collectables)
+- [ ] Repair the game
+- [ ] Can sims4studio make saved rooms another category?
+
+## Fix the world
+- [ ] Save options: Gameplay, Environment, Pack settings (can't change until I can save)
+- [ ] Rename goth spawn so we can track the family name
+- [ ] Go through the favorite households, and the stories settings for favorites vs not favorites
+- [ ] Mark one daughter as can't have kids
+- [ ] Rename other Tanaka
+- [ ] Rename my sims (Sara, Jane, etc), and their clubs
+- [ ] Fix Keylie's traits, make them based on her parents' 
+- [ ] Make Kaylie as YA instead of T? Maybe, at least before she gets married to Anne
+- [ ] Emma better knows Grim
+- [ ] At least Sara meet Caleb & Vlad
+- [ ] Rank up at least Don (vampire rank)
+- [ ] Disable fame for most of the family (not Anne)
+- [ ] Set relationship preference at least for my sims
+- [ ] Holidays & seasons. Maybe make seasons 2wks long each? To give more time between holidays? And make sure to go through the holidays and sechedule the ones I want and such. Also, Clara's bday, maybe cancel it for now? 
+
+## Moving prep 
+- [ ] Protector house in Strangerville (might have to fetch from another save, the ReParenting one?)
+	- [ ] Save Brenda's bedroom to gallery so we can make her new room based on it
+- [ ] Maybe redo clubs? I'm thinking Anne not in Sarila's Coven (I mean Sara's Coven) so she can have the Yootz and 2 family clubs? Maybe? Idk if I want her to have a coven club of her own, or socialite club/s? 
+- [ ] Vet Clinic: Go there, check it out, see if bring anything with us, then take the money & sell it?
+- [ ] Collectables to a simple basement museum room? 
+
+
+# Storytellng 
+- [ ] https://wewantmods.com/how-to-use-poses-in-sims-4/
+- [ ] https://wildlyminiaturesandwich.blogspot.com/2017/05/bite-me-fangs-for-humans-aliens.html
+	- [ ] might be busted: https://forums.ea.com/discussions/the-sims-4-mods-and-custom-content-en/vampire-fangs-for-kids/2502165
+- [ ] 
+# Collectables
+- Starting Move to island - pencils ups with collectables in attic. Fireworks day (summer Wed)
+- Maybe fixing everyone - empty attic. Collectables on 2nf floor

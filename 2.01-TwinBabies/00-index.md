@@ -2,13 +2,13 @@ Giving birth to not one, but two baby girls left Sara weakened and tired. So at 
 
 One evening, Jane got both girls to sleep at the same time as Sara was outside swimming. Jane figured Sara was probably nearly done, so she went out to the front porch to see Sara struggling to pull herself up out of the water. Jane called out, "Hey there you." Jane made her way down towards the pool. "How you holding up?"
 
-Sara shrugged as she started walking towards her wife, "I'm ok I guess? Still exhausted, feels like I can hardly move sometimes. My body just isn't capable of anything impressive." She sighed and frowned as she walked.
+Sara shrugged as she started walking towards her wife, "I'm ok I guess? Still exhausted, feels like I can hardly move sometimes. My body just isn't capable of much of anything." She sighed and frowned as she walked.
 
 "Sara," Jane met her half way, and took Sara's hands in her own, "don't be so hard on yourself. You have achieved a great, enormous physical feat."
 
 ![](12-23-16_5-09-12%C2%A0PM.png)
 
-Sara tilted her head to one side just a little. "I did?" Sara didn't follow, Jane couldn't mean her swimming.
+Sara tilted her head to one side just a little. "What are you talking about?" Sara didn't follow, Jane couldn't mean her swimming.
 
 "Of course, silly. You made not just one life, but two. Two beautiful baby girls." Jane hugged her close. "I can't tell you how happy I am that we have a family of our own; I admire how strong you are. And, of course you need time to heal right now." 
 

@@ -49,7 +49,7 @@ Anne was up to her usual romantic pursuits. This time with Kaylie Vatore, daught
 
 *(Lilith bit & changed Sara, Anne's mother, while she was pregnant with Anne. Alexander married and changed his last name, because why would the game keep things simple for me?)*
 
-Meanwhile, Emma didn't feel well sometimes. 
+Meanwhile, Emma started to not feel well sometimes. 
 
 ![](06-19-18_5-07-08%C2%A0PM.png)
 

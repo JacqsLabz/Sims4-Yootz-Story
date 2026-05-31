@@ -1,7 +1,7 @@
 
 ![](05-25-22_8-36-22%C2%A0PM.png)
 
-One afternoon, Anne was watching Clara when she noticed had a number of missed calls from Kaylie.  
+One afternoon, Anne was watching Clara when she noticed had some missed calls from Kaylie, and decided to give her a call. It past time Kaylie knew about Clara. 
 
 ![](05-25-22_8-40-07%C2%A0PM.png)
 

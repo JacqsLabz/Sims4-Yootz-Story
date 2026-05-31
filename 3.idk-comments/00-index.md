@@ -3,7 +3,7 @@
 
 ![](05-16-22_10-29-41%C2%A0PM.png)
 
-Emma tried eating bloodfruit salad for the first time since her pregnancy...
+Emma tried eating blood fruit salad for the first time since her pregnancy...
 
 ![](05-17-22_7-29-11%C2%A0AM.png)
 
