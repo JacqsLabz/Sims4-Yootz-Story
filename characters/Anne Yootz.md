@@ -4,3 +4,4 @@
 - Maybe she'll pursue fame?
 - Toddler trait Charmer
 
+# Notes
