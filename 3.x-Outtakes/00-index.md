@@ -53,4 +53,5 @@ Emma, what prompted this "fuck it, I'm done with every one of you fuckers" momen
 I told Sara to ride the jet ski.
 
 ![](05-06-22_2-23-56%C2%A0PM.png)![](05-06-22_2-25-02%C2%A0PM.png)![](05-06-22_2-26-05%C2%A0PM.png)
+
 She decide clothes were over rated all by herself.
