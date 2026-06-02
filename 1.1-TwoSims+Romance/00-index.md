@@ -2,11 +2,7 @@ This story begins way back in 2016, with two roommate sims when their friendship
 
 ![](05-22-22_1-48-25%C2%A0AM.png)
 
-<!-- ![](05-21-22_8-24-46%C2%A0AM.png) -->
-
 Sara Yootz, always the athletic hot-head;
-
-<!-- ![](05-21-22_8-27-15%C2%A0AM.png) -->
 
 ![](05-22-22_1-46-29%C2%A0AM.png)
 
@@ -270,7 +266,7 @@ To the point that swimming was just about the only form of exercise she could do
 
 ![](12-22-16_7-55-34%C2%A0PM.png)
 
-But Jane helped her through it.
+But Jane (and Don) helped her through it.
 
 ----
 
