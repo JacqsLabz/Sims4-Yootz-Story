@@ -244,16 +244,6 @@ Sara sat with her. "Good, it really helps to move my body around a little, just 
 
 ![](12-22-16_7-18-39%C2%A0PM.png)
 
-<!-- ----
-
-![](12-22-16_7-08-48%C2%A0PM.png)
-
-The neasuea was still presistent,
-
-![](12-22-16_7-21-14%C2%A0PM.png)
-
-But Sara tried her best to eat what she could for the sake of both herself and the baby.  -->
-
 ----
 
 ![](12-22-16_7-45-04%C2%A0PM.png)
