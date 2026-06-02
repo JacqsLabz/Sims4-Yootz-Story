@@ -49,7 +49,7 @@ Sara leaned in close to Jane and whispered, "She can't be serious, let me handle
 
 "Well, hold on." Sara turned to her daughter. "Hear us out first."
 
-Jane and Sara made their case to Savanna about why she shouldn't move out as a teenage, which they both thought was a pretty convincing case.
+Jane and Sara made their case to Savanna about why she shouldn't move out as a teenager.
 
 ![](12-23-17_11-00-06%C2%A0PM.png)
 

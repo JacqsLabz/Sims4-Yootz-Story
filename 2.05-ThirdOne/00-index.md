@@ -27,7 +27,7 @@ Lilith came over visit from time to time.
 
 ![](12-12-17_9-21-09%C2%A0PM.png)
 
-She used her vampire power to sense how Sara and her pregnancy were going. Something about Lilith saying the pregnancy was going well helped Sara. "Make sure to have a stash of blood bags ready, it'll help." Lilith recommended. 
+She used her vampire power to sense how Sara and her pregnancy were going. Hearing Lilith say the pregnancy was going well helped Sara. "Make sure to have a stash of blood bags ready, it'll help." Lilith recommended. 
 
 ----
 

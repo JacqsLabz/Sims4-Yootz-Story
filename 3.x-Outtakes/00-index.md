@@ -16,6 +16,16 @@ but Sara would absolutely be able to lift Emma, no issue. Though the really funn
 
 ----
 
+![](06-19-18_5-22-20%C2%A0PM.png)
+
+Say hi to Wilson 
+
+![](06-19-18_5-22-43%C2%A0PM.png)
+
+and Pancakes, very important members of the family, lol.
+
+----
+
 ![](05-25-22_8-41-54%C2%A0PM.png)
 
 Yeah, that figures. You comfortable down there?

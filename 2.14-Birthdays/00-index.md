@@ -45,7 +45,7 @@ They threw a birthday party for Emma.
 
 ![](05-30-18_7-40-13%C2%A0PM.png)
 
-"That one's a strong kicker! Congratulations!" She smiled.
+"Healthy as can be, and a strong kicker! Congratulations!" She smiled.
 
 "Thank you so much."
 

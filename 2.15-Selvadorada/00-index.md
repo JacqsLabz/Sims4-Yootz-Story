@@ -1,7 +1,7 @@
 
-![](06-03-18_6-38-23%C2%A0AM.png)
+%% ![](06-03-18_6-38-23%C2%A0AM.png) %%
 
-Sara's knack for fixing things around the house eventually grew to building a rocket ship in the basement, and many trips to space.
+%% Sara's knack for fixing things around the house eventually grew to building a rocket ship in the basement, and many trips to space. %%
 
 ----
 
@@ -170,3 +170,5 @@ They found some more treasure.
 ![](06-06-18_2-13-55%C2%A0PM.png)
 
 Went they got back, everyone was happy to be safely back home.
+
+%% Last screenshot in the Daisy Hovel house? %%

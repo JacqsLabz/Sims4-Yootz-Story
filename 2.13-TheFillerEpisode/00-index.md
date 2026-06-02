@@ -49,11 +49,11 @@ Sometimes Sara would join the family dinners, with a Bloody Mary.
 
 ----
 
-There were two others that asked Sara for the bite.
+There were two others that asked Sara for the turning bite.
 
 ![](05-23-18_1-36-12%C2%A0PM.png)
 
-"Hey guys! Come meet the new requit!" Sara called.
+"Hey guys! Come meet the new requrit!" Sara called.
 
 ![](05-23-18_2-06-51%C2%A0PM.png)
 

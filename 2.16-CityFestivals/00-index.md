@@ -53,7 +53,7 @@ Sara got her back though.
 
 Being out in the sun meant Jane needed to be very careful to not have the sun burn away all her dark energy.
 
-Emma found it odd that the sun didn't affect her, but Lilith had said it was her connection to the afterlife. Apparently being a former ghost had some perks. 
+Emma found it odd that the sun didn't affect her. Lilith had said Emma still had a connection to the afterlife. Apparently being a former ghost had some perks. 
 
 Anne and Sara were both immune to the sunlight, a side effect of their unusual joint transformation. 
 

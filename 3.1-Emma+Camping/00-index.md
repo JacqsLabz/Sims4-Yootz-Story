@@ -33,16 +33,6 @@ Emma took her own trip to another world.
 
 ----
 
-![](06-19-18_5-22-20%C2%A0PM.png)
-
-Say hi to Wilson 
-
-![](06-19-18_5-22-43%C2%A0PM.png)
-
-and Pancakes, very important members of the family, lol.
-
-----
-
 ![](06-19-18_8-31-17%C2%A0PM.png)
 
 Anne was up to her usual romantic pursuits. This time with Kaylie Vatore, daughter of Lilith Vatore and Alexander "Goth"
@@ -71,7 +61,9 @@ Anne called a family meeting.
 
 "That's sounds great." Anne said.
 
-"Yeah, just like when you were two were young." Sara agreed, thinking about Cassandra.
+"Yeah, just like when you were two were young." Sara agreed, "What you think Cassandra, ready to be outside?" 
+
+"We are not staying in a tent, I will make all the arrangements. "
 
 ----
 
@@ -79,7 +71,7 @@ Anne called a family meeting.
 
 Emma still had waves of pain in her gut, but she didn't draw attention to it. *'Its just my stomach withering, Sara and Anne both got through this without it being a big deal, I can too.'* she told herself.
 
-Though she wasn't about to go out hunting like her mother and her sister. Emma decided to try her hand at making the drink her mother often had around them. 
+Though she wasn't about to go out hunting like her mother and her younger sister. Emma decided to try her hand at making the drink her mother often had. 
 
 ![](06-19-18_10-18-19%C2%A0PM.png)
 
@@ -149,7 +141,7 @@ Death made a noise, Emma wasn't sure if it was a sigh. "I am not here for you or
 
 "Yes, we're short on grimterns. So much so that we've had to start posting opening one regular mortal job boards. If you ever need a job, reply to one. Given you history, you should be a natural at reaping souls."
 
-"Th-thanks." Emma raised an eye brow, "I'll keep that in mind."
+"Th-thanks." Emma raised an eye brow, "I'll keep that in mind if I'm ever in the market for a job."
 
 He nodded and floated away.
 

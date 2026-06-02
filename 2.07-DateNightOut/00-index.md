@@ -83,7 +83,7 @@ She sighed and looked down. "You're completely right. I'm just so scared. This f
 
 ![](12-19-17_10-54-45%C2%A0PM.png)
 
-"Come here." Sara caressed Jane's cheek again. In that moment, she knew what Lilith had meant about wanting the gift of the bite. It was faint, but Sara could sense it: Jane did want to turn. 
+"Come here." Sara caressed Jane's cheek again. In that moment, she knew what Lilith had meant about wanting the gift of the bite. It was faint, but Sara could sense it: Jane did want to turn, or at least the immortality from it.
 
 ![](12-19-17_10-55-07%C2%A0PM.png)
 

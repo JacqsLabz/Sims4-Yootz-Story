@@ -45,6 +45,7 @@ Jane waited for the feeling to pass, then went back to enjoying the meal as they
 Jane finished the first then asked for seconds.
 
 ----
+
 ![](12-20-17_8-23-25%C2%A0AM.png)
 
 Though she got full half way through it. "Yeah, I think I'm done eating for now. Sorry."
@@ -68,7 +69,7 @@ When it came time to eat at the party, Jane decided she wasn't hungry
 
 ![](12-20-17_8-40-17%C2%A0AM.png)
 
-"Can you turn other people into vampire? Is that a thing you can do?"
+"Can you turn other people into vampire? Is that a thing?"
 
 Sara raised an eyebrow, "Really? Are you sure you want that?"
 
@@ -78,7 +79,7 @@ Sara nodded, back up a little, and channeled the dark energy of the vampires.
 
 ![](12-20-17_6-00-18%C2%A0PM.png)
 
-As the power filled her, Sara could feel it again, stronger this time: this was what Don truly wanted. But just like with Jane, she would make sure he knew that, by making him come for it willingly. 
+As the power filled her, Sara could feel it again, so much stronger this time: this was what Don truly wanted. But just like with Jane, she would make sure he knew that, by making him come for it willingly. 
 
 ![](12-20-17_6-02-32%C2%A0PM.png)
 
@@ -106,9 +107,9 @@ After he drank, Sara released the dark energy and switched forms.
 
 ----
 
-They were hanging out their house with some friends over a few days later, when… 
-
 ![](12-20-17_6-09-40%C2%A0PM.png)
+
+They were hanging out their house with some friends over a few days later, when… 
 
 ![](12-20-17_7-48-11%C2%A0PM.png)
 

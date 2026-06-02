@@ -45,11 +45,9 @@ Everyone together
 
 ----
 
-Back home
+<!-- %% ![](06-28-18_1-07-41%C2%A0PM.png) %% -->
 
-![](06-28-18_1-07-41%C2%A0PM.png)
-
-Cassandra's b-day
+Back home, Cassandra grew up into a child. 
 
 ![](10-14-18_12-50-53%C2%A0AM.png)
 
@@ -70,9 +68,9 @@ Helping Cass with school project
 Sara & Jane
 
 ![](08-31-20_7-40-53%C2%A0AM.png)
-
+Cass & Clara, sisters
 ![](05-06-22_5-37-06%C2%A0AM.png)
-
+Brenda & Emma, daughter & mother
 ![](05-06-22_12-12-19%C2%A0PM.png)
 
 Toddler spam
@@ -98,19 +96,29 @@ Island Date (Sara & Jane)
 ![](05-06-22_2-55-02%C2%A0PM.png)
 Cute plating in tent
 
+----
+
+The family took a short trip to a snowy mountain. 
+
 ![](05-15-22_7-42-04%C2%A0PM.png)
+
+Sara was the only one that has trouble with the vending machine. 
 
 ![](05-15-22_7-51-44%C2%A0PM.png)
 
-![](05-15-22_8-04-46%C2%A0PM.png)
+Sara got Cass the gift of...
 
-![](05-15-22_8-08-27%C2%A0PM.png)
+![](05-15-22_8-04-46%C2%A0PM.png)
 
 ![](05-15-22_8-12-08%C2%A0PM.png)
 
+... a snowboard! 
+
+![](05-15-22_8-08-27%C2%A0PM.png)
+
 ![](05-15-22_8-08-44%C2%A0PM.png)
 
-Sara and Cassandra tried snow boarding. Cassie was a natural, Sara less so.
+Cass was a natural at it, Sara less so. Sure Cass had issues with her balance, but Sara fell every time her first few times. 
 
 ![](05-16-22_10-11-12%C2%A0PM.png)
 

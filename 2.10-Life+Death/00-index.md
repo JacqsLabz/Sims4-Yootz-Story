@@ -3,7 +3,7 @@ Sara wasn't sure she could bring back Emma, but she had to try. She had seen the
 
 ![](12-21-17_4-15-54%C2%A0PM.png)
 
-First she needed a fish. So Sara started learning how to fish near their home. 
+First she needed a fish. So Sara started learning how to catch them near their home. 
 
 ----
 

@@ -74,15 +74,6 @@ I did nothing to cause this......
 ![](06-19-18_10-12-30%C2%A0PM.png)
 So we have: Anne's morning sickness, Sara being lost, Jane still not accpeting being a vampire, Cassandra hella confused, and Emma crying. Yap. This family is great on vaca.
 
-![](06-19-18_10-14-06%C2%A0PM.png)
-Emma has stomach issues, and worries that she's not going to be able to eat food here soon, like her sister and Sara.
-
-![](06-19-18_10-18-19%C2%A0PM.png)
-Too scared to find out rather she can still eat solid food and not willing to bite humans, Emma turns to liquid-fied blood fruit.
-
-![](06-19-18_10-19-48%C2%A0PM.png)
-Because one way or the other, her thirst demands to be fed.
-
 ![](06-19-18_10-23-38%C2%A0PM.png)
 Well hello there death
 
@@ -98,40 +89,14 @@ Death is excited about new life, or unlife? This one should be a vampire.
 ![](06-19-18_10-29-57%C2%A0PM.png)
 Emma cares WAY too much about card games, lol.
 
-![](06-19-18_10-31-41%C2%A0PM.png)
-Over cards and alone on the deck, Emma confides in her sister Anne about her stomach and fears. Anne reassures her about it.
-
 ![](06-19-18_10-34-22%C2%A0PM.png)
 lol, their faces. Anne: omg, could she be more annoying?
 
-![](06-19-18_10-34-59%C2%A0PM.png)
-Anne: I promise, it's not as bad as you're making it out to be. No where near as bad. I'm sure you'll be fine.
-
-![](06-19-18_10-36-22%C2%A0PM.png)
-Anne: I know you'll be fine, either way.
-Emma: Well that makes one of us.
-
-![](06-19-18_10-40-14%C2%A0PM.png)
-Sara joined them, as reassured Emma too. Anne's morning sickness acted up a little, but it wasn't a real issue.
-
-![](06-19-18_11-38-02%C2%A0PM.png)
-Emma's stomach continued to act weird while she put on a bit of weight.
-
 ![](06-19-18_11-42-08%C2%A0PM.png)
-"This can't be a vampirism!"
 
-![](06-19-18_11-49-00%C2%A0PM.png)
-Out on a hike, she noticed the Grim Reaper fishing.
 
 ![](06-19-18_11-49-42%C2%A0PM.png)
 Old friends you could say....
-
-<!-- delete: ![](06-19-18_11-51-57%C2%A0PM.png) -->
-![](06-19-18_11-52-12%C2%A0PM.png)
-"I'm not coming up on your list again any time soon, right?"
-
-![](06-19-18_11-57-25%C2%A0PM.png)
-Knowing she didn't near death, Emma went hiking to clear her mind. Her body was changing yet again, how she wasn't totally sure.
 
 ![](06-19-18_5-22-20%C2%A0PM.png)
 Wilson
@@ -147,9 +112,6 @@ I'll take them all! (then figure out which ones I don't have later at home)
 
 ![](06-19-18_8-59-43%C2%A0PM.png)
 Dance Off!
-
-![](06-20-18_10-48-57%C2%A0AM.png)
-Emma: Can you check on my baby again?
 
 ![](06-20-18_11-11-30%C2%A0PM.png)
 I have no words. No words. You better not come back knocked up.....
@@ -170,38 +132,8 @@ She inhaled deeply of the fresh outdoor air
 Whatever change awaited her, Emma knew she would figure it out.
 
 ![](06-20-18_12-14-34%C2%A0AM.png)
-Besides, she had her family. And lord knew they would never change.
-
-![](06-20-18_12-23-26%C2%A0AM.png)
-Sara: "I still remember when I found out I was pregnant with you."
-
-![](06-20-18_12-25-45%C2%A0AM.png)
-Emma: "You really think I'm pregnant?"
-
-![](06-20-18_12-26-17%C2%A0AM.png)
-Emma: "That's a lot to take in. But how?" Anna: "It certainly would make sense."
-
-![](06-20-18_12-27-07%C2%A0AM.png)
-"I'm going to be a mother?!?"
-
-![](06-20-18_12-28-25%C2%A0AM.png)
-Emma: "What do you think?"
-
-![](06-20-18_12-29-16%C2%A0AM.png)
-Sara: "That's a kick!"
-
-![](06-20-18_12-33-50%C2%A0AM.png)
-Emma: "It must of have been the aliens!"
-
-![](06-20-18_12-38-47%C2%A0AM.png)
-Jane: "Sarila's right, that feels like you're going to have a little one of your own."
-
-![](06-20-18_7-14-15%C2%A0PM.png)
-Emma: "You're sure it's supposed to hurt this much?"
-Sara: "Yeah, it does."
-
-![](06-20-18_7-15-40%C2%A0PM.png)
-Sara: "You're doing great Emma."
+Besides, she had her family. And heck knows they would never change.  
 
 ![](06-20-18_7-20-11%C2%A0PM.png)
-Sarila: "You'll be ok, just breath honey."
+
+

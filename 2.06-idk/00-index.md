@@ -23,7 +23,7 @@ Though Jane still didn't want the girls to see Sara feed, she worried it would s
 
 ![](12-14-17_10-44-15%C2%A0PM.png)
 
-"You know, I never thought to ask her that. Yeah, that sounds great. They live out in Forgotten Hollow."
+"You know, I never thought to ask. Yeah, that sounds great. They live out in Forgotten Hollow."
 
 ----
 

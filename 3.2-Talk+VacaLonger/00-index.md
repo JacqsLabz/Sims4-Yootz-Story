@@ -3,7 +3,7 @@
 
 The four vampires all sat at the table together for "breakfast"
 
-Sara started telling everyone a story. 
+Sara finished telling everyone a story. 
 
 ![[06-20-18_12-22-16 AM.png]]
 

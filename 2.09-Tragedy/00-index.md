@@ -41,7 +41,7 @@ Jane & Sara enjoyed their romantic nights together.
 
 ![](12-20-17_11-49-27%C2%A0PM.png)
 
-And the occational night out with their coven.
+And the occational night out with their vampire coven.
 
 ----
 
@@ -71,6 +71,6 @@ That is until, "I think I have an idea... I think we can get her back." Sara fel
 
 "Sara, this is hard enough without talk like that... please.. I think I need to be alone."
 
-While they were both vampires, Sara was far more attuned to their dark power, to death itself. Whereas Jane could barely channel any darkness at all, and had never truly embraced it, preferring to be more like a human. 
+While they were both vampires, Sara was far more attuned to their dark power, and to things like death itself. Whereas Jane could barely channel any darkness at all, and had never truly embraced it, preferring to be more like a human. 
 
 Sara knew Jane wasn't as in touch with the moral vale, she could feel it. So, she did as Jane asked, and left her to sort her emotions out by herself. 

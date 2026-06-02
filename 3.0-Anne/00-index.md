@@ -33,9 +33,11 @@ Proving her place among other vampire and the members of her mother's coven.
 
 ![](06-12-18_4-53-37%C2%A0PM.png)
 
-"Hey mom," Anne held her stomach, "I've been avoiding solid food like you said, but here recently-" she burped then swallowed, "Oh, excuse me... here recently... what else can make vampires feel queasy? Because that same sort of nauseous feeling has started to come back."
+"Hey mom," Anne held her stomach, "I've not had any solid food, but here recently-" she burped then swallowed, "Oh, excuse me... here recently... what else can make vampires feel queasy? Because that same sort of nauseous feeling has started to come back."
 
-Sara turned to face her, "Well, as far as I know, just pregnancy. But if you wait long enough, there's a test you can take to check."
+Sara turned to face her, "Well, as far as I know, just pregnancy. If you wait a little while, there's a test you can take to check."
+
+%% First screenshot in the new manor? Honestly not sure. %%
 
 ![](06-12-18_5-15-37%C2%A0PM.png)
 
@@ -43,7 +45,7 @@ Anne had more fun as she waited for a little time to pass.
 
 ![](06-12-18_5-18-49%C2%A0PM.png)
 
-And positive was her result.
+And positive was her test result.
 
 ![](06-12-18_5-28-43%C2%A0PM.png)
 

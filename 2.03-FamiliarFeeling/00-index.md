@@ -90,7 +90,7 @@ Sara was fairly sure pancakes tasted even worse than fruit had.
 
 ![](12-12-17_5-10-05%C2%A0PM.png)
 
-Sara quickly found herself to taking occasional day-time naps on their couch, because her stomach bothered her so much through the night that often kept her awake for most of the night. If anything, her gut seemed calmer during the day, except when she tried to eat. 
+Sara quickly found herself to taking day-time naps on their couch, because her stomach was so upset at night that it often kept her awake for most of the night. Generally speaking, her gut was calmer during the day, except when she tried to eat. 
 
 ![](12-12-17_5-12-20%C2%A0PM.png)
 

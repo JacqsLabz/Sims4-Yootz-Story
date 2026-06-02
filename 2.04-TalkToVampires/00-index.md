@@ -34,7 +34,7 @@ When she opened them, she turned to see Lilith in one of the armchairs. She took
 
 "Wanted what?" Sara just wanted to know what they did to her, and how to fix her rioting gut. 
 
-Lilith let her fangs show. "The bite, the turning bite. My biting you was no fake or performance; my brother and I, we are both vampires. As you yourself now are." 
+Lilith let her fangs show. "The turning bite. My biting you was no fake or performance; my brother and I, we are both vampires. As you yourself now are." 
 
 Sara couldn't… "How could I want something like that, vampires aren't..." She couldn't bring herself to say it. Sara swallowed, she felt as though she had been punched in the gut. Hard. 
 
@@ -84,7 +84,7 @@ Sara waited for Lilith to continue; *most* implied *not all*.
 
 "But there have been a few turned vampires that eventually become more like born vampire, after a few centuries. Born vampire are much like human children when they are young, but most find that as they physically mature their stomach withers. They lose the ability to digest what human live on." Lilith paused, "You have such an affinity for the dark power... and you've been pregnant through at least most of your transformation, correct?"
 
-"Maybe... I guess?" Sara's reply was uneasy. She didn't actually know when each had started, but it somehow felt like it fit. 
+"Maybe... I guess?" Sara's reply was uneasy. She didn't actually know when each had started, but somehow she felt yes was the right answer. 
 
 Lilith nodded, "It could be that going through the change together has made you like a born vampire, at least in some ways. If so, your insides may have withered."
 
