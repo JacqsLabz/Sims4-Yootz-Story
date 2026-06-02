@@ -38,9 +38,9 @@ Lilith let her fangs show. "The bite, the turning bite. My biting you was no fak
 
 Sara couldn't… "How could I want something like that, vampires aren't..." She couldn't bring herself to say it. Sara swallowed, she felt as though she had been punched in the gut. Hard. 
 
-"Something drew your soul to darkness, to the dark power of vampires." Lilith stood, and stepped closer to Sara. 
+"Something drew your soul to darkness, to the dark power and strength of vampires." Lilith stood, and stepped closer to Sara. 
 
-Sara's head hurt, as her thoughts raced too fast to be words. Her hand went to her stomach. Her pregnant belly, as the very slight bulge there reminded her. 
+Sara's head hurt, as her thoughts raced too fast to be words. Her hand went to her stomach. Her pregnant belly, as the bulge there reminded her. 
 
 ![](12-12-17_6-53-52%C2%A0PM.png)
 
@@ -48,7 +48,7 @@ Lilith continued, "Have you been able to connect with the darkness yet? Since yo
 
 ![](12-12-17_6-53-20%C2%A0PM.png)
 
-Sara's stomach churned with her conflicting mixture of emotions. She moaned as one thought stood out above the racing haze of confuyin her mind: she was about to lose the fight with her gut. "I'm going to be sick, do you even have a toilet?" she managed to get out. 
+Sara's stomach churned with her conflicting mixture of emotions. She moaned as one thought stood out above the racing haze of confusion her mind: she was about to lose the fight with her gut. "I'm going to be sick, do you even have a toilet?" she managed to get out. 
 
 "Yes, that way." Lilith pointed.
 
