@@ -3,8 +3,8 @@ canvas:
   - "[[Plotting.canvas]]"
 Plotting:
   - "[Strangerville](Sims4-Yootz-Story/spoilers/Strangerville.md)"
-  - "[Ravenwood Mansion](Sims4-Yootz-Story/spoilers/Ravenwood%20Mansion.md)"
   - "[In Nature](Sims4-Yootz-Story/spoilers/In%20Nature.md)"
+  - "[Ravenwood Mansion](Sims4-Yootz-Story/spoilers/Ravenwood%20Mansion.md)"
 ---
 Anne brings up her & Clara moving to Ravenwood, and having that be the family's new "home base" so therefore be a large house. 
 
