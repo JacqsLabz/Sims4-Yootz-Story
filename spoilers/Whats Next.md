@@ -2,7 +2,7 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Virus](Virus.md)"
+  - "[Virus](Sims4-Yootz-Story/spoilers/Virus.md)"
 ---
 While Sara and Emma are happy that Brenda is safe and learning about her people, culture, and heritage, they are also sad that Brenda isn't around and they can't just go see her. Maybe they don't know if they'll ever see her again? 
 

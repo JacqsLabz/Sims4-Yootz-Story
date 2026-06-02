@@ -2,7 +2,7 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Splitting](Splitting.md)"
+  - "[Splitting](Sims4-Yootz-Story/spoilers/Splitting.md)"
 ---
 Anne discovers Clara's fangs, tells other adults. They discuss splitting up for the good of the kids. 
 

@@ -2,7 +2,7 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Whats Next](Whats%20Next.md)"
+  - "[Whats Next](Sims4-Yootz-Story/spoilers/Whats%20Next.md)"
 ---
 They get the rocket built.
 

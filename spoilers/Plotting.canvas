@@ -1,6 +1,6 @@
 {
 	"nodes":[
-		{"id":"c221ebe477f1adc0","x":5185,"y":1240,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/spoilers/Adult.md"},
+		{"id":"c221ebe477f1adc0","type":"file","file":"Sims4-Yootz-Story/spoilers/Adult.md","x":5185,"y":1240,"width":400,"height":400},
 		{"id":"746de11932cb12be","type":"file","file":"Sims4-Yootz-Story/spoilers/Cass Teen.md","x":1465,"y":-211,"width":400,"height":400},
 		{"id":"34761f8851ea83a5","type":"file","file":"Sims4-Yootz-Story/spoilers/Splitting.md","x":280,"y":-680,"width":400,"height":400},
 		{"id":"df22afa3c9387479","type":"file","file":"Sims4-Yootz-Story/spoilers/Distant Family.md","x":-287,"y":-680,"width":400,"height":400},
@@ -47,12 +47,11 @@
 		{"id":"32ce31d4487edbc3","type":"text","text":"","x":8840,"y":-211,"width":400,"height":400},
 		{"id":"646b37c439be0cf7","type":"text","text":"Possibly after the full moon, because I'm thinking that even the fairy can't stop her from transforming during the full moon. The wolf might be especially violent that full moon after basically being bottled up for a little while, but I'm thinking she comes away from that transformation even less in favor of the draining. Maybe she doesn't have words for it, but on some level she can feel what the wolf wants.","x":6320,"y":366,"width":440,"height":234},
 		{"id":"10ff221b8c2e7df6","type":"text","text":"In general I think the head of the family will be receptive to what the teenager is saying, because she can sense and feel that wolf magic. I guess I'm picturing the teenager especially after the full moon transformation and when she wants it to just let it happen, it's less that she's angry it's less that she's pissed, it's more just that she's exhausted. She's worn down. She has high school which is its own barrel of monkeys for anyone. And she has this schedule she has to adhere to with being drained, and keeping a schedule can be hard. Again kind of like someone on dialysis like even if you had a dialysis machine in your house, it's still like a whole thing it takes spoons. It takes mental energy, it doesn't just take care of itself. And she also has that violent puppy inside her. Like she isn't becoming just this really angry person, but the puppy is pushing for anger, so she is pushing back. Not to mention like she's a werewolf so she has some wolf instincts and she has a heightened sense of smell and she has to act normal. Because again she's going to school and that kind of thing so at least for part of the day she has to pretend like she can't smell half the stuff that she smells. And not do things like growl at her classmates because that's weird. I guess to me it just feels more like she's just getting worn down. And even though when she transforms during the full moon and the Wolf is extra violent, even if she physically feels worse emotionally she doesn't. Emotionally she feels more okay, and again she probably doesn't have words for it but she can feel that the wolf feels different now, letting it out changed the texture of it. And since the vampire can sense the wolf magic and feel it, she'll feel the change in it as well. I mean, she'll be the one the wolf is fighting for at least part of it. Her friend will probably get involved too, take over for a little while or something like that, but she'll be able to feel and sense things that at least the fairy can't and therefore understand things a bit better even when teenager doesn't have words. ","x":7840,"y":-880,"width":480,"height":460},
-		{"id":"f8cc27e0e2fbc3e7","x":4720,"y":1240,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/spoilers/Cure.md"}
+		{"id":"f8cc27e0e2fbc3e7","type":"file","file":"Sims4-Yootz-Story/spoilers/Cure.md","x":4720,"y":1240,"width":400,"height":400}
 	],
 	"edges":[
 		{"id":"8f52886b77e44b80","fromNode":"df22afa3c9387479","fromSide":"right","toNode":"34761f8851ea83a5","toSide":"left"},
 		{"id":"d4f18fb438a8ae92","fromNode":"34761f8851ea83a5","fromSide":"right","toNode":"3307c3a84b857558","toSide":"left"},
-		{"id":"849c0f6d85caa93a","fromNode":"34761f8851ea83a5","fromSide":"right","toNode":"2a51c1f4b892cd44","toSide":"left"},
 		{"id":"83d238e99853538b","fromNode":"34761f8851ea83a5","fromSide":"right","toNode":"a19a4c638bb8afc8","toSide":"left"},
 		{"id":"6de7eb8ddb37487b","fromNode":"3307c3a84b857558","fromSide":"right","toNode":"1ee8600d0e7dfc9b","toSide":"left"},
 		{"id":"6321a26b8af74adc","fromNode":"a19a4c638bb8afc8","fromSide":"right","toNode":"746de11932cb12be","toSide":"left"},
@@ -64,8 +63,9 @@
 		{"id":"e36d54348a3466a5","fromNode":"71b4761f2c73997b","fromSide":"right","toNode":"fcce1015b96aae7e","toSide":"left"},
 		{"id":"084a07713f6652a4","fromNode":"720d42ba9f6ae2a8","fromSide":"right","toNode":"b4e8f722e41d9275","toSide":"left"},
 		{"id":"421fa3879d12832e","fromNode":"720d42ba9f6ae2a8","fromSide":"right","toNode":"43b415711aa32fbe","toSide":"left"},
-		{"id":"2dc6a73f14e71abc","fromNode":"7f78f173f27d2014","fromSide":"right","toNode":"9bc8eb387a24c5d8","toSide":"left"},
-		{"id":"332843f562eb06f9","fromNode":"fcce1015b96aae7e","fromSide":"right","toNode":"9bc8eb387a24c5d8","toSide":"left"},
-		{"id":"ea017df29903aca4","fromNode":"e99defdb84ba8147","fromSide":"top","toNode":"10ff221b8c2e7df6","toSide":"bottom"}
+		{"id":"ea017df29903aca4","fromNode":"e99defdb84ba8147","fromSide":"top","toNode":"10ff221b8c2e7df6","toSide":"bottom"},
+		{"id":"ae9edf25ef01492f","fromNode":"7f78f173f27d2014","fromSide":"right","toNode":"9bc8eb387a24c5d8","toSide":"left"},
+		{"id":"dac69dc20d0344a8","fromNode":"fcce1015b96aae7e","fromSide":"right","toNode":"9bc8eb387a24c5d8","toSide":"left"},
+		{"id":"c3f8e4ee53395cb9","fromNode":"34761f8851ea83a5","fromSide":"right","toNode":"2a51c1f4b892cd44","toSide":"left"}
 	]
 }

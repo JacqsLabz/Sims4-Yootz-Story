@@ -2,7 +2,7 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Working Hard](Working%20Hard.md)"
+  - "[Working Hard](Sims4-Yootz-Story/spoilers/Working%20Hard.md)"
 ---
 Sara, Emma, and Brenda move to Strangerville to build a rocket. Don moves nearby. 
 
