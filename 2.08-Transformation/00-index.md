@@ -3,7 +3,7 @@
 
 "Hey sweetie, how you doing?" Sara asked.
 
-"I don't think I got any sleep after last night." Jane struggled to keep her eyes open.
+"I don't think I got any sleep last night." Jane struggled to keep her eyes open.
 
 ![](12-19-17_11-08-11%C2%A0PM.png)
 
@@ -15,7 +15,7 @@ When it was finished, Sara sat down next to her again.
 
 ![](12-20-17_8-12-21%C2%A0AM.png)
 
-"One omelette, with love."
+"One omelet, with love."
 
 "You're too cute sweetie." Jane smiled.
 
@@ -50,7 +50,7 @@ Jane finished the first then asked for seconds.
 
 Though she got full half way through it. "Yeah, I think I'm done eating for now. Sorry."
 
-"Don't worry about it darling." Sara smiled. You stomach still might be a little temperamental sometimes." 
+"Don't worry about it darling." Sara smiled. "Your stomach still might be a little temperamental sometimes." 
 
 ----
 

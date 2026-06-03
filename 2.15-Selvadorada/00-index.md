@@ -1,10 +1,10 @@
 
-%% ![](06-03-18_6-38-23%C2%A0AM.png) %%
+<!-- ![](06-03-18_6-38-23%C2%A0AM.png) %%
 
-%% Sara's knack for fixing things around the house eventually grew to building a rocket ship in the basement, and many trips to space. %%
+%% Sara's knack for fixing things around the house eventually grew to building a rocket ship in the basement, and many trips to space. %% 
 
 ----
-
+-->
 They went on a short camping trip, this time at an actual camp site.
 
 ![](06-04-18_7-43-38%C2%A0PM.png)
