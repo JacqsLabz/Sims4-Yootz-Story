@@ -2,7 +2,8 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Splitting](Sims4-Yootz-Story/spoilers/Splitting.md)"
+  - "[3.4-Distant Family](3.4-Distant%20Family.md)"
+  - "[Splitting](Splitting.md)"
 ---
 Anne discovers Clara's fangs, tells other adults. They discuss splitting up for the good of the kids. 
 

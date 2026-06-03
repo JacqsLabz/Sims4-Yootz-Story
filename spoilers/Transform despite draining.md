@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[More advice](More%20advice.md)"
 ---
 So the use the draining schedule for a while. The wolf doesn't like it. Cass might not be able to tell, but her furry starts to build faster. The wolf is angry. 
 
@@ -9,7 +10,7 @@ Near the full moon, Cass starts to shift despite sticking to the draining schedu
 
 Jane barely manages to drain her, forcing the shift to shift back. This is probably the worst feeling one for Cass. 
 
-Sara can sense that the moon is making the wolf magic not so maluable even to fairy magic. 
+Sara can sense that the moon is making the wolf magic not so malleable even to fairy magic. 
 
 ----
 

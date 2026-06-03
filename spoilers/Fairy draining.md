@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Draining schedule](Draining%20schedule.md)"
 ---
 Sara talks to Jane and tried to explain how Jane's new fairy magic can affect Cass's wolf magic. 
 

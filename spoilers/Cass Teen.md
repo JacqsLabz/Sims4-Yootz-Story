@@ -2,7 +2,7 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Fairies](Sims4-Yootz-Story/spoilers/Fairies.md)"
+  - "[Fairies](Fairies.md)"
 ---
 Cass grows up into a teen. 
 

@@ -2,7 +2,7 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Cass Teen](Sims4-Yootz-Story/spoilers/Cass%20Teen.md)"
+  - "[Cass Teen](Cass%20Teen.md)"
 ---
 Jane and Cassandra move to a remote location to live in nature. 
 

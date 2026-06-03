@@ -1,9 +1,10 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Transform despite draining](Transform%20despite%20draining.md)"
 ---
-Maybe she wants to go back to school, and they all agree that she can only go if she gets all her fury drained by Jane in the morning before she leaves. Because the adults see the larger "she could be in series trouble if she harms another student" and she sees the "omfg I would so embarrassed, I just want to seem normal"
+Maybe she wants to go back to school, and they all agree that she can only go if she gets all her fury drained by Jane in the morning before she leaves. Because the adults see the larger "she could be in series trouble if she harms another student" and she sees the "omfg I would so embarrassed, I just want to seem normal" (as teenagers typically do). 
 
 But this also would create a sort of oh I can't wait for the weekend where I don't have to get my fury drained and can just be myself. 
 

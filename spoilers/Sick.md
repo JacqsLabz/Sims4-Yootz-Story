@@ -2,7 +2,7 @@
 canvas:
   - "[[Plotting.canvas]]"
 Plotting:
-  - "[Transformation](Sims4-Yootz-Story/spoilers/Transformation.md)"
+  - "[Transformation](Transformation.md)"
 ---
 Cass starts exploring the tunnels under an old mill, and gets sick. 
 
