@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Werewolf](Werewolf.md)"
 ---
 Don gets infected with the Strangerville virus, so Sara throws everything she has into helping him. 
 

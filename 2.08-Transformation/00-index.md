@@ -50,7 +50,7 @@ Jane finished the first then asked for seconds.
 
 Though she got full half way through it. "Yeah, I think I'm done eating for now. Sorry."
 
-"Don't worry about it darling." Sara smiled. "Your stomach still might be a little temperamental sometimes." 
+"Don't worry about it darling." Sara smiled. "Your stomach still might be a little temperamental sometimes, that's normal." 
 
 ----
 

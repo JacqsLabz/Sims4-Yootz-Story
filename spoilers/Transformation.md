@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Werewolf](Werewolf.md)"
 ---
 Cass starts to feel really awful, and goes to Jane. 
 

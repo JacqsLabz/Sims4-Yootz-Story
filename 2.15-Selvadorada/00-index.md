@@ -5,7 +5,7 @@
 
 ----
 -->
-They went on a short camping trip, this time at an actual camp site.
+They went on a short  camping  trip, this time at an actual camp site.
 
 ![](06-04-18_7-43-38%C2%A0PM.png)
 
