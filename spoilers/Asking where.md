@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Retracing steps](Retracing%20steps.md)"
 ---
 Sara talks to Cass and asks her about what's happened recently and what's been going on, where she's been, that type of thing. 
 

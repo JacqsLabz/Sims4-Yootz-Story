@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Fairy draining](Fairy%20draining.md)"
 ---
 Sara and Don are alone after Cass is in control again.
 

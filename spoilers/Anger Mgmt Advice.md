@@ -1,9 +1,10 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Old + Recent History](Old%20+%20Recent%20History.md)"
 ---
-then once she has eaten and slept a bit more and possibly eaten again, her grandmother talks to her about the magic within her being angry. Which is kind of confusing magic having emotions, but it's one of those things where they're just kind of going with it. And we have the little moment where Don chuckles because the granddaughter is like you're not angry. Then the vampire starts sharing how she manages her own anger and the girl agrees to try it and see how things go. 
+Then once she has eaten and slept a bit more and possibly eaten again, her grandmother talks to her about the magic within her being angry. Which is kind of confusing magic having emotions, but it's one of those things where they're just kind of going with it. And we have the little moment where Don chuckles because the granddaughter is like you're not angry. Then the vampire starts sharing how she manages her own anger and the girl agrees to try it and see how things go. 
 
 "How do you know this will help?"
 

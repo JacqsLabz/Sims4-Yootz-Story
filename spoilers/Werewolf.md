@@ -1,7 +1,9 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-Plotting: []
+Plotting:
+  - "[Asking where](Asking%20where.md)"
+  - "[Jane feels at fault](Jane%20feels%20at%20fault.md)"
 ---
 Jane calls Sara for help, since this is beyond what she can handle alone. 
 
