@@ -1,11 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Asking where](Asking%20where.md)"
-  - "[Jane feels at fault](Jane%20feels%20at%20fault.md)"
-Plotting - bak 6-12-26:
   - "[Asking where](Asking%20where.md)"
   - "[Jane feels at fault](Jane%20feels%20at%20fault.md)"
 ---

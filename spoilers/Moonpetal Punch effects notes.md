@@ -1,9 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting: []
-Plotting - bak 6-12-26: []
 ---
 Maybe it's a bit like beer? Nothing too strong, but it does make at least the wolf a bit tipsy or buzzed. Sure it feels good now, buts going to interfere with its ability to detect and express it's needs. One of those things that feels good in the moment, but long term isn't healthy all the time. Because it leads to at least playing catch up on the wolf's needs later, and maybe a sort of wolf hangover especially if she ever has too much punch at once. 
 

@@ -1,11 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[After Full Moon Notes](After%20Full%20Moon%20Notes.md)"
-  - "[Anger Mgmt Advice](Anger%20Mgmt%20Advice.md)"
-Plotting - bak 6-12-26:
   - "[After Full Moon Notes](After%20Full%20Moon%20Notes.md)"
   - "[Anger Mgmt Advice](Anger%20Mgmt%20Advice.md)"
 ---

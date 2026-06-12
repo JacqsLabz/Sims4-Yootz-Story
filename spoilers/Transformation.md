@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Werewolf](Werewolf.md)"
-Plotting - bak 6-12-26:
   - "[Werewolf](Werewolf.md)"
 ---
 Cass starts to feel really awful, and goes to Jane. 

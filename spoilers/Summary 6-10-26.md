@@ -1,10 +1,9 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
   - "[Aging](Aging.md)"
-Plotting - bak 6-12-26: []
+  - "[Some more thoughts](Some%20more%20thoughts.md)"
 ---
 So I've been working on plotting out a Sims story in the Sims 4. Sometimes I have to bend/ignore how the game works, but is my story & telling that story matters more than the limits of the game. 
 

@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Moonpetal Harvesting](Moonpetal%20Harvesting.md)"
-Plotting - bak 6-12-26:
   - "[Moonpetal Harvesting](Moonpetal%20Harvesting.md)"
 ---
 Cass goes into the safe room for the full moon. They have some meat (and maybe any other supplies?) in there. Sara and Don take turns fighting the wolf. The wolf is extra/especially violent, more than before. 

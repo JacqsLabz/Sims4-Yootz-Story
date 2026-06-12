@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Transformation](Transformation.md)"
-Plotting - bak 6-12-26:
   - "[Transformation](Transformation.md)"
 ---
 Cass starts exploring the tunnels under an old mill, gets a bite, and gets sick. 

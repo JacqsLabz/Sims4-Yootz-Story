@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Brenda](Brenda.md)"
-Plotting - bak 6-12-26:
   - "[Brenda](Brenda.md)"
 ---
 Emma is sitting resting after a long day of her day job then helping Sara with the rocket. Ideally with a blanket, maybe in the backyard. 

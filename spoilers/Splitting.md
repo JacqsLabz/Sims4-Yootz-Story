@@ -1,13 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Strangerville](Strangerville.md)"
-  - "[In Nature](In%20Nature.md)"
-  - "[Ravenwood Mansion](Ravenwood%20Mansion.md)"
-  - "[3.4-Distant Family](3.4-Distant%20Family.md)"
-Plotting - bak 6-12-26:
   - "[Strangerville](Strangerville.md)"
   - "[In Nature](In%20Nature.md)"
   - "[Ravenwood Mansion](Ravenwood%20Mansion.md)"

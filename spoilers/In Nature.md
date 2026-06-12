@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Cass Teen](Cass%20Teen.md)"
-Plotting - bak 6-12-26:
   - "[Cass Teen](Cass%20Teen.md)"
 ---
 Jane and Cassandra move to a remote location to live in nature. 

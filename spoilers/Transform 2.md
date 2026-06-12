@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Don checks on Sara](Don%20checks%20on%20Sara.md)"
-Plotting - bak 6-12-26:
   - "[Don checks on Sara](Don%20checks%20on%20Sara.md)"
 ---
 They find or build some type of maybe underground safe room. 

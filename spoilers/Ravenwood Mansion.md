@@ -1,9 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting: []
-Plotting - bak 6-12-26: []
 ---
 Anne moves to the Old Ravenwood Estate in Crow's Crossing in Ravenwood with Clara, Karlie, and Loreli.
 

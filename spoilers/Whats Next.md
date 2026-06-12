@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Virus](Virus.md)"
-Plotting - bak 6-12-26:
   - "[Virus](Virus.md)"
 ---
 While Sara and Emma are happy that Brenda is safe and learning about her people, culture, and heritage, they are also sad that Brenda isn't around and they can't just go see her. Maybe they don't know if they'll ever see her again? 

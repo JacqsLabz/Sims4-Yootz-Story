@@ -1,11 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[3.4-Distant Family](3.4-Distant%20Family.md)"
-  - "[Splitting](Splitting.md)"
-Plotting - bak 6-12-26:
   - "[3.4-Distant Family](3.4-Distant%20Family.md)"
   - "[Splitting](Splitting.md)"
 ---

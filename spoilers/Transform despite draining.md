@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[More advice](More%20advice.md)"
-Plotting - bak 6-12-26:
   - "[More advice](More%20advice.md)"
 ---
 So the use the draining schedule for a while. The wolf doesn't like it. Cass might not be able to tell, but her furry starts to build faster. The wolf is angry because it's needs aren't getting met, and it's attempts to get them met aren't working. 

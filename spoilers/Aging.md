@@ -1,9 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting: []
-Plotting - bak 6-12-26: []
 ---
 So I could say that Brenda ages faster than normal. I could also say Clara is aging slow because she has her fangs. 
 

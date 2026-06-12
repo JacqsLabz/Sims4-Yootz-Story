@@ -1,9 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting: []
-Plotting - bak 6-12-26: []
 ---
 - [ ] When the family meeting & decision to break up happens, maybe Kaylie is an adult & wearing some jewelry she made herself 
 

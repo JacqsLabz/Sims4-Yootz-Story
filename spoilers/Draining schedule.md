@@ -1,11 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Transform despite draining](Transform%20despite%20draining.md)"
-  - "[Things taking all her Spoons](Things%20taking%20all%20her%20Spoons.md)"
-Plotting - bak 6-12-26:
   - "[Transform despite draining](Transform%20despite%20draining.md)"
   - "[Things taking all her Spoons](Things%20taking%20all%20her%20Spoons.md)"
 ---

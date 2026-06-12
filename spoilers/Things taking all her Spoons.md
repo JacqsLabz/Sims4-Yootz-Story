@@ -1,9 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting: []
-Plotting - bak 6-12-26: []
 ---
 So during all this Cass is kinda being ground down by everything. 
 

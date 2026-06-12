@@ -1,8 +1,6 @@
 ---
 canvas:
-  - "[[Plotting - bak 6-12-26.canvas]]"
   - "[[Plotting.canvas]]"
-Plotting - bak 6-12-26: []
 Plotting: []
 ---
 Since I'm looking at going back and redoing some things, I might also redo who has what weakness. Since now they don't have to have a certain fixed number. 

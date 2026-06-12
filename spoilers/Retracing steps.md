@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Transform 2](Transform%202.md)"
-Plotting - bak 6-12-26:
   - "[Transform 2](Transform%202.md)"
 ---
 

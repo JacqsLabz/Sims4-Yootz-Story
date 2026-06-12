@@ -1,10 +1,7 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
-  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
-  - "[Fairies](Fairies.md)"
-Plotting - bak 6-12-26:
   - "[Fairies](Fairies.md)"
 ---
 Cass grows up into a teen. 
