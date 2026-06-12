@@ -1,7 +1,9 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting: []
+Plotting - bak 6-12-26: []
 ---
 In general I think the head of the family will be receptive to what the teenager is saying, because she can sense and feel that wolf magic (even if she doesn't know the "inner wolf" element yet, she can sense the "werewolf magic" and understands certain things about it). 
 

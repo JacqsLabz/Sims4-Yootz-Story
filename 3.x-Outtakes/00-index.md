@@ -12,7 +12,9 @@ I'm not sure rather Emma should be able to lift Sara like that,
 
 ![](05-25-22_9-10-00%C2%A0PM.png)
 
-but Sara would absolutely be able to lift Emma, no issue. Though the really funny part was Sara saying "chug, chug, chug" in simish, especially since Emma didn't say anything while lifting up Sara. Don't know if it's Sara's mixology skill? Big drinker I guess. 
+but Sara would absolutely be able to lift Emma, no issue. 
+
+Though the really funny part was Sara saying "chug, chug, chug" in simish, especially since Emma didn't say anything while lifting up Sara. Don't know if it's Sara's mixology skill? Big drinker I guess. 
 
 ----
 

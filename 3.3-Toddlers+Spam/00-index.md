@@ -128,6 +128,6 @@ Egg day
 
 Emma eats blood fruit salad
 
-Brenda b-day to child
+Brenda b-day to child (say she grew up quickly? And they don't know, but somebody points out well she isn't human or vampire, maybe for aliens this is normal?)
 
 Shower & sauna

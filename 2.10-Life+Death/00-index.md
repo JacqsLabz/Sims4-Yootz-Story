@@ -31,7 +31,7 @@ Eventually, Emma appeared to everyone.
 
 ![](12-21-17_8-50-27%C2%A0PM.png)
 
-"Emma!" Sara embraced her small ghostly form. "We're going to bring you back sweetie, I'm so sorry."
+"Emma!" Sara embraced her small ghostly form. "We're going to bring you back sweetie, I'm so sorry." Sara's jaw shook. 
 
 "Thanks mom." Emma's voice was an unearthly echo, but still soothing to Sara.
 

@@ -1,7 +1,10 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
+  - "[Fairy draining](Fairy%20draining.md)"
+Plotting - bak 6-12-26:
   - "[Fairy draining](Fairy%20draining.md)"
 ---
 Sara and Don are alone after Cass is in control again.

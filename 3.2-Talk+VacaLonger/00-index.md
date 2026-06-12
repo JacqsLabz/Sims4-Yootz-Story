@@ -7,7 +7,11 @@ Sara finished telling everyone a story.
 
 ![[06-20-18_12-22-16 AM.png]]
 
-Jane: Emma, is that all you're having?
+Jane: Emma, is that all you're having? / I made plenty of salad, feel free to get yourself a bowel. 
+
+Emma: That's ok, thank you mom. 
+
+Sara: Everything ok sweetie? 
 
 Anne: Her stomach is withering. 
 

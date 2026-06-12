@@ -1,17 +1,27 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
+  - "[After Full Moon Notes](After%20Full%20Moon%20Notes.md)"
+  - "[Anger Mgmt Advice](Anger%20Mgmt%20Advice.md)"
+Plotting - bak 6-12-26:
   - "[After Full Moon Notes](After%20Full%20Moon%20Notes.md)"
   - "[Anger Mgmt Advice](Anger%20Mgmt%20Advice.md)"
 ---
 In the morning when Cass has shifted back, Sara might carry or help support her over to her sleeping area. Once she's tucked in and asleep, Sara leave her to sleep and Jane comes over to Sara. 
 
-"Is she ok? Can you tell if she needs me to...?" The last time the process had seemed so detrimental to Cass, Jane was hesitant to do it again especially while the poor girl was finally getting some so well deserved, and much needed, sleep. 
+"Is she ok? Can you tell if she needs me to...?" The last time Jane had drained Cass, the process had seemed so detrimental to Cass. Jane was hesitant to do it again especially while the poor girl was finally getting some so well deserved, and much needed, sleep. 
 
 "She has wounds, but we got her bandaged up and she's resting for now. I don't sense any of that fury in her right now, so I think she's okay." Sara glanced at her own bandage. "She was extra violent this time, more so than the other times. But I also felt something... I'm not sure, I could be wrong, but there might be another way to help her. Big might." She didn't want promise things when she had no real way to know. 
 
 Jane nodded. "I really hope it works then, whatever it is." 
+
+"It might not, I don't want to get anyone's hopes up." Sara cautioned. 
+
+"I know. Though your ideas are usually pretty good."
+
+Sara tried to smile at Jane. The support of her wife was certainly welcome, but after what had nearly happened to Don... Sara shook herself. Doubting herself wasn't going to help Cass. "Thank you dear. I think I'll wait a bit to bring it up to Cass. Let her rest, get a good meal in her; get back on her feet, you know?"
 
 The teenager in her pajamas comes out of her bedroom or well if she sleeps in a tent comes out of her tent, whatever the case may be, she comes out of her sleeping arrangements, and pads over to wherever they do the cooking. She's half asleep, not fully thinking, and just running on automatic. 
 
@@ -25,9 +35,9 @@ Sara sat drinking a bloody mary, "Hey Cass, you hungry?"
 
 Jane nodded, "I think I know just the thing. It going to take me a like bit to make it, so you have time to use the bathroom if you'd like before it's ready." She start getting thing out of the cabinets. "Sara, can you get the %% whatever %%?"
 
-Cass nodded, then wondered over in that direction. As she did she shook her head, the way she had just asked for food wasn't like her. But she was definitely hungry, and Jane had offered to cook... and didn't seemed put out by how she'd asked. She made a mental note to make sure to thank her grandmothers. 
+Cass nodded, then wondered over in that direction. As she did she shook her head, the way she had just asked for food wasn't like her. But she was definitely hungry, and Jane had offered to cook... and Jane didn't seemed put out by how she'd asked. She made a mental note to make sure to thank her grandmothers. She didn't want to be rude, she had certainly done enough already. 
 
-Once Cass was far enough away, Jane stopped and whispered, "So, what do you think?"
+Once Cass was far enough away, Jane stopped and whispered, "So, what do you think? Does she need me to... you know?"
 
 "She doesn't need it, at least right now." She kept her voice low, "Her magic is... really different this morning." 
 
@@ -41,7 +51,7 @@ Once the food was ready, she could hardly believe how good it tasted. Or how man
 
 When she was finished, Sara asked, "How was it?" 
 
-"Really, *really* good. Thank you, both of you. Really, thank you so much." She was surprised at how content and peaceful she felt now that her belly was good and full. Actually, she felt almost as if she wasn't a werewolf. Well, at least on an emotional level. There was no pretending she wasn't tired or didn't have wounds, the physic side was impossible to ignore. Butt her feelings weren't... even she wasn't sure how to put it; all crazy? She rubbed at her eyes with the side of her hand. 
+"Really, *really* good. Thank you, both of you. Really, thank you so much." She was surprised at how content and peaceful she felt now that her belly was good and full. Actually, she felt almost as if she wasn't a werewolf. Well, at least on an emotional level. There was no pretending she wasn't tired or didn't have wounds, the physical side was impossible to ignore. Butt her feelings weren't... even she wasn't sure how to put it; all crazy? She rubbed at her eyes with the side of her hand. 
 
 Sara smiled. "I'm glad it hit the spot. You still tired, or no?" 
 
@@ -51,9 +61,9 @@ Sara smiled. "I'm glad it hit the spot. You still tired, or no?"
 
 "Why, what's up?" Cass hesitated, and her body got heavy as the floor called to her again. 
 
-"It can wait until you've gotten your sleep." 
+"I want to talk to you after you're good and rested dear." 
 
-She wanted to know what was up, but more importantly she didn't want to know how much it would hurt to wake up on that floor later, so she just focused on how comfy her bed was and headed towards it. 
+She wanted to know about what, but more importantly she didn't want to know how much it would hurt to wake up on that floor later, so she just focused on how comfy her bed was and headed towards it. 
 
 ----
 
@@ -61,7 +71,7 @@ That way it's like a little glimpse of her connecting with the wolf & meeting it
 
 She doesn't really know that's what she's doing, again she doesn't even know she has an inner wolf, so she's still getting used to everything. At least she's feeling something in there. Like a person who's used to being able to see fumbling around blind. 
 
-And again the grandmother can kind of feel this too, not as well because the wolf isn't out, but how the wolf has shift and isn't so angry. Again she can't say it that way because she doesn't understand that there is a wolf in there at all. But during the full moon she did recognize the anger, and basically talks to the girl about proposing anger management ideas. Sara lets the girl sleep and then be like well I realized something last night. 
+And again Sara can kind of feel this too, not as well because the wolf isn't out, but how the wolf has shifted and isn't so angry. Again she can't say it that way because she doesn't understand that there is a wolf in there at all. But during the full moon she did recognize the anger, and basically talks to Cass about proposing anger management ideas. Sara lets the girl sleep and then be like well I realized something last night. 
 
 She thinks about these moments, and reflects on them when she laying in bed will help her to realize there's even something there to listen to at all. 
 

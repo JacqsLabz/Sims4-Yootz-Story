@@ -1,7 +1,7 @@
 
 ![](05-30-18_8-25-01%C2%A0AM.png)
 
-Anne grew up into a teenager.
+Anne grew up into a teenager, and got her fangs. 
 
 ![](05-30-18_8-25-25%C2%A0AM.png)
 

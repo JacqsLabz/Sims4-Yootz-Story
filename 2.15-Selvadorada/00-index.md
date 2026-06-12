@@ -5,15 +5,21 @@
 
 ----
 -->
-They went on a short  camping  trip, this time at an actual camp site.
+They went on another family camping trip, this time at an actual camp site.
 
 ![](06-04-18_7-43-38%C2%A0PM.png)
 
-Anne did not approve of "roughing it"
+Anne telling a campfire spooky story of a creepy monster. <!-- Anne did not approve of "roughing it" -->
 
 ![](06-05-18_5-37-27%C2%A0AM.png)
 
+Sara and Anne discussing how Anne has a natural immunity to sunlight. 
+
 ![](06-04-18_7-15-16%C2%A0PM.png)
+
+Emma made a friend while fishing.
+
+----
 
 The trip only proved how much Jane missed the outdoors, even though she was rather sensitive to the sun light.
 
@@ -21,7 +27,7 @@ The trip only proved how much Jane missed the outdoors, even though she was rath
 
 ![](06-05-18_6-48-48%C2%A0AM.png)
 
-Thankfully, everyone still had a lot of death flowers left over from the ambrosia.
+Thankfully, everyone still had death flowers left over from the ambrosia.
 
 ![](06-05-18_7-44-20%C2%A0AM.png)
 
@@ -29,9 +35,15 @@ Thankfully, everyone still had a lot of death flowers left over from the ambrosi
 
 A **lot** of death flowers.
 
-----
-
 ![](06-05-18_7-56-24%C2%A0AM.png)
+
+Emma: Please be more careful in the sun, Mom.
+
+Jane: I'm sorry I scared you. 
+
+%% Idk, something about how both daughters are immune, Sara isn't that sensitive to sunlight, but Jane is because she doesn't embrace the darkness and the dark power of vampires. %%
+
+----
 
 ![](06-05-18_7-59-08%C2%A0AM.png)
 

@@ -1,7 +1,10 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
+  - "[First full moon](First%20full%20moon.md)"
+Plotting - bak 6-12-26:
   - "[First full moon](First%20full%20moon.md)"
 ---
 At some point Sara goes back to the bar looking for more advice. Maybe Cass comes with her? 

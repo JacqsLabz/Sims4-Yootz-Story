@@ -7,7 +7,7 @@ Jane and Emma decided to visit the spicy festival.
 
 ![](06-07-18_9-41-22%C2%A0AM.png)
 
-Sara and Anne came with them, but their withered stomachs meant they couldn't really enjoy the spicy food. 
+Sara and Anne came with them, but their withered stomachs meant they couldn't enjoy the spicy food. 
 
 ![](06-07-18_11-49-35%C2%A0AM.png)
 

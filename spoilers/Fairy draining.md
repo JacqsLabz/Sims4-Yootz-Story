@@ -1,7 +1,10 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
+  - "[Draining schedule](Draining%20schedule.md)"
+Plotting - bak 6-12-26:
   - "[Draining schedule](Draining%20schedule.md)"
 ---
 Sara talks to Jane and tried to explain how Jane's new fairy magic can affect Cass's wolf magic. 

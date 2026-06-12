@@ -1,7 +1,10 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
+  - "[Retracing steps](Retracing%20steps.md)"
+Plotting - bak 6-12-26:
   - "[Retracing steps](Retracing%20steps.md)"
 ---
 Sara talks to Cass and asks her about what's happened recently and what's been going on, where she's been, that type of thing. 

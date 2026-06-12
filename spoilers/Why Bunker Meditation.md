@@ -1,7 +1,9 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting: []
+Plotting - bak 6-12-26: []
 ---
 it's about once she realizes this whole inner wolf concept that doesn't mean she's going to always be able to understand it. I guess I see her doing that as a way of trying to connect with it trying to understand it, trying to understand herself. Accepting that she might transform and basically being responsible about it. Because at first right after the full moon she's just noticing the surface level, but she's eventually going to start to understand sort of the how and why underneath that surface, but having that understanding is not going to just solve all of her issues. Even once she has that shift in perspective she still needs to figure out what that daily routine of self-care actually involves and actually looks like. Some of it is a high energy expending of a raw physical activation, but not all of it.
 

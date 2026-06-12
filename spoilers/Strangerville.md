@@ -1,7 +1,10 @@
 ---
 canvas:
   - "[[Plotting.canvas]]"
+  - "[[Plotting - bak 6-12-26.canvas]]"
 Plotting:
+  - "[Working Hard](Working%20Hard.md)"
+Plotting - bak 6-12-26:
   - "[Working Hard](Working%20Hard.md)"
 ---
 Sara, Emma, and Brenda move to Strangerville to build a rocket. Don moves nearby. 
