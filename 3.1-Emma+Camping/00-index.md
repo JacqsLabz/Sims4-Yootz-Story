@@ -43,7 +43,7 @@ Meanwhile, Emma started to not feel well sometimes.
 
 ![](06-19-18_5-07-08%C2%A0PM.png)
 
-*'Is my stomach withering like Sara's and Anne's?'* she wondered. 
+*'Is my stomach withering like Sara's?'* she wondered. 
 
 ![](06-19-18_8-59-43%C2%A0PM.png)
 

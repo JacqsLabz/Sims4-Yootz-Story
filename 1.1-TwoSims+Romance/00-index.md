@@ -98,7 +98,7 @@ She didn't know what think as she tried to clean up the mess.
 
 ----
 
-It turned out to be the first time of many. So, Sara tried chaning a few things. She dropped the protein drinks, and generally tried to take it easier with her workouts. But it didn't seem to make any difference.
+It turned out to be the first time of many. So, Sara tried changing a few things. She dropped the protein drinks and tried the whole rest & fluids thing for a while, but it didn't seem to make any difference. She missed working out, but didn't have the energy for it. 
 
 ![](12-22-16_6-48-29%C2%A0PM.png)
 

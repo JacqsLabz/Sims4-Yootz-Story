@@ -4,6 +4,7 @@ canvas:
 Plotting:
   - "[Asking where](Asking%20where.md)"
   - "[Jane feels at fault](Jane%20feels%20at%20fault.md)"
+  - "[Cass confused by bandages](Cass%20confused%20by%20bandages.md)"
 ---
 Jane calls Sara for help, since this is beyond what she can handle alone. 
 
