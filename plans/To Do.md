@@ -51,3 +51,8 @@
 - [ ] Add her learning mixology, even just like one image of her practicing at some point?
 - [ ] Add Sara images of meeting Don at the gym, or at least knowing him. Have him tell her you need more rep's and her calling him coach? 
 - [ ] Maybe Anne telling Sara she's pregnant (with Cass) while her belly is still really small?
+- [ ] Establish that Emma has no issues with sunlight, and that that's weird before 3.1 (like her body is weird & doesn't respond to things like normal) 
+- [ ] Have something where Lilith doesn't know why Anne doesn't have her fangs yet? 
+- [ ] Also add bits of Anne being a vampire as a child, even if she didn't have a thirst, she was a vampire. 
+- [ ] Maybe more pictures of Emma at the bar in 3.1? Like show her reaction to drinking it?
+- [ ] "My strange body is reacting badly to alien technology."
