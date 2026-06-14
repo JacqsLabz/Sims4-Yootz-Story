@@ -43,5 +43,11 @@
 	- [ ] might be busted: https://forums.ea.com/discussions/the-sims-4-mods-and-custom-content-en/vampire-fangs-for-kids/2502165
 - [ ] 
 # Collectables
-- Starting Move to island - pencils ups with collectables in attic. Fireworks day (summer Wed)
-- Maybe fixing everyone - empty attic. Collectables on 2nf floor
+- Starting Move to island - pencils cups with collectables in attic. Fireworks day (summer Wed)
+- Maybe fixing everyone - empty attic. Collectables on 2nd floor
+
+# Revising Existing Story
+- [ ] Add a part where Sara uses her skill at mixology to invent her bloody mary drink. Before 2.08
+- [ ] Add her learning mixology, even just like one image of her practicing at some point?
+- [ ] Add Sara images of meeting Don at the gym, or at least knowing him. Have him tell her you need more rep's and her calling him coach? 
+- [ ] Maybe Anne telling Sara she's pregnant (with Cass) while her belly is still really small?
