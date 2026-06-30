@@ -6,7 +6,7 @@ Plotting:
 ---
 One element to Don's chuckle: Maybe Sara got good and PISSED AS HELL at some point during the Strangerville thing. So not only does he have memories of seeing her pissed and violent (she did teach him how to fight & spar as a vampire), but he's recently seen her lose her shit over his safety. Which makes his chuckling "oh kid you have NO idea." stick the landing even better. 
 
-And maybe her anger gives her an edge in a fight, not because she gives into it, but because she works with it. ANd heck, that could come up with the werewolf eventually? "I didn't learn to not be angry, I learned to work with my anger. It gives me an edge, and ti's why I win fights." She smirked. (I'm picturing Sara is her dark vampire form here) "Well, most of the time." Sara shrugged. 
+And maybe her anger gives her an edge in a fight, not because she gives into it, but because she works with it. ANd heck, that could come up with the werewolf eventually? "I didn't learn to not be angry, I learned to work with my anger. It gives me an edge, and it's why I win fights." She smirked. (I'm picturing Sara is her dark vampire form here) "Well, most of the time." Sara shrugged. 
 
 And related to that, maybe part of why she got so angry strangerville is because she could feel it: if she didn't do something he wasn't going to be okay. Because of her dark Powers she could feel it. She had to do something. 
 
