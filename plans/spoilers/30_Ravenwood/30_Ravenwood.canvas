@@ -1,0 +1,15 @@
+{
+	"nodes":[
+		{"id":"4e6f4d24b5884e84","type":"text","text":"Anne and Kaylie get married","x":730,"y":76,"width":400,"height":400},
+		{"id":"b3d20224137f7180","type":"text","text":"Emma moves to a haunted house in Mourningvale, and explores all things ghost & afterlife related. Basically fully embracing and exploring what she is: a former ghost. \n\nShe had out of body experiences, and she starts to work for the grim reaper. Everything about her life is related to death. ","x":730,"y":-393,"width":400,"height":400},
+		{"id":"8cbc5f60da2635d5","type":"text","text":"The fanged toddlers grow up a bit","x":-665,"y":76,"width":400,"height":400},
+		{"id":"b35957504fe1a5ff","type":"text","text":"Kaylie makes jewelry? including at least one moonstone necklace? \n\nAnd that's how we get to Cass having one or two to help ground herself? \n","x":-465,"y":-393,"width":400,"height":400},
+		{"id":"715774b6813a0ea8","type":"text","text":"Emma moves in for a time. She explores Ravenwood more, and then decides to move to another part of Ravenwood. ","x":-200,"y":76,"width":400,"height":400},
+		{"id":"8214922551299a25","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Ravenwood/Ravenwood Mansion.md","x":-1130,"y":76,"width":400,"height":400},
+		{"id":"2f3c2e70b2416a86","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Ravenwood/Marketing Jewelry.md","x":-1130,"y":-475,"width":400,"height":400}
+	],
+	"edges":[
+		{"id":"83c81d0a874aab23","fromNode":"715774b6813a0ea8","fromSide":"right","toNode":"4e6f4d24b5884e84","toSide":"left"},
+		{"id":"1d2e89654d857d18","fromNode":"715774b6813a0ea8","fromSide":"right","toNode":"b3d20224137f7180","toSide":"left"}
+	]
+}

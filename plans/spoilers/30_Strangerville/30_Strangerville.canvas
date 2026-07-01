@@ -1,0 +1,17 @@
+{
+	"nodes":[
+		{"id":"61f8a5dc9a917868","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Strangerville/Virus.md","x":498,"y":-200,"width":400,"height":400},
+		{"id":"533782f802ce9d65","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Strangerville/Licking their wounds.md","x":963,"y":-200,"width":400,"height":400},
+		{"id":"87fd6851cc6289fa","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Strangerville/Brenda.md","x":-432,"y":-200,"width":400,"height":400},
+		{"id":"ef0737a3a81db3be","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Strangerville/Whats Next.md","x":33,"y":-200,"width":400,"height":400},
+		{"id":"1eae641647ec9c1b","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Strangerville/Working Hard.md","x":-897,"y":-200,"width":400,"height":400},
+		{"id":"b96255c86b349be8","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Strangerville/Strangerville.md","x":-1362,"y":-200,"width":400,"height":400}
+	],
+	"edges":[
+		{"id":"5ba0e8ee849a523b","fromNode":"61f8a5dc9a917868","fromSide":"right","toNode":"533782f802ce9d65","toSide":"left"},
+		{"id":"596123893739ebd2","fromNode":"ef0737a3a81db3be","fromSide":"right","toNode":"61f8a5dc9a917868","toSide":"left"},
+		{"id":"c6ccdafa32441945","fromNode":"87fd6851cc6289fa","fromSide":"right","toNode":"ef0737a3a81db3be","toSide":"left"},
+		{"id":"e1d4bbcaaed24fdb","fromNode":"1eae641647ec9c1b","fromSide":"right","toNode":"87fd6851cc6289fa","toSide":"left"},
+		{"id":"acfe0721ecb89608","fromNode":"b96255c86b349be8","fromSide":"right","toNode":"1eae641647ec9c1b","toSide":"left"}
+	]
+}

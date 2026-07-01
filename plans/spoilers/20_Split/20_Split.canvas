@@ -1,0 +1,15 @@
+{
+	"nodes":[
+		{"id":"e73e663f65192d23","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/Splitting.md","x":-16,"y":135,"width":400,"height":400},
+		{"id":"a44c2cbb7c625765","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/Crystal Plot Summary 6-4-26.md","x":184,"y":-534,"width":400,"height":400},
+		{"id":"37f7cd2a7d2f4aaf","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/3.4-Distant Family.md","x":-316,"y":-534,"width":400,"height":400},
+		{"id":"e36c63ec418275b4","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/Distant Family.md","x":-583,"y":135,"width":400,"height":400}
+	],
+	"edges":[
+		{"id":"a5dc949c62b78637","fromNode":"e73e663f65192d23","fromSide":"top","toNode":"37f7cd2a7d2f4aaf","toSide":"bottom"},
+		{"id":"e90430eb52ef691e","fromNode":"37f7cd2a7d2f4aaf","fromSide":"bottom","toNode":"e73e663f65192d23","toSide":"top"},
+		{"id":"e4e765b31b1d2915","fromNode":"e36c63ec418275b4","fromSide":"right","toNode":"e73e663f65192d23","toSide":"left"},
+		{"id":"8b9225641934d60a","fromNode":"37f7cd2a7d2f4aaf","fromSide":"bottom","toNode":"e36c63ec418275b4","toSide":"top"},
+		{"id":"c94a056a7a465f8e","fromNode":"e36c63ec418275b4","fromSide":"top","toNode":"37f7cd2a7d2f4aaf","toSide":"bottom"}
+	]
+}

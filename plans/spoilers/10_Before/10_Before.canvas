@@ -1,0 +1,13 @@
+{
+	"nodes":[
+		{"id":"f22fe5c82b1e2bf4","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/Summary 6-4-26.md","x":121,"y":261,"width":400,"height":400},
+		{"id":"22c64846670e80bb","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/Summary 6-10-26.md","x":-139,"y":-270,"width":400,"height":400},
+		{"id":"c81d1575ceedd762","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/Aging.md","x":222,"y":-830,"width":400,"height":400},
+		{"id":"94d9ab4e10121bae","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/Re-Do+Retcon.md","x":-621,"y":254,"width":400,"height":576},
+		{"id":"b189061acc30bc64","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/Some more thoughts.md","x":-439,"y":-830,"width":400,"height":400}
+	],
+	"edges":[
+		{"id":"8035b61d9dc3a69c","fromNode":"22c64846670e80bb","fromSide":"top","toNode":"b189061acc30bc64","toSide":"bottom"},
+		{"id":"25c037184ac56264","fromNode":"22c64846670e80bb","fromSide":"top","toNode":"c81d1575ceedd762","toSide":"bottom"}
+	]
+}

@@ -1,3 +1,8 @@
+---
+canvas:
+  - "[[Plotting.canvas]]"
+Plotting: []
+---
 
 "The transformation is painful for her." Sara crossed her arms. "When I change into a bat you you shift to being small, we're choosing it. But the magic that changes her, it's different." Sara paused. "The power that's in us doesn't have will. We can just grab it and bend it, in a manner of speaking. The magic that's in Cass isn't like that." 
 

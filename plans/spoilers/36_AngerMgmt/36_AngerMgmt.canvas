@@ -1,0 +1,20 @@
+{
+	"nodes":[
+		{"id":"309b552dd570aa6e","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/Hot-head.md","x":-1812,"y":-52,"width":480,"height":1332},
+		{"id":"ad03c9e87cb5b2b7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/Breakfast Battered.md","x":-1652,"y":-611,"width":400,"height":400},
+		{"id":"489d316cee93f89c","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/After Full Moon Notes.md","x":-2112,"y":-1280,"width":820,"height":460},
+		{"id":"4a06bb59f48b195d","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/After full moon - wolf needs.md","x":-1292,"y":-64,"width":520,"height":504},
+		{"id":"2436c276107d265a","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/Inner wolf, no voice.md","x":-732,"y":-40,"width":480,"height":320},
+		{"id":"fb2e0ddd6c72249c","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/Anger Mgmt Advice.md","x":-1172,"y":-611,"width":400,"height":400},
+		{"id":"d64818f38dd4c26f","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/Old + Recent History.md","x":-672,"y":-1260,"width":510,"height":540},
+		{"id":"7db639f180a9ef4b","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/Misc Notes 1.md","x":-12,"y":-100,"width":1109,"height":940},
+		{"id":"b807a73eaf940676","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/Backstory, other wolves.md","x":1308,"y":160,"width":805,"height":420}
+	],
+	"edges":[
+		{"id":"063bbf24658a5804","fromNode":"ad03c9e87cb5b2b7","fromSide":"top","toNode":"489d316cee93f89c","toSide":"bottom"},
+		{"id":"01cbf54193670c2b","fromNode":"ad03c9e87cb5b2b7","fromSide":"right","toNode":"fb2e0ddd6c72249c","toSide":"left"},
+		{"id":"34e56d0cfc652722","fromNode":"fb2e0ddd6c72249c","fromSide":"top","toNode":"d64818f38dd4c26f","toSide":"left"},
+		{"id":"2e7572807f941891","fromNode":"d64818f38dd4c26f","fromSide":"right","toNode":"7db639f180a9ef4b","toSide":"top"},
+		{"id":"632bbfccbd8a85b2","fromNode":"7db639f180a9ef4b","fromSide":"top","toNode":"d64818f38dd4c26f","toSide":"right"}
+	]
+}

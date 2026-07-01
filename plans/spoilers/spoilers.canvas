@@ -1,0 +1,24 @@
+{
+	"nodes":[
+		{"id":"e9cdd44ab480bb01","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Ravenwood/30_Ravenwood.canvas","x":1120,"y":-640,"width":400,"height":400},
+		{"id":"e97ba2547043f1ef","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Strangerville/30_Strangerville.canvas","x":1120,"y":-52,"width":400,"height":400},
+		{"id":"ab6fd995ad8929ed","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Woods/30_Woods.canvas","x":1120,"y":520,"width":400,"height":400},
+		{"id":"3c57b0d48152d0f2","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/20_Split.canvas","x":160,"y":-52,"width":400,"height":400},
+		{"id":"e0315fe85968b8cc","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/10_Before.canvas","x":-520,"y":-52,"width":400,"height":400},
+		{"id":"f54e3bf23438d562","x":2000,"y":520,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/35_FirstFullMoon/35_FirstFullMoon.canvas"},
+		{"id":"ad21140209c99e01","x":2800,"y":-52,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/36_AngerMgmt.canvas"},
+		{"id":"391053a123865c15","x":3760,"y":-452,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/40_TheBoys.canvas"}
+	],
+	"edges":[
+		{"id":"e1b3dbccd7d6bbce","fromNode":"e97ba2547043f1ef","fromSide":"right","toNode":"f54e3bf23438d562","toSide":"left"},
+		{"id":"57f54fe3db4c04c1","fromNode":"ab6fd995ad8929ed","fromSide":"right","toNode":"f54e3bf23438d562","toSide":"left"},
+		{"id":"03e12c207229c0d9","fromNode":"3c57b0d48152d0f2","fromSide":"right","toNode":"e9cdd44ab480bb01","toSide":"left"},
+		{"id":"49af75b62f5727f2","fromNode":"3c57b0d48152d0f2","fromSide":"right","toNode":"e97ba2547043f1ef","toSide":"left"},
+		{"id":"5225c0aa17e86d61","fromNode":"3c57b0d48152d0f2","fromSide":"right","toNode":"ab6fd995ad8929ed","toSide":"left"},
+		{"id":"62b24cd13bce8eb9","fromNode":"e0315fe85968b8cc","fromSide":"right","toNode":"3c57b0d48152d0f2","toSide":"left"},
+		{"id":"0039c449a8d203e5","fromNode":"f54e3bf23438d562","fromSide":"right","toNode":"ad21140209c99e01","toSide":"left"},
+		{"id":"935897d7981dd68b","fromNode":"e9cdd44ab480bb01","fromSide":"right","toNode":"ad21140209c99e01","toSide":"left"},
+		{"id":"3870a275375a8d90","fromNode":"e9cdd44ab480bb01","fromSide":"right","toNode":"391053a123865c15","toSide":"left"},
+		{"id":"720aac1635378f58","fromNode":"ad21140209c99e01","fromSide":"right","toNode":"391053a123865c15","toSide":"left"}
+	]
+}
