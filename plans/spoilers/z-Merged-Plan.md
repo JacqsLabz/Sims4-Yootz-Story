@@ -1951,7 +1951,7 @@ Sara shook herself. "Sorry, you're exactly right. Maybe he should go with you." 
 
 Sara's phone dinged. She checked it and frowned. "Just think about it, ok?" Sara quickly put down the mug, then with her superspeed disappeared in the flash.  
  
-# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\22_Morning.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\22.2_MorningPancakes.md 
  
  
 ---
@@ -2100,7 +2100,7 @@ Grant's Core Mindset: "If reality is bigger than I thought yesterday... how much
 		{"id":"c0b787dc76e22607","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/21_GoGhost.md","x":-680,"y":1600,"width":400,"height":400},
 		{"id":"69ed22a06ea31e34","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/23_SleepingIn.md","x":660,"y":1600,"width":400,"height":400},
 		{"id":"9aa332daabffa4ff","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/24_Laptop.md","x":1200,"y":1600,"width":400,"height":400},
-		{"id":"90bb1aa5807f25fd","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22_Morning.md","x":160,"y":1600,"width":400,"height":400}
+		{"id":"90bb1aa5807f25fd","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22.2_MorningPancakes.md","x":160,"y":1600,"width":400,"height":400}
 	],
 	"edges":[
 		{"id":"4388119e0df3c920","fromNode":"c945bef325d58f5b","fromSide":"right","toNode":"47107e9c53ce3ac7","toSide":"left"},

@@ -34,7 +34,7 @@ Grant swallowed. "No Ben, he can't."
 
 "If you leave us here, what are we supposed to do? My paycheck alone can't cover rent and groceries and bills." Anger mixed with paralyzing fear. He knew all the number by heart. Savanna hadn't been making much, but it had taken both of them to make ends meet. 
 
-It was such a practical question. Emma supposed it shouldn't have surprised her, the kid had Jane's rare eye color: the same purple eyes that Emma herself had. They were family, she couldn't just leave them. And speaking of Jane, Emma was willing to bet her mother would take in two more human kids. "Alright, I know someone, I'll take you to them."
+It was such a practical question. Emma supposed it shouldn't have surprised her, the kid had Jane's rare eye color: the same purple eyes that Emma herself had. They were family, she couldn't just leave them. Last Emma heard, Jane was human again and living in the woods with Emma's human niece Cass. She could simply leave the boys there, because Jane was always big on maternal instincts. She'd probably enjoy taking in two more human kids. "Alright, I know someone, I'll take you to them."
 
 "Who?" The teen hesitated. 
 

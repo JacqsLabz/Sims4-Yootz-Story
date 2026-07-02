@@ -16,14 +16,14 @@ A sunlight reversal cocktail, for vampires? That certainly was a new one on Gran
 
 "Of course dear." Sara went to work mixing the drinks with a soft smile on her face. There was a practiced ease to her movements as her hands worked. 
 
-Cass sat at the small two person table and started to eat her food. Grant decided to follow suit again, and joined her as she wolfed down the meat. Once he tasted it, he could see why. Jane could make a lot more than just popcorn. Sara brought them their drinks, and then her and Don each gulped down a yellow drink, that was literally glowing. Grant wondered just how the drink was luminescent. 
+Cass sat at the small two person table and started to eat her food. Grant decided to follow suit again, and joined her as she wolfed down the cooked meat. Once he tasted the dish, he could see why: Jane could make a lot more than just popcorn. Sara brought them their drinks, and then her and Don each gulped down a yellow drink, that was literally glowing. Grant wondered just how the drink was luminescent. 
 
-Grant was full after his plate and float, while Cass went back for thirds of the meat. Then she sat rubbing her necklace again. After a minute she yawned, "I think I'm going to lay down." She stood and turned to the door. 
+Grant was full after his plate and float, while Cass went back for thirds of the cooked meat. Then she sat rubbing her necklace again. After a minute she yawned, "I think I'm going to lay down." She stood and turned to the front door. 
 
 "Cass, dear, how about sleeping downstairs? Just for today." 
 
 Cass gave Grant a look he couldn't make sense of. Then closed her eyes for a moment, "I guess." Cass padded over to a door and went inside. 
 
-Don looked to Sara who nodded, then followed Cass. "Well," Sara turned to Grant, "I think we've left the others waiting long enough?" 
+Don looked to Sara who nodded, then he followed Cass. "Well," Sara turned to Grant, "I think we've left the others waiting long enough?" 
 
 Grant followed his great grandmother back outside to the clearing with all the seating. 
