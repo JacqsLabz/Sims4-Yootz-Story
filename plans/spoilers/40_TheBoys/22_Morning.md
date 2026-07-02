@@ -1,0 +1,36 @@
+---
+canvas:
+  - "[[40_TheBoys.canvas]]"
+40_TheBoys: []
+---
+Idk if discussing Ben & Grant, but maybe just sitting & enjoying the morning. So when Ben wakes up and stumbles out of the tent, they're all right there. 
+
+That morning when Ben got up, he asked Jane if he had to go to school, and Jane smiled and said no school, and makes the boy like pancakes or something. 
+
+Sara pointed out that someone would need to contact their schools. Or maybe Sara has taken over with Cass for a little while, and Don is the one sitting around resting a bit, he can still be like "has someone contacted the boys schools?" Or Cass didn't need Sara for long? idk. 
+
+Emma stood up, "I'll handle it." She pulled out her phone and walked around looking for a spot to get good signal. When she found it, she called her boss. 
+
+"Yes?" The familiar ethereal voice came over the phone.
+
+"You owe me a personal day." 
+
+"I do?" 
+
+"You sent me to reap my own sister without even telling me, so yes you do."
+
+"It was for the best."
+
+"Yeah well that best is something I need to deal with today." 
+
+The noise the grim reaper made... it had taken Emma time to figure out it was his version of a chuckle. "I'll grant you a week that doesn't count against your time off, so long as you don't tell the others. Deal?"
+
+It was more generous than mortal employers, but it still didn't change what he'd done. Though if any other reaper had done it, Emma wouldn't have even known about the boys. Grant's serious purple eyes freaked out about rent flashed in her mind, and she sighed. "Thank you, for the time and for sending me. They're great kids." 
+
+"As if that should surprise you? See you in a week." The phone clicked. 
+
+Maybe one day she would get used to grim always being right in the end. Emma doubted it. 
+
+She changed into clothes that allowed her to blend in with humans, her trusty light blue jeans and black hoodie. Then she made her way back to the city. Emma packed up what looked like it mattered into a box. There really wasn't much in the apartment. 
+
+When everything was handled, she made her way back to the woods with the box. 

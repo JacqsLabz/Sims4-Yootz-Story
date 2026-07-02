@@ -4,7 +4,8 @@
 		{"id":"98b6e42d6d88bf95","type":"group","x":-1577,"y":1271,"width":3604,"height":1609,"label":"Lagistics"},
 		{"id":"fa48381217b041b7","type":"group","x":-1598,"y":-120,"width":3632,"height":1138,"label":"Belonging?"},
 		{"id":"07ac2475860993d0","type":"group","x":-1593,"y":-1319,"width":3173,"height":959,"label":"From Then To"},
-		{"id":"c745b2a2dd71f5e7","type":"text","text":"The hand-rubbing payoff for later:\n\nBecause that's how Grant operates: He notices things without immediately commenting on them.\n\n----\n\nThen, later, Emma starts rubbing her hands again.\n\nGrant just says something like, \"You can phase if you need to.\"\n\nEmma looks over. \"...You noticed?\"\n\n\"You always rub your hands first.\"\n\n----\n\nThat's a fantastic payoff. It rewards attentive readers exactly the same way it rewards Emma. It also tells Emma something she probably hasn't realized: Someone has been paying attention to her.","x":2280,"y":1040,"width":400,"height":400},
+		{"id":"ffe77a2f043871cc","x":-260,"y":1600,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22.1_MorningTea.md"},
+		{"id":"c745b2a2dd71f5e7","type":"text","text":"The hand-rubbing payoff for later:\n\nBecause that's how Grant operates: He notices things without immediately commenting on them.\n\n----\n\nThen, later, Emma starts rubbing her hands again.\n\nGrant just says something like, \"You can phase if you need to.\"\n\nEmma looks over. \"What?\"\n\n\"You always rub your hands first.\"\n\n----\n\nThat's a fantastic payoff. It rewards attentive readers exactly the same way it rewards Emma. It also tells Emma something she probably hasn't realized: Someone has been paying attention to her.","x":2280,"y":1040,"width":400,"height":400},
 		{"id":"243f8cafecb047d6","type":"text","text":"With the popcorn, make sure Grant thinks about how it's about that Jane was helping them all along. It's not about \"oh Savanna didn't entirely reject everything\" it's about Grant knows he can trust Jane, because Jane is familiar, Jane isn't totally new. Without knowing it, a part of Jane has been there helping them all along. It's part of why Grant relaxes. He's not moving to something new, he's coming home to who he's always been. He might not have Sara's red hair, but he has her protective temperament. \n\nJane didn't know it, but she had help them get through some of the hardest times in that apartment. ","x":-4560,"y":-2080,"width":400,"height":400},
 		{"id":"9110c46b8d3581f2","type":"text","text":"Maybe Grant was the only person he knew with purple eyes, and that's part of why he notices them in Emma.\n\nAnd then he notices them in Jane. \n\nAgain building this trust, so he can let Jane worry about Ben and relax. ","x":-4120,"y":-2080,"width":400,"height":400},
 		{"id":"38fc78284ae07317","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/05_Reaping.md","x":-1400,"y":-1080,"width":400,"height":400},
@@ -14,14 +15,14 @@
 		{"id":"47107e9c53ce3ac7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/12_FamilyTree.md","x":-840,"y":480,"width":400,"height":400},
 		{"id":"928e44cc5dee642b","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/14_JaneWasAlwaysHelping.md","x":320,"y":480,"width":400,"height":400},
 		{"id":"e2b3c863f69d5317","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/13_RestMyEyes.md","x":-280,"y":480,"width":400,"height":400},
-		{"id":"a2c2d4bddea91ac7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/CabinMeal.md","x":1280,"y":480,"width":400,"height":400},
-		{"id":"71f397331cd65956","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/Sara.md","x":800,"y":480,"width":400,"height":400},
+		{"id":"a2c2d4bddea91ac7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/16_CabinMeal.md","x":1280,"y":480,"width":400,"height":400},
+		{"id":"71f397331cd65956","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/15_Sara.md","x":800,"y":480,"width":400,"height":400},
 		{"id":"d53dab695d9d3097","type":"text","text":"Grant initially looks for Ben, and Jane has tucked Ben in for a nap because his little system needs a break. \n\nMaybe they get outside.\n\nIdk, I might prefer the \"where's Ben?\" \"Oh I already laid him down to sleep in my tent over there\" type of sequence.","x":-1240,"y":2140,"width":400,"height":400},
 		{"id":"f0bb441e97b415a5","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/20_BenAsleep.md","x":-1240,"y":1600,"width":400,"height":400},
 		{"id":"c0b787dc76e22607","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/21_GoGhost.md","x":-680,"y":1600,"width":400,"height":400},
 		{"id":"69ed22a06ea31e34","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/23_SleepingIn.md","x":660,"y":1600,"width":400,"height":400},
-		{"id":"90bb1aa5807f25fd","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22_FunctionalAdults.md","x":-60,"y":1600,"width":400,"height":400},
-		{"id":"9aa332daabffa4ff","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/24_Laptop.md","x":1200,"y":1600,"width":400,"height":400}
+		{"id":"9aa332daabffa4ff","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/24_Laptop.md","x":1200,"y":1600,"width":400,"height":400},
+		{"id":"90bb1aa5807f25fd","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22_Morning.md","x":160,"y":1600,"width":400,"height":400}
 	],
 	"edges":[
 		{"id":"4388119e0df3c920","fromNode":"c945bef325d58f5b","fromSide":"right","toNode":"47107e9c53ce3ac7","toSide":"left"},

@@ -8,7 +8,7 @@ Grant looked towards where Sara had gone. He would bet that hurt was why Emma ha
 
 Cass turned to Jane and held her middle, "Hey, um," her stomach growled loudly and she tensed. 
 
-Jane turned to the boys, "In the mean time, when was the last time you boys ate? I bet you're hungry." She stood. "I think I'll make some sausage, popcorn, and what do you boys like?"
+Jane turned to the boys, "In the mean time, when was the last time you boys ate? I bet you're hungry." She stood. "I think I'll cook some sausage, popcorn, and what do you boys like?"
 
 "I wanna come help make popcorn!" Ben beamed and went over to her. 
 
@@ -16,7 +16,7 @@ Grant found himself smiling a little, Ben always loved it when they made popcorn
 
 "Alright, extra popcorn!" Jane matched Ben's big grin. "What about you, Grant?"
 
-He shrugged, "Anything is fine really, I'm not picky." 
+He shrugged, "Anything is fine really, I'm not picky." He really didn't feel that hungry, mostly just relieved to see Ben so excited. It helped Grant relax just a little. 
 
 "Ok, as long as you're sure." Jane gave a meaningful look at Cass. "You going to be ok Cass?" 
 

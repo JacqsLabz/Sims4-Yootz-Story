@@ -44,9 +44,9 @@ Emma nodded and mouthed back, "She's gone. Like gone gone."
 
 Jane bit her lip. Cass looked down. 
 
-Sara scowled and fidgeted for a moment, then stood. "I need a minute." She walked off into the trees. 
+Sara scowled and fidgeted for a moment, then stood. "I need a minute." She walked off toward the cabin. 
 
-Cass stood and turned toward where she had gone. 
+Cass stood and turned toward it too. 
 
 "Let her go Cass." Jane sighed. "She'll need space." 
 
