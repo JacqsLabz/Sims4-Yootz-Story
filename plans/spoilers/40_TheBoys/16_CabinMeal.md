@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
+  - "[[TheBoys.canvas]]"
 ---
 Grant ended up deciding he wanted a plate of the real food, and Cass led him to the cabin. 
 

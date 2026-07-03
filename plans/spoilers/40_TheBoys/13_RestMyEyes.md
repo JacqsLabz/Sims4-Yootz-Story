@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Grant decided to follow suit. He picked what looked like the comfiest chair, and let himself relax into it. It felt good to get off his feet. 
 

@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys:
+  - "[[TheBoys.canvas]]"
+TheBoys:
   - "[21_GoGhost](21_GoGhost.md)"
 ---
 When they got outside, Grant heard Jane's voice, "Poor Ben." 

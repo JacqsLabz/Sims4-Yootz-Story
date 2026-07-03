@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
+  - "[[TheBoys.canvas]]"
 ---
 Emma is on the job one day. The last reaping for the her shift was in the city, in a very small apartment. Everything was routine, until she realized she was reaping Savanna's soul. As she did, she also felt Savanna's soul ascend and leave their reality for good, taking with it any chance to resurrect her twin. Once it's entirely, permanently gone, Emma actually took in the small rundown apartment, and spotted two boys, a teen and a child. The child spoke first, "Mom? Is that you?"
 

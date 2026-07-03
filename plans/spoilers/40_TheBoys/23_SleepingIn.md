@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Grant woke to his phone ringing. He rolled over and pulled it out. What the hell did Jessie want now? "What?"
 

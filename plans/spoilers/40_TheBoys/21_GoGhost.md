@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 "We need to figure out where you boys are going to live." Sara sat looking at the unlit fire pit. 
 

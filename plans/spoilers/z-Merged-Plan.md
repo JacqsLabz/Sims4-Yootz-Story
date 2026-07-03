@@ -186,7 +186,7 @@ Or what if it's normal for child & toddler vampires to get their fangs and that'
 		{"id":"e0315fe85968b8cc","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/10_Before.canvas","x":-520,"y":-52,"width":400,"height":400},
 		{"id":"f54e3bf23438d562","x":2000,"y":520,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/35_FirstFullMoon/35_FirstFullMoon.canvas"},
 		{"id":"ad21140209c99e01","x":2800,"y":-52,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/36_AngerMgmt.canvas"},
-		{"id":"391053a123865c15","x":3760,"y":-452,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/40_TheBoys.canvas"}
+		{"id":"391053a123865c15","x":3760,"y":-452,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/TheBoys.canvas"}
 	],
 	"edges":[
 		{"id":"e1b3dbccd7d6bbce","fromNode":"e97ba2547043f1ef","fromSide":"right","toNode":"f54e3bf23438d562","toSide":"left"},
@@ -591,11 +591,12 @@ Anne waved a hand. "You might not carry the Yootz name, at least not yet, but yo
 	"nodes":[
 		{"id":"4e6f4d24b5884e84","type":"text","text":"Anne and Kaylie get married","x":730,"y":76,"width":400,"height":400},
 		{"id":"b3d20224137f7180","type":"text","text":"Emma moves to a haunted house in Mourningvale, and explores all things ghost & afterlife related. Basically fully embracing and exploring what she is: a former ghost. \n\nShe had out of body experiences, and she starts to work for the grim reaper. Everything about her life is related to death. ","x":730,"y":-393,"width":400,"height":400},
-		{"id":"8cbc5f60da2635d5","type":"text","text":"The fanged toddlers grow up a bit","x":-665,"y":76,"width":400,"height":400},
+		{"id":"8cbc5f60da2635d5","type":"text","text":"The fanged toddlers Clara and Lorelei grow up to children","x":-665,"y":76,"width":400,"height":400},
 		{"id":"b35957504fe1a5ff","type":"text","text":"Kaylie makes jewelry? including at least one moonstone necklace? \n\nAnd that's how we get to Cass having one or two to help ground herself? \n","x":-465,"y":-393,"width":400,"height":400},
 		{"id":"715774b6813a0ea8","type":"text","text":"Emma moves in for a time. She explores Ravenwood more, and then decides to move to another part of Ravenwood. ","x":-200,"y":76,"width":400,"height":400},
 		{"id":"8214922551299a25","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Ravenwood/Ravenwood Mansion.md","x":-1130,"y":76,"width":400,"height":400},
-		{"id":"2f3c2e70b2416a86","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Ravenwood/Marketing Jewelry.md","x":-1130,"y":-475,"width":400,"height":400}
+		{"id":"2f3c2e70b2416a86","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/30_Ravenwood/Marketing Jewelry.md","x":-1130,"y":-475,"width":400,"height":400},
+		{"id":"a1cd90bfac60d953","x":0,"y":-760,"width":400,"height":400,"type":"text","text":"Lorelei"}
 	],
 	"edges":[
 		{"id":"83c81d0a874aab23","fromNode":"715774b6813a0ea8","fromSide":"right","toNode":"4e6f4d24b5884e84","toSide":"left"},
@@ -1558,7 +1559,7 @@ But with Cass, Sara can feel that it's all going to be ok. And she knows to trus
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
+  - "[[TheBoys.canvas]]"
 ---
 Emma is on the job one day. The last reaping for the her shift was in the city, in a very small apartment. Everything was routine, until she realized she was reaping Savanna's soul. As she did, she also felt Savanna's soul ascend and leave their reality for good, taking with it any chance to resurrect her twin. Once it's entirely, permanently gone, Emma actually took in the small rundown apartment, and spotted two boys, a teen and a child. The child spoke first, "Mom? Is that you?"
 
@@ -1592,7 +1593,7 @@ Grant swallowed. "No Ben, he can't."
 
 "If you leave us here, what are we supposed to do? My paycheck alone can't cover rent and groceries and bills." Anger mixed with paralyzing fear. He knew all the number by heart. Savanna hadn't been making much, but it had taken both of them to make ends meet. 
 
-It was such a practical question. Emma supposed it shouldn't have surprised her, the kid had Jane's rare eye color: the same purple eyes that Emma herself had. They were family, she couldn't just leave them. And speaking of Jane, Emma was willing to bet her mother would take in two more human kids. "Alright, I know someone, I'll take you to them."
+It was such a practical question. Emma supposed it shouldn't have surprised her, the kid had Jane's rare eye color: the same purple eyes that Emma herself had. They were family, she couldn't just leave them. Last Emma heard, Jane was human again and living in the woods with Emma's human niece Cass. She could simply leave the boys there, because Jane was always big on maternal instincts. She'd probably enjoy taking in two more human kids. "Alright, I know someone, I'll take you to them."
 
 "Who?" The teen hesitated. 
 
@@ -1605,23 +1606,23 @@ After introductions, the boys grabbed a few things and they left the apartment.
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
+  - "[[TheBoys.canvas]]"
 ---
 They arrived together at Gibbi point. Emma sighed. Her soul wanted to assert itself, to phase her body into a ghost. But it would need to wait. This was going to be hard enough without her appearing as though she was dead. She could just picture Jane panicking and searching her garden for death flowers, this was going to be hard enough without any of that. 
 
-As Emma led the boys from the road back to the small cabin, they walked into a clearing with Sara and Cass sitting on folding camping chairs. There was a whole group of chairs, logs, and rocks around a campfire that was currently out. 
+As Emma led the boys from the road back to the small cabin, they walked into a clearing with Sara and Cass sitting on folding camping chairs. There was a whole group of chairs, logs, and rocks around a campfire that was currently unlit. 
 
 "Hey." Sara called out, one of her signature bloody mary drinks made from blood fruit in hand, "Didn't expect to see you here."
 
-"Didn't expect to be here." Emma came closer. "Though didn't expect you here either. What's with the bandage?" Why was her mother out in the sun with a wound? 
+"Didn't expect to be here." Emma came closer. "Though didn't expect you here either. What's with the bandage?" Why was her mother out in the sun with a wrapped up wound? 
 
 Sara waved a hand, "It's nothing, really. I'm fine."
 
-Cass looked down at her own bandage and blushed. Strange indeed. But Cass already looked uncomfortable about it, so Emma left it alone, for now. "I was hoping to talk to Jane. Is she about somewhere?"
+Cass looked down at her own bandaged wrapped arm and blushed. Strange indeed. But Cass already looked uncomfortable about it, so Emma left it alone, for now. "I was hoping to talk to Jane. Is she about somewhere?"
 
 "I think, oh, there she is." Sara pointed. 
 
-Emma turned and saw Jane come flying into view. On fairy wings. Emma frowned, was her family allergic to staying human or something? Not that she had room to talk, but still. Even Cass's life energy was also different somehow, wilder. 
+Emma turned and saw Jane come flying into view. On fairy wings. Emma frowned, was her family allergic to staying human or something? Not that she had room to talk, but still. Even Cass's life energy was also different somehow, wilder, to Emma. She was willing to bet both of them weren't human anymore. Time to see if her plan stood a snowball's chance in hell. 
 
 "Grandma can fly?" Ben asked, eyes lit with wonder. 
 
@@ -1649,15 +1650,17 @@ Emma nodded and mouthed back, "She's gone. Like gone gone."
 
 Jane bit her lip. Cass looked down. 
 
-Sara scowled and fidgeted for a moment, then stood. "I need a minute." She walked off toward the cabin. 
+Sara scowled and fidgeted for a moment, then stood. "I need a minute." Her tone was gruff, and then she marched towards a cabin further back in the trees. 
 
-Cass stood and turned toward it too. 
+Cass stood and turned, as if she was about to follow. 
 
 "Let her go Cass." Jane sighed. "She'll need space." 
 
 "But..."
 
 "Trust me, she'll come to us when she's ready." 
+
+Cass sat back down in her chair, worried and rubbing her necklace. 
 
 "Are we gonna be in trouble?" Ben asked. "Since we made her mad."
 
@@ -1668,8 +1671,8 @@ Cass stood and turned toward it too.
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys:
+  - "[[TheBoys.canvas]]"
+TheBoys:
   - "[12_FamilyTree](12_FamilyTree.md)"
 ---
 Grant looked towards where Sara had gone. He would bet that hurt was why Emma had hesitated to come here. Would they truly be welcome here? 
@@ -1697,8 +1700,8 @@ He shrugged, "Anything is fine really, I'm not picky." He really didn't feel tha
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys:
+  - "[[TheBoys.canvas]]"
+TheBoys:
   - "[13_RestMyEyes](13_RestMyEyes.md)"
 ---
 Once Ben and Jane were out of earshot, Emma came in close to Grant, "So Ben is your...?" Emma let the question hang.
@@ -1716,8 +1719,8 @@ Emma found it interesting, technically Grant might have had an out, a way to sur
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Grant decided to follow suit. He picked what looked like the comfiest chair, and let himself relax into it. It felt good to get off his feet. 
 
@@ -1740,8 +1743,8 @@ Grant rubbed his eyes for a moment. Nodding off wasn't like him, but at least Be
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Jane got sat down and smiled over at Grant, "What do you think Grant dear?" 
 
@@ -1754,8 +1757,8 @@ He swallowed and smiled up at Jane, "Thank you, it's great." Jane didn't know it
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys:
+  - "[[TheBoys.canvas]]"
+TheBoys:
   - "[16_CabinMeal](16_CabinMeal.md)"
 ---
 Maybe at first Sara is trying to burn off the hurt of Savanna being gone sparring with Don, and it's not working, but comes to this realization, either from herself or Don, that while every chance she never got with Savanna is now so permanently gone, her boys need them. She can't be there for her daughter, but Sara can be there for these two young boys. It gives her something to do. She can move, she's not paralyzed by the loss. And that helps her stabilize. I would say she's kinda done this before, with the challenges she's faced before, someone in her family needed her. I mean, she's the woman that was turned without knowing about vampires, looked down at her pregnant belly, and accepted drinking blood because it was what her unborn child needed.  
@@ -1765,7 +1768,7 @@ Maybe at first Sara is trying to burn off the hurt of Savanna being gone sparrin
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
+  - "[[TheBoys.canvas]]"
 ---
 Grant ended up deciding he wanted a plate of the real food, and Cass led him to the cabin. 
 
@@ -1781,15 +1784,15 @@ A sunlight reversal cocktail, for vampires? That certainly was a new one on Gran
 
 "Of course dear." Sara went to work mixing the drinks with a soft smile on her face. There was a practiced ease to her movements as her hands worked. 
 
-Cass sat at the small two person table and started to eat her food. Grant decided to follow suit again, and joined her as she wolfed down the meat. Once he tasted it, he could see why. Jane could make a lot more than just popcorn. Sara brought them their drinks, and then her and Don each gulped down a yellow drink, that was literally glowing. Grant wondered just how the drink was luminescent. 
+Cass sat at the small two person table and started to eat her food. Grant decided to follow suit again, and joined her as she wolfed down the cooked meat. Once he tasted the dish, he could see why: Jane could make a lot more than just popcorn. Sara brought them their drinks, and then her and Don each gulped down a yellow drink, that was literally glowing. Grant wondered just how the drink was luminescent. 
 
-Grant was full after his plate and float, while Cass went back for thirds of the meat. Then she sat rubbing her necklace again. After a minute she yawned, "I think I'm going to lay down." She stood and turned to the door. 
+Grant was full after his plate and float, while Cass went back for thirds of the cooked meat. Then she sat rubbing her necklace again. After a minute she yawned, "I think I'm going to lay down." She stood and turned to the front door. 
 
 "Cass, dear, how about sleeping downstairs? Just for today." 
 
 Cass gave Grant a look he couldn't make sense of. Then closed her eyes for a moment, "I guess." Cass padded over to a door and went inside. 
 
-Don looked to Sara who nodded, then followed Cass. "Well," Sara turned to Grant, "I think we've left the others waiting long enough?" 
+Don looked to Sara who nodded, then he followed Cass. "Well," Sara turned to Grant, "I think we've left the others waiting long enough?" 
 
 Grant followed his great grandmother back outside to the clearing with all the seating.  
  
@@ -1798,8 +1801,8 @@ Grant followed his great grandmother back outside to the clearing with all the s
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys:
+  - "[[TheBoys.canvas]]"
+TheBoys:
   - "[21_GoGhost](21_GoGhost.md)"
 ---
 When they got outside, Grant heard Jane's voice, "Poor Ben." 
@@ -1819,8 +1822,8 @@ Grant came close to Jane and put his hand to Ben's head. "Guess we better get hi
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 "We need to figure out where you boys are going to live." Sara sat looking at the unlit fire pit. 
 
@@ -1925,17 +1928,17 @@ Grant slept in the same tent as Ben. It felt good to know the kid is close and s
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\22.1_MorningTea.md 
  
  
-The next morning, maybe the three main adults (Emma, Jane, & Sara) were having a little morning tea/coffee & chat out by the unlit firepit. 
+The next morning, maybe the three main adults (Emma, Jane, & Sara) were having a little morning tea/coffee & chat out by the unlit firepit. Or maybe they lit it? Early morning can be a little chilly? 
 
 Maybe they are discussing Ben & Grant, and maybe Jane has decided she wants to take Ben. She wants to see if he wants to live around fairies. Because keeping them in a purely human place didn't work. Probably better that they know about the world, because human ignorance had failed. Maybe the key wasn't keeping the humans away from the magic, but showing them what the magic was and what it did. So they knew how to handle it. These boys has already left Savanna's magic free apartment. ANd they had seen how Ben responded to Jane being a fairy and how Grant had reposnded to Emma being ghost-ish. 
 
-"They aren't like Savanna, they don't hate the supernatural."
+"They aren't like Savanna, they don't hate the supernatural." Emma said. 
 
-"So maybe we don't have to keep them away from it, just educate them about how to handle it. For now Ben need protection and attentiveness." Jane said. "I think I can give that."
+"So maybe we don't have to keep them away from it, just educate them about how to handle it. For now Ben need protection and attentiveness." Jane turned to Sara. "And I can give that."
 
 "And I think we can convince Grant to be ok that." Sara held her mug close. "I'm not sure where he should go, but probably not with Ben."
 
-"You saw it too?" Emma asked. 
+"You saw it too?" Jane asked. 
 
 Sara nodded, "He needs a break."
 
@@ -1943,21 +1946,21 @@ Sara nodded, "He needs a break."
 
 Sara tilted her head.
 
-"What?"
+"What it is?" Emma knew that look: Sara had an idea. 
 
-Sara shook herself. "Sorry, you're exactly right. Maybe he should go with you." Sara looked into her mug of tea, "At least temporarily."
+Sara shook herself. "Sorry, you're exactly right. Which made me think: maybe he could go with you." Sara looked into her mug of tea, "Temporarily anyway, I don't think he need to be away from Ben long term."
 
-"Mom I-" Emma pinched the bridge of her nose. 
+"With me?" The kid needed to relax, and her house was haunted. Though, she supposed Grant wasn't the only one that needed to relax. As she was Sara would be quick to remind her if she said anything about it. 
 
-Sara's phone dinged. She checked it and frowned. "Just think about it, ok?" Sara quickly put down the mug, then with her superspeed disappeared in the flash.  
+"I'm just suggesting it, don't forget that it's your decision to make, ok dear?"  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\22.2_MorningPancakes.md 
  
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Idk if discussing Ben & Grant, but maybe just sitting & enjoying the morning. So when Ben wakes up and stumbles out of the tent, they're all right there. 
 
@@ -1996,14 +1999,14 @@ When everything was handled, she made her way back to the woods with the box.
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Grant woke to his phone ringing. He rolled over and pulled it out. What the hell did Jessie want now? "What?"
 
-"Where the hell are you? Your shift starts in 10 minutes." 
+"Where the hell are you? Your shift starts in 10 minutes." His voice came through the phone. 
 
-But his alarm hadn't gone off yet... Grant blinked at his phone screen. The rush was like lightening through his nervous system. He hadn't just slept through his alarm, it was the afternoon! Jessie was right. Grant jumped to his feet looking for his keys and work uniform. 
+But his alarm hadn't gone off yet... Grant blinked at his phone screen. The rush was like lightening through his nervous system. He hadn't just slept through his alarm, it was the afternoon! The guy was right. Grant jumped to his feet looking for his keys and work uniform. 
 
 But for a minute Grant didn't know where he was. This wasn't the apartment. It was a tent? Why was he in a tent? Was this a dream? Who's tent... the memories of yesterday hit him all at once. Savanna. Emma. Jane. Sara. Cass. All of it. 
 
@@ -2011,15 +2014,15 @@ But for a minute Grant didn't know where he was. This wasn't the apartment. It w
 
 "Dude, the hell?" Then Jessie lowered his voice and whispered into the phone, "I went by your apartment. What are you doing?"
 
-It occurred to Grant that the phrase 'it's complicated' didn't even begin to cover what was going on. Grant had to resist laughing at the truth: He was sleeping in a fairy's tent outside a werewolf safehouse. "Just tell them I'm sick, ok?" 
+It occurred to Grant that the phrase 'it's complicated' didn't even begin to cover what was going on. Grant had to resist laughing at the truth: He was sleeping in a fairy's tent outside a werewolf safehouse. Grant couldn't tell Jessie or his boss the truth, they'd never believe it. "Just tell them I'm sick, ok?" 
 
-Jessie started to complain about how they were going to be short fo rthe shift anyway, but then Grant heard Ben calling for him from outside the tent. 
+Jessie started to complain about how they were going to be short for the shift anyway, but then Grant heard Ben calling for him from outside the tent. 
 
-So he kept his voice down as he interrupted Jessie's rant, "I gotta go."
+So he kept his voice down as he interrupted Jessie's rant, "Dude, I gotta go."
 
 "Don't you hang up on me Grant!"
 
-Grant kept his voice down but didn't hide his anger. "Ben needs me, I gotta go." Grant hung up the phone and set it on silent. Jessie could call him all day for all he cared; Grant couldn't count the number of times he had told the guy he meant it when he said things like he had to get off the phone. With any luck, maybe he wouldn't need to have a job here very soon. That would be so nice, hard to believe. But Grant didn't dwell on it. He took a slow breath and tried to put on a smile. 
+Grant kept his voice down but didn't hide his anger. "Ben needs me, I gotta go." Grant hung up the phone and set it on silent. Jessie could call him all day for all he cared; Grant couldn't count the number of times he had told the guy he meant it when he said he had to get off the phone. With any luck, maybe he wouldn't need to have a job here very soon. That would be so nice, it was hard to believe. But Grant didn't dwell on it. He took a slow breath and tried to put on a smile. 
 
 Ben unzipped the door to the tent. "Good morning!" He came over and hugged Grant. "Sleepy head. You missed all the fun." 
 
@@ -2027,7 +2030,7 @@ Ben unzipped the door to the tent. "Good morning!" He came over and hugged Grant
 
 Ben started listing off activities, from making pancakes with Jane, to watching Cass and Sara race in kayaks. 
 
-Grant tried his best to be attentive. Despite the sleep, he felt so exhausted. 
+Grant tried his best to be attentive. Despite the extra sleep, he felt so exhausted. 
 
 "I'm glad you had fun buddy. Can you do me a favor?"
 
@@ -2044,10 +2047,10 @@ Left alone with his own thoughts, Grant took a revised mental inventory as he go
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
- Grant came out to the circle of seats in the clearing, to find Emma... in normal clothes. She was sitting and sipping on some tea there. 
+ Grant came out to the circle of seats in the clearing, to find Emma... in normal clothes. She was sitting and sipping on some tea. 
  
 "Hey," Grant came near her chair. "I'm sorry, but I need to go back to the apartment, I left Savanna's laptop there." 
 
@@ -2061,46 +2064,87 @@ So that was one problem solved. On to the next one. "Ok so is there somewhere ar
 
 "Oh, I took care of your schools too. Told them you were moving, because of, you know, everything." 
 
-Grant swallowed. Shouldn't he feel relieved? He found himself moving to sit in one of the chairs. He didn't know what was wrong. Like he couldn't even really put the feeling into words, just his body... didn't feel right. "Thanks." He said flatly. Maybe he was getting sick? That was always such a pain, because Ben would always get it too. Grant rubbed his temples.  
+Grant swallowed. Shouldn't he feel relieved? He found himself moving to sit in one of the chairs. He didn't know what was wrong. Like he couldn't even really put the feeling into words, just his body... didn't feel right. "Thanks." He said flatly. Maybe he was getting sick? That was always such a pain, because anything he caught, Ben would always catch it too, the poor kid. Grant rubbed his temples. 
+
+When he opened his eyes, Emma was watching him. "What is it?" He asked. 
+
+"If you feel a headache coming on, this tea actually helps with that sometimes." Emma pointed to the rock where the teapot & cups sat, then sipped from her mug. 
+
+Grant wasn't sure if it was a headache, but he was thirsty. He guessed that made sense, most of the day was over and he'd had nothing to eat or drink. Not the first time, not by a long shot, but it was generally something he avoided if he could. Feeling like crap from being dehydrated or whatever made things like going to work harder. He grabbed a mug of tea, took a sip, and found it tasted nice. He sat and slowly sipped on it, enjoying the warmth of it. "Thank you. Really. For everything. You didn't have to do all of that." 
+
+Emma shrugged, "My boss gave me a week of bereavement leave, I had the time." She sipped her tea. "Anyway, I talked to my mom, Jane, earlier this morning, and she decided she would be happy to let Ben stay with her. She has an idea where she wants to move, and she's going to show him to see if he's comfortable there." 
+
+"That's good." Grant rubbed his face. "She's so warm, and attentive. He needs that."
+
+Emma nodded, "That's what we thought too."
+
+ "I guess that's why he's so drawn to her." Grant look at his mug. 
+
+"Some children have an intuition to them like that, draws them to what they need." Emma paused. "I've decided I need a break, since I have a week off work anyway. I'm going to rent a cabin out in Granite Falls. You seem to be enjoying being out here, do you want to come with?" She had been debating between renting a camp ground or a cabin. Seeing him stagger in the chair like that, a cabin would be best, just in case. She could setup a tent for herself right outside the cabin. Rough it could be fun, but not if someone wasn't feeling so hot physically. 
+
+Grant thought joining her sounded really nice. He'd forgotten about bereavement, maybe he could get at least a few days off work? Technically, legally Savanna was his adopted mother. Surely that entitled him to at least a few days; he couldn't remember the exact policy, but he was pretty sure it was like three or five or something like that. "Yeah, yeah I do." His breath was shaky. He made a mental note to call his boss later. It would at least buy him time to figure out what he was going to do.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\Mindset.md 
  
  
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Grant's Core Mindset: "If reality is bigger than I thought yesterday... how much bigger is it?" 
  
-# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\40_TheBoys.canvas 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\TheBoys.canvas 
  
  
 {
 	"nodes":[
+		{"id":"c17d7265fc5017b3","type":"group","x":-1552,"y":3040,"width":5312,"height":2080,"label":"Visit Anne"},
+		{"id":"dc44f63e26c2a3d4","x":-1515,"y":5673,"width":4314,"height":2117,"type":"group","label":"Camping"},
 		{"id":"9e5d9db90ec3b1fd","type":"group","x":-5064,"y":-2353,"width":3004,"height":2193,"label":"Inbox"},
 		{"id":"98b6e42d6d88bf95","type":"group","x":-1577,"y":1271,"width":3604,"height":1609,"label":"Lagistics"},
 		{"id":"fa48381217b041b7","type":"group","x":-1598,"y":-120,"width":3632,"height":1138,"label":"Belonging?"},
 		{"id":"07ac2475860993d0","type":"group","x":-1593,"y":-1319,"width":3173,"height":959,"label":"From Then To"},
-		{"id":"ffe77a2f043871cc","x":-260,"y":1600,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22.1_MorningTea.md"},
-		{"id":"c745b2a2dd71f5e7","type":"text","text":"The hand-rubbing payoff for later:\n\nBecause that's how Grant operates: He notices things without immediately commenting on them.\n\n----\n\nThen, later, Emma starts rubbing her hands again.\n\nGrant just says something like, \"You can phase if you need to.\"\n\nEmma looks over. \"What?\"\n\n\"You always rub your hands first.\"\n\n----\n\nThat's a fantastic payoff. It rewards attentive readers exactly the same way it rewards Emma. It also tells Emma something she probably hasn't realized: Someone has been paying attention to her.","x":2280,"y":1040,"width":400,"height":400},
 		{"id":"243f8cafecb047d6","type":"text","text":"With the popcorn, make sure Grant thinks about how it's about that Jane was helping them all along. It's not about \"oh Savanna didn't entirely reject everything\" it's about Grant knows he can trust Jane, because Jane is familiar, Jane isn't totally new. Without knowing it, a part of Jane has been there helping them all along. It's part of why Grant relaxes. He's not moving to something new, he's coming home to who he's always been. He might not have Sara's red hair, but he has her protective temperament. \n\nJane didn't know it, but she had help them get through some of the hardest times in that apartment. ","x":-4560,"y":-2080,"width":400,"height":400},
 		{"id":"9110c46b8d3581f2","type":"text","text":"Maybe Grant was the only person he knew with purple eyes, and that's part of why he notices them in Emma.\n\nAnd then he notices them in Jane. \n\nAgain building this trust, so he can let Jane worry about Ben and relax. ","x":-4120,"y":-2080,"width":400,"height":400},
-		{"id":"38fc78284ae07317","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/05_Reaping.md","x":-1400,"y":-1080,"width":400,"height":400},
-		{"id":"61d9bfd67ace531a","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/09_Arriving.md","x":-780,"y":-1080,"width":400,"height":400},
 		{"id":"b7e0131626d85d90","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/Mindset.md","x":-1580,"y":-2240,"width":400,"height":400},
-		{"id":"c945bef325d58f5b","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/11_Cooking.md","x":-1380,"y":480,"width":400,"height":400},
-		{"id":"47107e9c53ce3ac7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/12_FamilyTree.md","x":-840,"y":480,"width":400,"height":400},
-		{"id":"928e44cc5dee642b","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/14_JaneWasAlwaysHelping.md","x":320,"y":480,"width":400,"height":400},
 		{"id":"e2b3c863f69d5317","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/13_RestMyEyes.md","x":-280,"y":480,"width":400,"height":400},
+		{"id":"61d9bfd67ace531a","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/09_Arriving.md","x":-780,"y":-1080,"width":400,"height":400},
+		{"id":"47107e9c53ce3ac7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/12_FamilyTree.md","x":-840,"y":480,"width":400,"height":400},
+		{"id":"38fc78284ae07317","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/05_Reaping.md","x":-1400,"y":-1080,"width":400,"height":400},
+		{"id":"15ffb32f23952a57","type":"text","text":"Okay so I just realized I have Jane and Ben there and then suddenly Jane and Ben have been gone for a while. Time space continuum whoopsie. Maybe it's just that Jane was in the cabin, and so Ben wandered off to the cabin to go tell her that Grant's awake and wanting food, and maybe she's already making like lunch or something? I don't know or maybe she was around the fire with Emma and ben, again not fire lit it's the middle of the day, but Ben heard Grant stirring, Ben came into the tent, grant talked about food, been totaled back out of the tent until Jane that Grant wanted food and so they've headed off to the cabin to cook something, and that's why like it's just Emma that's there when Grant comes out of the tent or like is finished using the bathroom or whatever, and Grant might ask where Ben is at, or just confirm that he's in the cabin or something. Or maybe he's too stressed out about the school in the laptops to think about that? Like it's actually his defenses coming down one by one, but they are coming but it's one by one so like the constantly track Ben's location has come down, but the make sure the school is informed has not. And Emma could say that like you know Jane was planning on taking Ben with her to look at places later today, and then in her head she's thinking because we didn't want you to wake up and him not be here because we figured you wouldn't like that. And most of the conversation still goes the same about talking about going camping in granite falls instead of gibbi point. ","x":1080,"y":1600,"width":400,"height":400},
+		{"id":"9aa332daabffa4ff","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/24_Laptop.md","x":1520,"y":1600,"width":400,"height":400},
+		{"id":"ffe77a2f043871cc","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22.1_MorningTea.md","x":-260,"y":1600,"width":400,"height":400},
 		{"id":"a2c2d4bddea91ac7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/16_CabinMeal.md","x":1280,"y":480,"width":400,"height":400},
-		{"id":"71f397331cd65956","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/15_Sara.md","x":800,"y":480,"width":400,"height":400},
+		{"id":"c745b2a2dd71f5e7","type":"text","text":"The hand-rubbing payoff for later:\n\nBecause that's how Grant operates: He notices things without immediately commenting on them.\n\n----\n\nThen, later, Emma starts rubbing her hands again.\n\nGrant just says something like, \"You can phase if you need to.\"\n\nEmma looks over. \"What?\"\n\n\"You always rub your hands first.\"\n\n----\n\nThat's a fantastic payoff. It rewards attentive readers exactly the same way it rewards Emma. It also tells Emma something she probably hasn't realized: Someone has been paying attention to her.","x":2280,"y":1040,"width":400,"height":400},
+		{"id":"c0b787dc76e22607","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/21_GoGhost.md","x":-680,"y":1600,"width":400,"height":400},
 		{"id":"d53dab695d9d3097","type":"text","text":"Grant initially looks for Ben, and Jane has tucked Ben in for a nap because his little system needs a break. \n\nMaybe they get outside.\n\nIdk, I might prefer the \"where's Ben?\" \"Oh I already laid him down to sleep in my tent over there\" type of sequence.","x":-1240,"y":2140,"width":400,"height":400},
 		{"id":"f0bb441e97b415a5","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/20_BenAsleep.md","x":-1240,"y":1600,"width":400,"height":400},
-		{"id":"c0b787dc76e22607","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/21_GoGhost.md","x":-680,"y":1600,"width":400,"height":400},
-		{"id":"69ed22a06ea31e34","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/23_SleepingIn.md","x":660,"y":1600,"width":400,"height":400},
-		{"id":"9aa332daabffa4ff","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/24_Laptop.md","x":1200,"y":1600,"width":400,"height":400},
-		{"id":"90bb1aa5807f25fd","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22.2_MorningPancakes.md","x":160,"y":1600,"width":400,"height":400}
+		{"id":"c945bef325d58f5b","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/11_Cooking.md","x":-1380,"y":480,"width":400,"height":400},
+		{"id":"69ed22a06ea31e34","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/23_SleepingIn.md","x":620,"y":1600,"width":400,"height":400},
+		{"id":"90bb1aa5807f25fd","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/22.2_MorningPancakes.md","x":160,"y":1600,"width":400,"height":400},
+		{"id":"71f397331cd65956","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/15_Sara.md","x":800,"y":480,"width":400,"height":400},
+		{"id":"928e44cc5dee642b","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/14_JaneWasAlwaysHelping.md","x":320,"y":480,"width":400,"height":400},
+		{"id":"abc61368c49d5ed6","type":"text","text":"I feel like this \"crafty pair\" is refering to a certain memory? I mean, Emma did live in Anne's house for a time. So she's gotten to know her vampire nieces. ","x":-480,"y":3960,"width":400,"height":400},
+		{"id":"a77379acc5650054","type":"text","text":"Emma could be like well we need to go pick up the camping gear from my young sister's house, her house is bigger so we store things there. And Grant is completely caught off guard by Emma's casual \"bigger\" when he sees it. \n\nMaybe Emma would give him some sort of warning of like \"Oh by the way and lives with her two daughters and her now wife, but maybe don't go into a room alone with their two daughters?\"\n\n\"Why? Is there something wrong with her daughters?\"\n\n\"No, they got their fangs as toddlers.\"\n\n\"And how old are her daughters now?\"\n\n\"They're your age, but they're still children.\"\n\n\"I'm not a kid.\" And he wasn't about to be treated like one. \n\n\"No, but they are. They're nice kids, but they're also a crafty pair.\" Emma chuckled. ","x":-680,"y":3360,"width":400,"height":400},
+		{"id":"08153366a60d6fc8","type":"text","text":"This will really show Grant the world that he has stepped into. Because Sara and them aren't living in the woods because it's cheap. They're doing it because it fits Cass's needs, no one in his family stresses about money. ","x":-960,"y":4600,"width":400,"height":400},
+		{"id":"fd0a95831cd42344","type":"text","text":"Because Emma's younger sister and lives in a Ravenwood Manor, the big one in the southern part of the map that like by default isn't inhabited. In my story she fixed it up and turned it into the proper elite mansion befitting a socialite. ","x":-880,"y":3960,"width":400,"height":400},
+		{"id":"2b60f792e2b50ef3","type":"text","text":"Emma will want to stop by her own house to pack a few things, so Grant is going to get his first taste of her haunted house. Maybe even his initial reaction is that it's interesting. ","x":-1240,"y":3360,"width":400,"height":400},
+		{"id":"b5fe16017e93a842","x":-120,"y":3360,"width":400,"height":400,"type":"text","text":"Oh and meeting Anne herself is going to be a bit of a at least mental note for Grant. Because Anne is a foreign vampire she doesn't have a dark form. Yeah Grant has pieced together that Sara and Don are vampire, but they both have dark forms. He hasn't seen their fangs. They don't have fangs on a normal daily basis, they only have things in dark form not in regular form, and he's only seen them in regular form. Anne cannot hide her fangs, she has no separate form. She has fangs and glowing red eyes at all times, it's a weird quirk of her wonderfully unique biology of being turned in utero. And Emma probably won't think to warn Grant about that, because again for her it's just Tuesday. Like that's just part of her sister along with her blood red hair that she inherited from Sara. It's not abnormal and of note for Emma. And Anne is this bubbly social life it's going to be like \"Welcome darling!\" Because Anne did not get Sarah's tough nature. Anne can be ruthless, but it's completely different from her mother. Her type of ruthless is social ruthless, the kind of shark that is socialite needs to be sometimes. She knows how to play the game, but she doesn't play it when it's just family. She's completely charming and nice and friendly and proper and again giggling in her ankle length dress. Anne I will probably explain that Savanna is gone, and Anna will just be like oh my gosh I'm so sorry sweetie and hug her. It's almost a juxtaposition, she's the least normal looking one on a daily basis, but like socially probably the most normal of the bunch? At least by human standards."},
+		{"id":"ca9abb38154318e7","x":920,"y":3160,"width":400,"height":400,"type":"text","text":"they're in the Ravenwood Manor, Anne Emma Grant Kaylee they're together in you know some sort of room sitting on couches something like that. And kind of like a side note Emma mentioned oh yeah Jane will be by later today she needs to buy a house so she'll need money, and Anne's like do you know how much so I can get the paperwork ready, and Emma's like well I'm really not sure she's out looking for a place right now, she wants to see what Ben wants to do see what's best for the kid, maybe a hundred thousand or two I don't think she's going to go for that big of a place. And like at least internally Grant's jaw drops through the floor. This woman is casually talking about $100,000. Probably one of those things were in the moment Grant is simply observing, but I think that's a thing that like he's not going to be able to be quiet about when it's just him and Emma alone again. And maybe Emma is basically like well yeah whenever you look to buy a house just come talk to and she'll make the numbers work and we'll get you something, probably when you're older though. I mean I guess if you really want your own house as a teenager we can talk about it, but like I'm not sure living alone is the best thing for you right now. And Grant might basically be like I can just walk in there and ask her for that kind of money, and Emma's like well yeah you're part of the family duh. You're a Yootz hun."},
+		{"id":"5030d883513b6f34","x":920,"y":3640,"width":400,"height":400,"type":"text","text":"And so it's just like another complete paradigm shatter for Grant just this idea that like suddenly money is never a problem for him ever again. Like he's going to quickly understand the financial reality that yeah sure some members of the family have income, but because they choose to. We all work together we all help each other, and some of us sometimes don't have income and that's fine. Sara and Don certainly aren't working right now, and Emma's only doing the grimturn thing because she wants to not because she needs the money."},
+		{"id":"50faa898f27b48e9","x":2240,"y":3360,"width":400,"height":400,"type":"text","text":"fat checks when they were in the military"},
+		{"id":"759984aa35609027","x":1480,"y":3640,"width":400,"height":400,"type":"text","text":"And for Grant this is probably another one of those things that should be reassuring but like on some level scares his nervous system. Every element of his concept of reality is rapidly shifting, and this is just been like what like day two day three? I think day two. Like this is a rapid shift for him, but also gives him the confidence to quit that stupid job in the city."},
+		{"id":"ba0dc42140919e15","x":800,"y":4120,"width":400,"height":400,"type":"text","text":"there's like a special fund that was set aside for Savanna's return. Emma could basically mention it and be like yeah we'll probably have to pull some of Ben's half of Savanna's money, Jane will need it to buy a house for her and Ben live in. Like it could be framed from that angle of like there's a portion of the money that belongs to these two because it was set aside for Savanna, because Sara wanted to have three sources to welcome Savanna back in with open arms. I think that would really fit Sara, to have made that sort of financial decision a long time ago. Since like I said they have money to burn."},
+		{"id":"58b6ff6722e96c4e","x":160,"y":4040,"width":400,"height":400,"type":"text","text":"The strongest part isn't \"wow, they're rich.\"\n\nThe strongest part is that Grant discovers what financial security actually feels like."},
+		{"id":"a9c750ff5756cf13","x":1080,"y":4560,"width":400,"height":400,"type":"text","text":"Jane is going to need a large sum of money, where does Sara want that money to come out of? That sort of thing. Sara is sort of the one in charge, but not with the like rule with an iron fist sort of way, these are her daughters. They choose to let her lead, they intentionally follow. This is genuine care, not threat of excommunicado. Anne isn't afraid she'll be punished if she doesn't get Sara's approval, Anne genuinely wants Sara's input."},
+		{"id":"e4e712553a5ae2a4","x":1240,"y":4120,"width":400,"height":400,"type":"text","text":"I guess it is a sort of grief? It's a feeling that's hard to label for me, just this idea that he has been struggling so much for so long and there was no need for any of it. He never needed to work at all, Savanna could have come back to the family and would have been handed a house outright owned, no mortgage no rent nothing. Savanna might not have directly known that, but she never even got in contact with them, she never asked for help. She pushed them away, she attacked Emma in front of everyone. Like Jane and Sara and Anne were all there to watch. And still there was a fund for her, there was money set aside in case she ever changed her mind, well I guess from Sara's perspective more of when she changed her mind but well you know. I don't know I guess it just to me it just fits with the reaction that Sara had when she found out that Savanna was gone gone. This wasn't just a hope or a daydream, Sara assumed it was going to happen and did the necessary adult preparations, just the normal stuff that you do. This was real to Sara, she didn't know it was never going to happen."},
+		{"id":"c3859eecb3705bb2","x":1680,"y":4120,"width":400,"height":400,"type":"text","text":"I'm not seeing this as Grant being impressed with wealth or something like that, more just Grant's head is completely boggled because the concept of financial insecurity has just utterly been erased from his existence for the rest of his life. It just makes his past seems so meaningless. He has spent so much time stressing out about how to get Ben new shoes for school, when all along his extended family had a nest egg tucked away that can just casually buy a house for Ben to live in. And I mean technically it could buy a house for Grant too, but they don't make decisions the way Grant is used to making financial decisions. They make people decisions and support them with money they don't make money decisions and then try to make people work around them. Grant is used to having to fit him in Ben around the limits of money. This shows him that that entire concept just got flipped on its fucking head so hard."},
+		{"id":"319c732da5b59490","x":2120,"y":4120,"width":400,"height":400,"type":"text","text":"I just sort of had this little like moment in my head of like it's just Emma and grant, and grants like um what fun were y'all talking about earlier. And Emma is like well yeah of course Sara set aside a fund for Savanna, she figured if she came back she'd probably need like a house or something, so she had money set aside. Sometimes it wasn't that much money, we had to dip into it a bit when everyone split up, I guess that could have been when you were like a baby, but Sara made sure to refill it afterwards. That's where she put almost all of the money from those fat paychecks she got while she was in the military. The rocket was built mostly with my paychecks as a scientist. "},
+		{"id":"c008545dd8b460ba","x":3200,"y":3640,"width":400,"height":400,"type":"text","text":"Well yes of course they're not going to be all hushed tones about him or around him about the money. He's one of them. There is no question about rather he's part of the family. He's a teenager he's old enough to hear these things."},
+		{"id":"97ddc783d9a05922","x":2560,"y":4120,"width":400,"height":400,"type":"text","text":"Because like I'm picturing how Grant would feel about that, just this idea that Sara was throwing her paychecks into a fund that is now for him when she didn't even know he existed. Like he would recognize that that's someone working to take care of him, similar to that the popcorn recipe with Jane we're just like oh well Jane was always there, Sara was always there it was just completely invisible because it was a savings fund that he knew nothing about.\n\nBecause knowing a lot of it came from when Sara was in the military might make him feel like it's Sara's money, but Sara insisted the Savanna Fund be split in half and that one of those halves is Grant's. Like I said maybe they have to dip into Grant's half a little bit to get a house for Ben, but Grant won't care about that. Especially in the state he's in right now, he'd probably give the whole thing if Ben needed it. \n\nI'm also thinking that at first this might scare grant. He's used to the other two drops, he's used to favors come with strings. He thinks he doesn't understand Sarah and it scares him. But the thing is he actually understands her better than he knows. Because he's been doing the same exact thing for Ben, being there just because he's family. He didn't actually have to take care of the kid. He didn't technically have to be the adult in the situation. But in Grant's mind there was no other choice on the table. Which is very similar to how Sara sees thing in such situations. \"Because you're on my crew, why are we still talking about this?\" type of mindset. The \"well duh, you're family.\" "},
+		{"id":"acce361aca639f37","x":-1280,"y":5840,"width":400,"height":400,"type":"text","text":"One nightmare that wakes him soaked in sweat, followed by Emma quietly noticing he's already awake before dawn the next morning, would say much more than seven nights in a row.\n\nThe inconsistency feels more real.\n\nSome nights he sleeps twelve hours.\n\nSome nights he barely sleeps.\n\nSome afternoons he's almost himself.\n\nOther afternoons he just... stares at the trees.\n\nRecovery isn't linear."},
+		{"id":"b54d012e36dd967f","x":-200,"y":6160,"width":400,"height":400,"type":"text","text":"\"He's mentally losing that last sliver of the needing to hold himself together for Ben thing.\"\n\nInstead of:\n\n\"I have to hold myself together so Ben will be okay.\"\n\nIt slowly becomes:\n\n\"Ben is okay.\""}
 	],
 	"edges":[
 		{"id":"4388119e0df3c920","fromNode":"c945bef325d58f5b","fromSide":"right","toNode":"47107e9c53ce3ac7","toSide":"left"},
@@ -2108,6 +2152,13 @@ Grant's Core Mindset: "If reality is bigger than I thought yesterday... how much
 		{"id":"aee1fadeb2b966c5","fromNode":"e2b3c863f69d5317","fromSide":"right","toNode":"928e44cc5dee642b","toSide":"left"},
 		{"id":"175b56e2eb9f8159","fromNode":"71f397331cd65956","fromSide":"right","toNode":"a2c2d4bddea91ac7","toSide":"left"},
 		{"id":"6942da236c9c428c","fromNode":"f0bb441e97b415a5","fromSide":"right","toNode":"c0b787dc76e22607","toSide":"left"},
-		{"id":"0b1527b10d3fd4ca","fromNode":"f0bb441e97b415a5","fromSide":"bottom","toNode":"d53dab695d9d3097","toSide":"top"}
+		{"id":"0b1527b10d3fd4ca","fromNode":"f0bb441e97b415a5","fromSide":"bottom","toNode":"d53dab695d9d3097","toSide":"top"},
+		{"id":"645c9639b21b4a50","fromNode":"a77379acc5650054","fromSide":"bottom","toNode":"abc61368c49d5ed6","toSide":"top"},
+		{"id":"2b926ebcfb935a8e","fromNode":"fd0a95831cd42344","fromSide":"bottom","toNode":"08153366a60d6fc8","toSide":"top"},
+		{"id":"7964fb253a8ccea6","fromNode":"a77379acc5650054","fromSide":"bottom","toNode":"fd0a95831cd42344","toSide":"top"},
+		{"id":"34c1288fef4445ad","fromNode":"ba0dc42140919e15","fromSide":"right","toNode":"e4e712553a5ae2a4","toSide":"left"},
+		{"id":"6583940415876c8e","fromNode":"e4e712553a5ae2a4","fromSide":"right","toNode":"c3859eecb3705bb2","toSide":"left"},
+		{"id":"53b21daf22d6b112","fromNode":"c3859eecb3705bb2","fromSide":"right","toNode":"319c732da5b59490","toSide":"left"},
+		{"id":"72533eccb813b7e4","fromNode":"319c732da5b59490","fromSide":"right","toNode":"97ddc783d9a05922","toSide":"left"}
 	]
 }

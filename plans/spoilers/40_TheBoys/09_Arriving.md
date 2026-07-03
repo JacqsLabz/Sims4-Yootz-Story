@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
+  - "[[TheBoys.canvas]]"
 ---
 They arrived together at Gibbi point. Emma sighed. Her soul wanted to assert itself, to phase her body into a ghost. But it would need to wait. This was going to be hard enough without her appearing as though she was dead. She could just picture Jane panicking and searching her garden for death flowers, this was going to be hard enough without any of that. 
 

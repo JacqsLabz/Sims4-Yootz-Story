@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys:
+  - "[[TheBoys.canvas]]"
+TheBoys:
   - "[12_FamilyTree](12_FamilyTree.md)"
 ---
 Grant looked towards where Sara had gone. He would bet that hurt was why Emma had hesitated to come here. Would they truly be welcome here? 

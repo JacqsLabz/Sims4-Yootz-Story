@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[40_TheBoys.canvas]]"
-40_TheBoys: []
+  - "[[TheBoys.canvas]]"
+TheBoys: []
 ---
 Jane got sat down and smiled over at Grant, "What do you think Grant dear?" 
 

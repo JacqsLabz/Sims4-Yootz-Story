@@ -7,7 +7,7 @@
 		{"id":"e0315fe85968b8cc","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/10_Before/10_Before.canvas","x":-520,"y":-52,"width":400,"height":400},
 		{"id":"f54e3bf23438d562","x":2000,"y":520,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/35_FirstFullMoon/35_FirstFullMoon.canvas"},
 		{"id":"ad21140209c99e01","x":2800,"y":-52,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/36_AngerMgmt/36_AngerMgmt.canvas"},
-		{"id":"391053a123865c15","x":3760,"y":-452,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/40_TheBoys.canvas"}
+		{"id":"391053a123865c15","x":3760,"y":-452,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/40_TheBoys/TheBoys.canvas"}
 	],
 	"edges":[
 		{"id":"e1b3dbccd7d6bbce","fromNode":"e97ba2547043f1ef","fromSide":"right","toNode":"f54e3bf23438d562","toSide":"left"},
