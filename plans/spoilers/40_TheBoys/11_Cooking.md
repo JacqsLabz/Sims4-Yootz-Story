@@ -6,9 +6,11 @@ TheBoys:
 ---
 Grant looked towards where Sara had gone. He would bet that hurt was why Emma had hesitated to come here. Would they truly be welcome here? 
 
+He saw Sara leave the cabin with a man following her, and they went away from the clearing, deeper into the woods. 
+
 Cass turned to Jane and held her middle, "Hey, um," her stomach growled loudly and she tensed. 
 
-Jane turned to the boys, "In the mean time, when was the last time you boys ate? I bet you're hungry." She stood. "I think I'll cook some sausage, popcorn, and what do you boys like?"
+Jane turned to the boys, "In the mean time, when was the last time you boys ate? I bet you're hungry." Jane stood; she knew that meant Cass needed a real meal, and Emma looked like she could use some of her favorite comfort food, but what did these boys like? "I think I'll cook some sausage, popcorn, and what do you boys like?"
 
 "I wanna come help make popcorn!" Ben beamed and went over to her. 
 

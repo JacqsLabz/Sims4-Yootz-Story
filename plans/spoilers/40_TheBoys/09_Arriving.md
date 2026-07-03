@@ -6,17 +6,17 @@ They arrived together at Gibbi point. Emma sighed. Her soul wanted to assert its
 
 As Emma led the boys from the road back to the small cabin, they walked into a clearing with Sara and Cass sitting on folding camping chairs. There was a whole group of chairs, logs, and rocks around a campfire that was currently unlit. 
 
-"Hey." Sara called out, one of her signature bloody mary drinks made from blood fruit in hand, "Didn't expect to see you here."
+"Hey Emma." Sara called out, one of her signature bloody mary drinks made from blood fruit in hand, "Didn't expect to see you here."
 
-"Didn't expect to be here." Emma came closer. "Though didn't expect you here either. What's with the bandage?" Why was her mother out in the sun with a wrapped up wound? 
+"Didn't expect to be here." Emma came closer. "Though didn't expect to see you here either. What's with the bandage?" Why was her mother out in the sun with a wrapped up wound? 
 
-Sara waved a hand, "It's nothing, really. I'm fine."
+Sara waved a hand back and forth, "It's nothing, really. I'm fine."
 
-Cass looked down at her own bandaged wrapped arm and blushed. Strange indeed. But Cass already looked uncomfortable about it, so Emma left it alone, for now. "I was hoping to talk to Jane. Is she about somewhere?"
+Emma noticed that Cass looked down at her own bandaged wrapped arm and blushed, guilt all over her face. Strange indeed. But Cass already looked uncomfortable about it, so Emma left it alone, for now. "I was hoping to talk to Jane. Is she about somewhere?"
 
 "I think, oh, there she is." Sara pointed. 
 
-Emma turned and saw Jane come flying into view. On fairy wings. Emma frowned, was her family allergic to staying human or something? Not that she had room to talk, but still. Even Cass's life energy was also different somehow, wilder, to Emma. She was willing to bet both of them weren't human anymore. Time to see if her plan stood a snowball's chance in hell. 
+Emma turned and saw Jane come flying into view. On fairy wings. Emma frowned, was her family allergic to staying human or something? Not that she had room to talk, but still. Even Cass's life energy was also different somehow, wilder, to Emma. She was willing to bet both of them weren't human anymore. Time to see if her plan of leaving these boys here stood a snowball's chance in hell. 
 
 "Grandma can fly?" Ben asked, eyes lit with wonder. 
 
@@ -24,7 +24,7 @@ Grant wasn't sure if he was surprised that this woman fluttering to them looked 
 
 Sara cocked an eye brow at Emma. "Grandma?" 
 
-Emma sighed, and rubbed her eyes while she waited for Jane to come closer. She didn't want to have to repeat this. It was going to be hard enough to say it once. 
+Emma sighed, and rubbed her eyes while she waited for Jane to come closer. She didn't want to have to repeat this. It was going to be hard enough to break the bad news once. 
 
 Jane landed, "Emma! And who do we have here?" she smiled at them. That was when Grant saw she had the same purple eyes as himself and Emma.  
 
@@ -44,7 +44,7 @@ Emma nodded and mouthed back, "She's gone. Like gone gone."
 
 Jane bit her lip. Cass looked down. 
 
-Sara scowled and fidgeted for a moment, then stood. "I need a minute." Her tone was gruff, and then she marched towards a cabin further back in the trees. 
+Sara scowled and fidgeted for a moment, then stood. "I need a minute." Her tone was gruff, and then she marched towards a tiny cabin further back in the trees. 
 
 Cass stood and turned, as if she was about to follow. 
 
@@ -52,7 +52,7 @@ Cass stood and turned, as if she was about to follow.
 
 "But..."
 
-"Trust me, she'll come to us when she's ready." 
+"Trust me, she'll come back to us when she's ready." 
 
 Cass sat back down in her chair, worried and rubbing her necklace. 
 
