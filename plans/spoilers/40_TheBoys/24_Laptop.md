@@ -3,7 +3,9 @@ canvas:
   - "[[TheBoys.canvas]]"
 TheBoys: []
 ---
- Grant came out to the circle of seats in the clearing, to find Emma... in normal clothes. She was sitting and sipping on some tea. 
+ Grant came out of the tent and so someone in a black hoodie sitting ahead in the clearing, but he didn't really have time to worry about that. Hopefully they'd been serious about saying a bush was fine, he quickly picked one relatively out of sight. 
+ 
+Then he came back to the circle of seats in the clearing, to find it was Emma... in normal clothes. Maybe the cloak was like her work uniform? She was sitting and sipping on some tea. 
  
 "Hey," Grant came near her chair. "I'm sorry, but I need to go back to the apartment, I left Savanna's laptop there." 
 
@@ -23,7 +25,9 @@ When he opened his eyes, Emma was watching him. "What is it?" He asked.
 
 "If you feel a headache coming on, this tea actually helps with that sometimes." Emma pointed to the rock where the teapot & cups sat, then sipped from her mug. 
 
-Grant wasn't sure if it was a headache, but he was thirsty. He guessed that made sense, most of the day was over and he'd had nothing to eat or drink. Not the first time, not by a long shot, but it was generally something he avoided if he could. Feeling like crap from being dehydrated or whatever made things like going to work harder. He grabbed a mug of tea, took a sip, and found it tasted nice. He sat and slowly sipped on it, enjoying the warmth of it. "Thank you. Really. For everything. You didn't have to do all of that." 
+Grant wasn't sure if it was a headache, but he was thirsty. He guessed that made sense, most of the day was over and he'd had nothing to eat or drink. Not the first time, not by a long shot, it was generally something he avoided if he could. Feeling like crap from being dehydrated or whatever made things like going to work harder, but well it couldn't always be avoided. 
+
+Since she had offered he decided to get a mug of tea. He sat back down, took a taste, and found the flavor was nice. He slowly sipped on it, enjoying the warmth of it. "Thank you. Really. For everything. You didn't have to do all of that." 
 
 Emma shrugged, "My boss gave me a week of bereavement leave, I had the time." She sipped her tea. "Anyway, I talked to my mom, Jane, earlier this morning, and she decided she would be happy to let Ben stay with her. She has an idea where she wants to move, and she's going to show him to see if he's comfortable there." 
 
@@ -33,6 +37,6 @@ Emma nodded, "That's what we thought too."
 
  "I guess that's why he's so drawn to her." Grant look at his mug. 
 
-"Some children have an intuition to them like that, draws them to what they need." Emma paused. "I've decided I need a break, since I have a week off work anyway. I'm going to rent a cabin out in Granite Falls. You seem to be enjoying being out here, do you want to come with?" She had been debating between renting a camp ground or a cabin. Seeing him stagger in the chair like that, a cabin would be best, just in case. She could setup a tent for herself right outside the cabin. Rough it could be fun, but not if someone wasn't feeling so hot physically. 
+"Some children have an intuition to them like that, draws them to what they need." Emma paused. "I've decided I need a break after everything. Since I have a week off work anyway, I'm going to rent a cabin out in Granite Falls. You seem to be enjoying being out here, do you want to come with?" She had been debating between renting a camp ground or a cabin. Seeing him stagger in the chair like that, a cabin would be best. Rough it could be really nice, but not if someone wasn't feeling so hot physically. She still wanted to sleep in a tent, Emma felt like that was what she needed, so she would just set up one out behind the cabin. Best of both worlds so to speak.  
 
-Grant thought joining her sounded really nice. He'd forgotten about bereavement, maybe he could get at least a few days off work? Technically, legally Savanna was his adopted mother. Surely that entitled him to at least a few days; he couldn't remember the exact policy, but he was pretty sure it was like three or five or something like that. "Yeah, yeah I do." His breath was shaky. He made a mental note to call his boss later. It would at least buy him time to figure out what he was going to do. 
+Grant thought joining her sounded really nice. He'd forgotten about bereavement, maybe he could get at least a few days off work? Technically, legally Savanna was his adopted mother. Surely that entitled him to at least a few days; he couldn't remember the exact policy at his job, but he was pretty sure it was like three or five days or something like that. "Yeah, yeah I do." His breath was shaky. He made a mental note to call his boss later. It would at least buy him time to figure out what he was going to do. 

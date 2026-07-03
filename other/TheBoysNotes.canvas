@@ -1,0 +1,10 @@
+{
+	"nodes":[
+		{"id":"161a487b434c811d","type":"text","text":"The hand-rubbing payoff for later:\n\nBecause that's how Grant operates: He notices things without immediately commenting on them.\n\n----\n\nThen, later, Emma starts rubbing her hands again.\n\nGrant just says something like, \"You can phase if you need to.\"\n\nEmma looks over. \"What?\"\n\n\"You always rub your hands first.\"\n\n----\n\nThat's a fantastic payoff. It rewards attentive readers exactly the same way it rewards Emma. It also tells Emma something she probably hasn't realized: Someone has been paying attention to her.","x":-200,"y":-200,"width":400,"height":400},
+		{"id":"88cdaaaa574ecaa8","type":"text","text":"Love also means letting someone carry you.","x":360,"y":-200,"width":400,"height":400},
+		{"id":"d083f791732f0885","type":"file","file":"Sims4-Yootz-Story/other/Mindset.md","x":80,"y":-1040,"width":400,"height":400},
+		{"id":"fe6be301e65d45cf","type":"text","text":"The strongest part isn't \"wow, they're rich.\"\n\nThe strongest part is that Grant discovers what financial security actually feels like.","x":1520,"y":-80,"width":400,"height":400},
+		{"id":"69bcab7a0da7df8d","type":"text","text":"\"He's mentally losing that last sliver of the needing to hold himself together for Ben thing.\"\n\nInstead of:\n\n\"I have to hold myself together so Ben will be okay.\"\n\nIt slowly becomes:\n\n\"Ben is okay.\"","x":1520,"y":-720,"width":400,"height":400}
+	],
+	"edges":[]
+}
