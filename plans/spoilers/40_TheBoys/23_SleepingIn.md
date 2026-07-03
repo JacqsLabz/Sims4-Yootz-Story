@@ -11,19 +11,19 @@ But his alarm hadn't gone off yet... Grant blinked at his phone screen. The rush
 
 But for a minute Grant didn't know where he was. This wasn't the apartment. It was a tent? Why was he in a tent? Was this a dream? Who's tent... the memories of yesterday hit him all at once. Savanna. Emma. Jane. Sara. Cass. All of it. 
 
-"Just tell them I call in sick, ok?" Part of him was tempted to quit, but not until things out here were settled. This was the best paying job he could find.
+"Just tell the boss I call in sick, ok?" Part of him was tempted to quit, but not until things out here were settled. This was the best paying job he could find.
 
-"Dude, the hell?" Then Jessie lowered his voice and whispered into the phone, "I went by your apartment. What are you doing?"
+"Dude, the hell?" Then Jessie lowered his voice and whispered into the phone, "I went by your apartment. What are you doing?" Grant sometimes regretting letting his coworker know where he lived. 
 
-It occurred to Grant that the phrase 'it's complicated' didn't even begin to cover what was going on. Grant had to resist laughing at the truth: He was sleeping in a fairy's tent outside a werewolf safehouse. Grant couldn't tell Jessie or his boss the truth, they'd never believe it. "Just tell them I'm sick, ok?" 
+It occurred to Grant that the phrase 'it's complicated' didn't even begin to cover what was going on. Grant had to resist laughing at the truth: He was sleeping in a fairy's tent outside a werewolf safehouse. Grant couldn't tell Jessie or his boss the truth, they'd never believe it. "Look, just tell management I'm sick, ok?" 
 
 Jessie started to complain about how they were going to be short for the shift anyway, but then Grant heard Ben calling for him from outside the tent. 
 
 So he kept his voice down as he interrupted Jessie's rant, "Dude, I gotta go."
 
-"Don't you hang up on me Grant!"
+"Don't you hang up on me Grant!" It was always the same thing with Jessie. 
 
-Grant kept his voice down but didn't hide his anger. "Ben needs me, I gotta go." Grant hung up the phone and set it on silent. Jessie could call him all day for all he cared; Grant couldn't count the number of times he had told the guy he meant it when he said he had to get off the phone. With any luck, maybe he wouldn't need to have a job here very soon. That would be so nice, it was hard to believe. But Grant didn't dwell on it. He took a slow breath and tried to put on a smile. 
+Grant kept the volume of his voice down but didn't hide his anger. "Ben needs me, I gotta go." Grant hung up the phone and set it on silent. Because it was always the same routine with Jessie: he was going to call back like usual, and Grant wasn't going to answer like usual. Grant couldn't count the number of times he had told Jessie that he meant it when he said he had to get off the phone, because it always meant Ben needed him. With any luck, maybe he wouldn't need to have a job here very soon. That would be so nice, it was hard to believe. But Grant didn't dwell on it. He took a slow breath and tried to put on a smile. 
 
 Ben unzipped the door to the tent. "Good morning!" He came over and hugged Grant. "Sleepy head. You missed all the fun." 
 
