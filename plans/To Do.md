@@ -1,4 +1,13 @@
 
+- [x] Sync glasses setting
+- [x] fix Ben's glasses
+- [x] Look at fairy world houses
+- [ ] Maybe place the strangerville house?
+- [ ] Save the camping cabin lot?
+- [ ] Vlad's glasses
+- [ ] Was Emma always a bookworm? 
+- Gibbi Point > WanderWoods Wilds > Hothead Rock Hideway - Cass's safehouse
+- 
 ## Get game ready to edit save file
 - [ ] Go through mods, see if I need to remove any (probably google about each one, one by one?)
 - [ ] Back My Docs folder
@@ -15,10 +24,10 @@
 
 ## Fix the world
 - [ ] Save options: Gameplay, Environment, Pack settings (can't change until I can save)
-- [ ] Rename goth spawn so we can track the family name
-- [ ] Go through the favorite households, and the stories settings for favorites vs not favorites
+- [x] Rename goth spawn so we can track the family name
+- [x] Go through the favorite households, and the stories settings for favorites vs not favorites
 - [ ] Mark one daughter as can't have kids
-- [ ] Rename other Tanaka
+- [x] Rename other Tanaka
 - [ ] Rename my sims (Sara, Jane, etc), and their clubs
 - [ ] Fix Keylie's traits, make them based on her parents' 
 - [ ] Make Kaylie as YA instead of T? Maybe, at least before she gets married to Anne

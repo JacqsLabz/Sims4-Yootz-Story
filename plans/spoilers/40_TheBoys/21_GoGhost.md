@@ -25,7 +25,7 @@ Sara didn't blame the kid, he had no way to know the subtext about Cass here. Sh
 
 "I know, I just..." She whispered back. 
 
-"If you're not up to it, we'll come up with something else. You don't have to do this." Sara wasn't about to force a third round of parenthood, and a second round of single parenthood, onto Jane. She held her lover's hands, then caressed her face. 
+"If you're not up to it, we'll come up with something else. You know you don't have to do this if it isn't what you want." Sara wasn't about to force a third round of parenthood, and a second round of single parenthood, onto Jane. She held her lover's hands, then caressed her face. 
 
 "Do you two need a room?" Emma rolled her eyes as she rubbed her left palm with her right thumb. 
 
@@ -33,11 +33,13 @@ Grant pursed his lips to not laugh out loud.
 
 Sara's tone became mocking. "Just because you prefer to stay single, don't mean the rest of us don't *have needs*." 
 
-At that Grant couldn't help but laugh out loud as his cheeks got warm and he covered his mouth. No one could call Sara bashful, that was for sure. But Jane blushed bright red. Emma just groaned. Then Sara stuck out her tongue as she put her hands on her hips in mockery, and Emma giggled too. She went to wipe a tear from her eye, and then suddenly hid her hand behind herself. "Crap." Her eyes went big.
+At that Grant couldn't help but laugh out loud as his cheeks got warm and he covered his mouth. No one could call Sara bashful, that was for sure. But Jane blushed bright red. Emma just groaned. 
+
+Then Sara stuck out her tongue as she put her hands on her hips in mockery, and Emma giggled too. She went to wipe a tear from her eye, and then suddenly hid her hand behind herself. "Crap." Her eyes went big.
 
 "What is it Emma sweetie?" Sara asked. 
 
-"Swear to me you won't freak out?" She bit her lip and moved her other hand behind her back, trying to rub them together again. It had been a long time since she had been corporeal for this long, but she needed to stay that way just a little bit longer. 
+"Swear to me you won't freak out?" She bit her lip and moved her other hand behind her back, trying to rub them together again. It had been a long time since she had been corporeal for this long, but she needed to stay that way just a little bit longer, at least long enough to warn them. 
 
 "Freak out? What's wrong dear?" Jane asked. 
 
@@ -53,7 +55,7 @@ Sara got that same look from earlier when Grant had first got there. "Then what 
 
 Emma sighed, "Grim calls it an out of body experience." She scrunched her lips. "Though frankly, I'm not found of that name for it. I'm not out of my body, my body just... isn't solid. Just for a little while though. I'll be able to go back to normal in a few hours." 
 
-Emma stood, well rose and hovered. Almost like she was waiting, but her parents didn't seem to know what to say. 
+Emma stood, well rose and hovered. She didn't say anything, almost like she was waiting, but her parents didn't seem to know what to say. 
 
 So Grant stood and started looking at her from different angles. 
 
@@ -93,12 +95,12 @@ Everyone looked at her.
 
 "Your voice... it changed when you... actually..." Jane looked away. 
 
-Grant took a step back; piecing together why their reaction was so strong. 
+Grant took a step back; piecing together why Sara and Jane's reaction was so strong: Emma wasn't a true ghost now, but she had been.
 
 "You're right." Sara took a deep breath, "both of you." Then she shook herself, and looked at the setting sun. "Maybe we should wait until tomorrow to figure this all out. Some time to think about our next moves would probably do us all some good. One night in the bunker shouldn't set Cass back too much." 
 
 "Bunker?" Grant blurted out the useless one word question. "Sorry."
 
-Sara waved a hand, "No need to apologize. I said basement earlier to help Cass feel normal. Under the cabin is a special bunker with a room we purpose built to help Cass while she's learning." 
+Sara waved a hand, "No need to apologize. I said basement earlier to help Cass feel normal. Under the cabin is a special bunker with a room we built for Cass." 
 
 Grant slept in the same tent as Ben. It felt good to know the kid is close and safe. 

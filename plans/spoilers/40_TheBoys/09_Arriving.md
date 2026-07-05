@@ -1,6 +1,8 @@
 ---
 canvas:
   - "[[TheBoys.canvas]]"
+TheBoys:
+  - "[11_Cooking](11_Cooking.md)"
 ---
 They arrived together at Gibbi point. Emma sighed. Her soul wanted to assert itself, to phase her body into a ghost. But it would need to wait. This was going to be hard enough without her appearing as though she was dead. She could just picture Jane panicking and searching her garden for death flowers, this was going to be hard enough without any of that. 
 
@@ -54,7 +56,7 @@ Cass stood and turned, as if she was about to follow.
 
 "Trust me, she'll come back to us when she's ready." 
 
-Cass sat back down in her chair, worried and rubbing her necklace. 
+Cass sat back down in her chair, worried and rubbing her necklace. In the distance, Grant saw Sara open he door to the cabin and stand in it. A man came out of the cabin, and he followed her as she ran off deeper into the woods, away from the clearing. They moved fast and were out of sight quickly. 
 
 "Are we gonna be in trouble?" Ben asked. "Since we made her mad."
 

@@ -4,4 +4,42 @@ canvas:
 TheBoys:
   - "[16_CabinMeal](16_CabinMeal.md)"
 ---
-Maybe at first Sara is trying to burn off the hurt of Savanna being gone sparring with Don, and it's not working, but comes to this realization, either from herself or Don, that while every chance she never got with Savanna is now so permanently gone, her boys need them. She can't be there for her daughter, but Sara can be there for these two young boys. It gives her something to do. She can move, she's not paralyzed by the loss. And that helps her stabilize. I would say she's kinda done this before, with the challenges she's faced before, someone in her family needed her. I mean, she's the woman that was turned without knowing about vampires, looked down at her pregnant belly, and accepted drinking blood because it was what her unborn child needed. 
+Sara tried her best to not pull the cabin door off the frame. Don was sitting on the couch. 
+
+"What happened?" His tone was alert. 
+
+"Just follow me." She couldn't keep the anger and growl out her voice. 
+
+He was at her side in an instant. "Ok." 
+
+She led him back deep into the woods. Away from everyone. As she did, her dark form released. When they were an ok distance away from the camp, she turned and took on their sparring posture. Don channeled that same dark power, and bared his fangs at her. Knowing she would talk when she could find the words for it. 
+
+She punched just as hard as a freight train, like when they'd first gotten here, and was too distraught to even be at half her usual skill. Don got her and held her by the neck. "What happened." He dropped her to ground. 
+
+Down on her knees, Sara's voice was muffled. Don came in close to hear her. 
+
+"Savanna's gone." Her voice was horse from all her growling and crying during the fight. 
+
+Don felt like a heavy rock had just been dropped into his stomach. No wonder she was like this. "Who was in the clearing?"
+
+"Emma, Grant, and Ben." 
+
+He pulled her up. "Who are they?" 
+
+She avoided looking at him. "Her boys." Her eyes were distant, and it was like she was deflated of all her energy
+
+"You need more or your ready to go back?"
+
+She glared at him, the anger returning. 
+
+"I assume you want to be there for them, since you can't for her anymore."
+
+From the confused shock on her face, the grief was keeping her from thinking clearly enough to see it that way. 
+
+"Well? I can only be out here so long." Don crossed his arms. Why his maker was more resistant to the sun than most vampires, who could say. Didn't change that his skin was sizzling out here. 
+
+She blinked and took some deep breathes. "Maybe I should make use some sunlight cocktails?" 
+
+"After we get these wounds wrapped up." 
+
+They made their way back to the small cabin. 

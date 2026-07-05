@@ -1,9 +1,10 @@
 ---
 canvas:
   - "[[TheBoys.canvas]]"
-TheBoys: []
+TheBoys:
+  - "[14_JaneWasAlwaysHelping](14_JaneWasAlwaysHelping.md)"
 ---
-Grant decided to follow suit. He picked what looked like the comfiest chair, and let himself relax into it. It felt good to get off his feet. 
+Grant decided to follow suit. He picked what looked like the comfiest available chair, and let himself relax into it. It felt so good to get off his feet. Sure he hadn't worked a shift today, but thanks to his eccentric history teacher, school had involved a lot more standing than usual. And if Ben's fairy grandmother was going to make him dinner, Grant would happily let her. He was aware of how ridiculous that sounded, but he just didn't have the energy to care about that. It meant he didn't have to cook and could just sit here. 
 
 Emma just sat there, occasionally rubbing at her arms and hands. Cass alternated between eating jerky and rubbing the crescent moon pendant on her necklace. 
 

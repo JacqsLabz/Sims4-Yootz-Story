@@ -6,8 +6,6 @@ TheBoys:
 ---
 Grant looked towards where Sara had gone. He would bet that hurt was why Emma had hesitated to come here. Would they truly be welcome here? 
 
-He saw Sara leave the cabin with a man following her, and they went away from the clearing, deeper into the woods. 
-
 Cass turned to Jane and held her middle, "Hey, um," her stomach growled loudly and she tensed. 
 
 Jane turned to the boys, "In the mean time, when was the last time you boys ate? I bet you're hungry." Jane stood; she knew that meant Cass needed a real meal, and Emma looked like she could use some of her favorite comfort food, but what did these boys like? "I think I'll cook some sausage, popcorn, and what do you boys like?"
@@ -16,12 +14,12 @@ Jane turned to the boys, "In the mean time, when was the last time you boys ate?
 
 Grant found himself smiling a little, Ben always loved it when they made popcorn. 
 
-"Alright, extra popcorn!" Jane matched Ben's big grin. "What about you, Grant?"
+"Alright, extra popcorn!" Jane matched Ben's big grin, then looked up. "What about you, Grant?"
 
-He shrugged, "Anything is fine really, I'm not picky." He really didn't feel that hungry, mostly just relieved to see Ben so excited. It helped Grant relax just a little. 
+He shrugged, "Anything is fine really, I'm not picky." He really didn't feel hungry, mostly just relieved to see Ben so excited. That and knowing at least part of Ben's dinner was taken care of helped Grant relax just a little. 
 
 "Ok, as long as you're sure." Jane gave a meaningful look at Cass. "You going to be ok Cass?" 
 
-"Yeah, I'm good for now." She closed the cooler next to her and held up a bag of jerky. 
+"Yeah, I'm good for now." She closed the cooler next to her and opened bag of jerky. 
 
 "Alright then," Jane offered Ben her hand, "Popcorn making time!" 

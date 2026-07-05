@@ -37,7 +37,7 @@ Grant tried his best to be attentive. Despite the extra sleep, he felt so exhaus
 
 "What's that?"
 
-"Can you go see if Jane will help you make more pancakes for me while I get dressed and go to the bathroom?" 
+"Can you go see if Jane will help you make more pancakes and stuff for me while I get dressed and go to the bathroom?" 
 
 "I'm on it!" Ben gave him a thumbs up and left the tent again. 
 
