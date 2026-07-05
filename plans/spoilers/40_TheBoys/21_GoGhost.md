@@ -83,7 +83,7 @@ Emma hesitated. "No, it's unique to me." She looked up to her parents, "But I'm 
 
 Sara finally found his voice. "And you trust him to be honest with you?"
 
-"He was honest about Brenda before I knew about her." Emma looked down, "Not that he'll tell me anything about her now. He is already majorly bending the rules just telling me rather my time will be up in the next twenty four hours or so."
+"He was honest about Brenda before I knew anything." Emma looked down, "Not that he'll tell me anything about her now. He is already majorly bending the rules by telling me rather my time will be up in the next twenty four hours or so."
 
 Grant shrugged, "Well, and, I mean, if you were dead, another agent of death would have showed up by now, wouldn't they?"
 
