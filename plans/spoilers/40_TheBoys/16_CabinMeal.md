@@ -7,7 +7,7 @@ Grant ended up deciding he wanted a plate of the real food, and Cass led him to 
 
 Maybe Sara is at the bar, making sunlight reversal cocktails for her and Don, and she's back to her usual collected self. She's like "Hey Grant. Sorry about leaving earlier. What can I get you to drink?" She gestured to the bar. 
 
-Her eyes were a little raw, and she had a new fresh bandage. Grant didn't want to risk upsetting her, and something to wash down the sausage did sound nice. "I'll have whatever you're having." 
+Her eyes were a little raw, and she had a new fresh bandage. Grant definitely didn't want to risk upsetting her, and something to wash down the sausage did sound nice. "I'll have whatever you're having." 
 
 Sara smirked, "I'm not sure you'll enjoy a sunlight reversal cocktail, since you aren't a vampire. How about a root beer float?" 
 
