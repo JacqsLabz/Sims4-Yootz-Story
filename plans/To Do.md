@@ -6,6 +6,7 @@
 - [ ] Save the camping cabin lot?
 - [ ] Vlad's glasses
 - [ ] Was Emma always a bookworm? 
+- [ ] Gibbi - add crystal grid near the fire (well, after they move in? Add a rock end table for it?)
 - Gibbi Point > WanderWoods Wilds > Hothead Rock Hideway - Cass's safehouse
 - 
 ## Get game ready to edit save file
