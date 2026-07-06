@@ -1,3 +1,8 @@
+---
+canvas:
+  - "[[TheBoys.canvas]]"
+TheBoys: []
+---
 Probably have them wait until Grant has something to eat and a shower before the leave Gibbi for Anne's house & the Falls. Ben would have already had a bath thanks to Jane. 
 
 I'm thinking they see Cass again, because she's hungry. Maybe at first Grant isn't that hungry, but ends up eating more than he usually does. 

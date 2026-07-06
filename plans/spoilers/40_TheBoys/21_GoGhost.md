@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[TheBoys.canvas]]"
-TheBoys: []
+TheBoys:
+  - "[22.1_MorningTea](22.1_MorningTea.md)"
 ---
 "We need to figure out where you boys are going to live." Sara sat looking at the unlit fire pit. 
 

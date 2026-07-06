@@ -1,1 +1,6 @@
+---
+canvas:
+  - "[[TheBoys.canvas]]"
+TheBoys: []
+---
 I just had another little scene idea up into my head. Maybe like Grant walks in the living room and he sees Emma sitting in her ghost form curled up on like a chair or the couch or something. It's afternoon, Emma is awake. Maybe she just watching the trees out the window. Maybe Grant remembers how he was asking questions about her ghost form, and this helps him see his own curiosity. Maybe he thinks about how she talked about how it was hard to master hovering above the floor and furniture at first, and that might help give him insight about himself. She didn't understand how to do something as simple as float above a couch as though she's sitting on it at first, and yet here she is, doing so while relaxing. Maybe it helps him see that he's disoriented? She had a hard time telling which way was up, and struggled with basic things like not being in the ground. It took her time to adjust, and he needs to adjust. The rules of her existence changed, and the rules of his existence have changed. He's now struggling with things that are unfamiliar to him.

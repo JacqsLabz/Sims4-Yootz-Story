@@ -2,9 +2,9 @@
 - [x] Sync glasses setting
 - [x] fix Ben's glasses
 - [x] Look at fairy world houses
-- [ ] Maybe place the strangerville house?
+- [x] Vlad's glasses
+- [x] Maybe place the strangerville house?
 - [ ] Save the camping cabin lot?
-- [ ] Vlad's glasses
 - [ ] Was Emma always a bookworm? 
 - [ ] Gibbi - add crystal grid near the fire (well, after they move in? Add a rock end table for it?)
 - Gibbi Point > WanderWoods Wilds > Hothead Rock Hideway - Cass's safehouse
@@ -41,8 +41,8 @@
 - [ ] go through the holidays and sechedule the ones I want 
 
 ## Moving prep 
-- [ ] Protector house in Strangerville (might have to fetch from another save, the ReParenting one?)
-	- [ ] Save Brenda's bedroom to gallery so we can make her new room based on it
+- [x] Protector house in Strangerville (might have to fetch from another save, the ReParenting one?)
+	- [x] Save Brenda's bedroom to gallery so we can make her new room based on it
 - [ ] Maybe redo clubs? I'm thinking Anne not in Sarila's Coven (I mean Sara's Coven) so she can have the Yootz and 2 family clubs? Maybe? Idk if I want her to have a coven club of her own, or socialite club/s? 
 - [ ] Vet Clinic: Go there, check it out, see if bring anything with us, then take the money & sell it?
 - [ ] Collectables to a simple basement museum room? 

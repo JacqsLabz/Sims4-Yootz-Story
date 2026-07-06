@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[TheBoys.canvas]]"
-TheBoys: []
+TheBoys:
+  - "[25_Meal](25_Meal.md)"
 ---
  Grant came out of the tent and saw someone in a black hoodie sitting ahead in the clearing, but he didn't really have time to worry about that. Hopefully they'd been serious about saying a bush was fine, he quickly picked one relatively out of sight. 
  

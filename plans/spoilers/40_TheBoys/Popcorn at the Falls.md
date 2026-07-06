@@ -1,3 +1,8 @@
+---
+canvas:
+  - "[[TheBoys.canvas]]"
+TheBoys: []
+---
 Maybe at some point Grant makes the popcorn? Like he was just feeling like he wanted a snack, and maybe the nightmares have been kind of rough and just wanted something comforting, so he decides to whip him up Jane's recipe. 
 
 And Emma is like oh popcorn, thinking about the last time she had popcorn in this cabin, and then she tastes it and she's like you know how to make chains popcorn? With like complete disbelief in her voice. Or tears just start rolling down her eyes and grants like what's wrong, and she needs a minute and it's just like I didn't know you knew how to make Jane's popcorn. Or she asks how he knows how to make it well she's kind of sniffling. 

@@ -1,3 +1,8 @@
+---
+canvas:
+  - "[[TheBoys.canvas]]"
+TheBoys: []
+---
 Maybe the first night, Grant tries to sleep, but he can't fall asleep. He feels tired like from exercise, not like sleepy. Like he doesn't have a ton of energy, but he isn't sleepy. And he's just 
 
 Well, he supposed that made sense. He'd woke up up not that long ago. Grant decided to get out of bed and find something to do. It was odd. He was tired but not sleepy. He didn't have much energy, but his mind was wide awake. 

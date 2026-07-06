@@ -1,3 +1,8 @@
+---
+canvas:
+  - "[[TheBoys.canvas]]"
+TheBoys: []
+---
 When they get to the cabin in Granite Falls, Emma gives Grant a tour of the cabin. Since they're going to be there for about a week and she's really familiar with it. He's going to notices some small things in her body language. Because of her past: This cabin is where the main family were all staying together when Emma found out she was pregnant with Brenda. 
 
 "This is the main room: kitchen, dinning, living." She point to each part of it, then walks to the fridge. "I told them to stock the..." she opened the fridge, "Yes, the fridge is fully stocked, you can have anything you want, it's all there for you anyway. I mean, I assume you know how to use the stove and such?"
