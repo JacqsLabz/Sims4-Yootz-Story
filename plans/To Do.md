@@ -10,17 +10,17 @@
 - Gibbi Point > WanderWoods Wilds > Hothead Rock Hideway - Cass's safehouse
 - 
 ## Get game ready to edit save file
-- [ ] Go through mods, see if I need to remove any (probably google about each one, one by one?)
-- [ ] Back My Docs folder
-- [ ] Go through Tray stuff and delete
-- [ ] Back My Docs folder again
+- [x] Go through mods, see if I need to remove any (probably google about each one, one by one?)
+- [x] Back My Docs folder
+- [x] Go through Tray stuff and delete
+- [x] Back My Docs folder again
 - [ ] Fix "new" crap
 	- [x] Try "bb.showhiddenobjects true" 
 	- [ ] https://sims4.crinrict.com/eng/2020/01/manually-removing-new-highlights/ 
-- [ ] The festivals as holiday mod has HS pack stuff, either remove that stuff or add the pack? 
+- [x] The festivals as holiday mod has HS pack stuff, either remove that stuff or add the pack? 
 - [ ] Clear localthumbcache.package (delete it)
-- [ ] Load the game without mods & check the attic (collectables)
-- [ ] Repair the game
+- [x] Load the game without mods & check the attic (collectables)
+- [x] Repair the game
 - [ ] Can sims4studio make saved rooms another category?
 
 ## Fix the world
@@ -30,14 +30,15 @@
 - [ ] Mark one daughter as can't have kids
 - [x] Rename other Tanaka
 - [ ] Rename my sims (Sara, Jane, etc), and their clubs
-- [ ] Fix Keylie's traits, make them based on her parents' 
-- [ ] Make Kaylie as YA instead of T? Maybe, at least before she gets married to Anne
+- [ ] Fix Kaylie's traits, make them based on her parents' 
+- [x] Make Kaylie as YA instead of T? Maybe, at least before she gets married to Anne
 - [ ] Emma better knows Grim
 - [ ] At least Sara meet Caleb & Vlad
 - [ ] Rank up at least Don (vampire rank)
 - [ ] Disable fame for most of the family (not Anne)
 - [ ] Set relationship preference at least for my sims
-- [ ] Holidays & seasons. Maybe make seasons 2wks long each? To give more time between holidays? And make sure to go through the holidays and sechedule the ones I want and such. Also, Clara's bday, maybe cancel it for now? 
+- [x] Holidays & seasons. Maybe make seasons 2wks long each? To give more time between holidays? And make sure to go through the holidays and sechedule the ones I want and such. Also, Clara's bday, maybe cancel it for now? 
+- [ ] go through the holidays and sechedule the ones I want 
 
 ## Moving prep 
 - [ ] Protector house in Strangerville (might have to fetch from another save, the ReParenting one?)
