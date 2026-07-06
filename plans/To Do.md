@@ -4,6 +4,7 @@
 - [x] Look at fairy world houses
 - [x] Vlad's glasses
 - [x] Maybe place the strangerville house?
+- [x] Don's house
 - [ ] Save the camping cabin lot?
 - [ ] Was Emma always a bookworm? 
 - [ ] Gibbi - add crystal grid near the fire (well, after they move in? Add a rock end table for it?)
