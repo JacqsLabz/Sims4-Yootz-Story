@@ -12,7 +12,7 @@ So I've been working on plotting out a Sims story in the Sims 4. Sometimes I hav
 
 # Sims 4 Story: The Yootz Family
 
-The story revolves around a powerful, chaotic, and loving occult family led by Sara Yootz, **Vampire Matriarch** (who was turned by Lilith Vatore during her second pregnancy), and her wife Jane Yootz (who's currently the first vampire the matriarch turned, will get cured into a human, and later on becomes a fairy). The family has been living together but some facts of biology is going to force them a split. 
+The story revolves around a powerful, chaotic, and loving occult family led by Sara Yootz, **Vampire Matriarch** (who was turned by Lilith Vatore during her second pregnancy), and her wife Jane Yootz (who's currently the first vampire Sara turned, will get cured into a human, and later on becomes a fairy). The family has been living together but some facts of biology is going to force them a split. 
 
 The have technically 3 young adult / adult daughters, two of which have been living with them their whole lives. 
 

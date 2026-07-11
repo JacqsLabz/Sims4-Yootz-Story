@@ -6,7 +6,7 @@ TheBoys:
 ---
  Grant came out of the tent and saw someone in a black hoodie sitting ahead in the clearing, but he didn't really have time to worry about that. Hopefully they'd been serious about saying a bush was fine, he quickly picked one relatively out of sight. 
  
-Then he came back to the circle of seats in the clearing, to find it was Emma... in normal clothes. Maybe the cloak was like her work uniform? She was sitting and sipping on some tea. 
+Then he came back to the circle of seats in the clearing, to find it was Emma... in normal clothes. Just blue jeans, the black hoodie, and sneakers. Maybe the cloak was like her work uniform? She was sitting and sipping on some tea. 
  
 "Hey," Grant came near her chair. "I'm sorry, but I need to go back to the apartment, I left Savanna's laptop there." 
 
@@ -38,6 +38,6 @@ Emma nodded, "That's what we thought too."
 
  "I guess that's why he's so drawn to her." Grant look at his mug. 
 
-"Often children have an intuition to them like that, draws them to what they need." Emma paused. "I've decided I need a break after everything. Since I have a week off work anyway, I'm going to rent a cabin out in Granite Falls. You seem to be enjoying being out here, do you want to come with?" She had been debating between renting a camp ground or staying the cabin. Seeing him stagger in the chair like that, the cabin would be best. Rough it could be really nice, but not for someone wasn't feeling so hot physically. She still wanted to sleep in a tent, Emma felt like that was what she needed, so she would just set up one out behind the cabin. Best of both worlds so to speak.  
+"Often children have an intuition to them like that, draws them to what they need." Emma paused. "I've decided I need a break after everything. Since I have a week off work anyway, I'm going to rent a cabin out in Granite Falls. You seem to be enjoying being out here, do you want to come with?" She had been debating between renting a camp ground or staying the cabin. Seeing him stagger in the chair like that, she had decided the cabin would be best. Roughing it could be really nice, but not for someone wasn't feeling so hot physically. She still wanted to sleep in a tent, Emma felt like that was what she needed, so she would just set up one out behind the cabin. Best of both worlds so to speak.  
 
-Grant thought joining her sounded really nice. He'd forgotten about bereavement, maybe he could get at least a few days off work? Technically, legally Savanna was his adopted mother. Surely that entitled him to at least a few days; he couldn't remember the exact policy at his job, but he was pretty sure it was like three or five days or something like that. "Yeah, yeah I do." His breath was shaky. He made a mental note to call his boss later. It would at least buy him time to figure out what he was going to do. 
+Grant thought joining her sounded really nice. He'd forgotten about bereavement, maybe he could get at least a few days off work? Technically, legally Savanna was his adopted mother. Surely that entitled him to at least a few days; he couldn't remember the exact policy at his job, but he was pretty sure it was like three or five days or something like that. "Yeah, yeah I do." His breath was shaky. He made a mental note to call his boss when he got a chance. It would at least buy him time to figure out what he was going to do. 

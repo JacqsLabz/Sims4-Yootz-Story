@@ -1,15 +1,22 @@
 
+- [ ] Check the ToDoist sims tag/subproject
 - [x] Sync glasses setting
 - [x] fix Ben's glasses
 - [x] Look at fairy world houses
 - [x] Vlad's glasses
 - [x] Maybe place the strangerville house?
 - [x] Don's house
-- [ ] Save the camping cabin lot?
+- [x] Save the camping cabin lot?
 - [ ] Was Emma always a bookworm? 
-- [ ] Gibbi - add crystal grid near the fire (well, after they move in? Add a rock end table for it?)
+- [x] Gibbi - add crystal grid near the fire (well, after they move in? Add a rock end table for it?)
 - Gibbi Point > WanderWoods Wilds > Hothead Rock Hideway - Cass's safehouse
-- 
+- [x] Go through vet office, take anything I want and sell it 
+- [x] Stuff on Brenda's desk
+- [x] Put a carboard box in the Gibbi cabin
+- [ ] Check PC screenshots folder for stuff that needs WhatMoodAgain
+- [x] restore workshop for rocket?
+- [x] upper cabin for fairy?
+
 ## Get game ready to edit save file
 - [x] Go through mods, see if I need to remove any (probably google about each one, one by one?)
 - [x] Back My Docs folder
@@ -25,35 +32,34 @@
 - [ ] Can sims4studio make saved rooms another category?
 
 ## Fix the world
-- [ ] Save options: Gameplay, Environment, Pack settings (can't change until I can save)
+- [x] Save options: Gameplay, Environment, Pack settings (can't change until I can save)
 - [x] Rename goth spawn so we can track the family name
 - [x] Go through the favorite households, and the stories settings for favorites vs not favorites
-- [ ] Mark one daughter as can't have kids
+- [x] Mark one daughter as can't have kids
 - [x] Rename other Tanaka
-- [ ] Rename my sims (Sara, Jane, etc), and their clubs
-- [ ] Fix Kaylie's traits, make them based on her parents' 
+- [x] Rename my sims (Sara, Jane, etc), and their clubs
+- [x] Fix Kaylie's traits, make them based on her parents' 
 - [x] Make Kaylie as YA instead of T? Maybe, at least before she gets married to Anne
-- [ ] Emma better knows Grim
+- [x] Emma better knows Grim
 - [ ] At least Sara meet Caleb & Vlad
 - [ ] Rank up at least Don (vampire rank)
-- [ ] Disable fame for most of the family (not Anne)
+- [x] Disable fame for most of the family (not Anne)
 - [ ] Set relationship preference at least for my sims
-- [x] Holidays & seasons. Maybe make seasons 2wks long each? To give more time between holidays? And make sure to go through the holidays and sechedule the ones I want and such. Also, Clara's bday, maybe cancel it for now? 
-- [ ] go through the holidays and sechedule the ones I want 
+- [x] Holidays & seasons. Maybe make seasons 2wks long each? To give more time between holidays? And make sure to go through the holidays and schedule the ones I want and such. Also, Clara's bday, maybe cancel it for now? 
+- [ ] go through the holidays and schedule the ones I want 
 
 ## Moving prep 
 - [x] Protector house in Strangerville (might have to fetch from another save, the ReParenting one?)
 	- [x] Save Brenda's bedroom to gallery so we can make her new room based on it
 - [ ] Maybe redo clubs? I'm thinking Anne not in Sarila's Coven (I mean Sara's Coven) so she can have the Yootz and 2 family clubs? Maybe? Idk if I want her to have a coven club of her own, or socialite club/s? 
-- [ ] Vet Clinic: Go there, check it out, see if bring anything with us, then take the money & sell it?
-- [ ] Collectables to a simple basement museum room? 
-
+- [x] Vet Clinic: Go there, check it out, see if bring anything with us, then take the money & sell it?
+- [x] Collectables to a simple basement museum room? 
 
 # Storytellng 
 - [ ] https://wewantmods.com/how-to-use-poses-in-sims-4/
 - [ ] https://wildlyminiaturesandwich.blogspot.com/2017/05/bite-me-fangs-for-humans-aliens.html
 	- [ ] might be busted: https://forums.ea.com/discussions/the-sims-4-mods-and-custom-content-en/vampire-fangs-for-kids/2502165
-- [ ] 
+
 # Collectables
 - Starting Move to island - pencils cups with collectables in attic. Fireworks day (summer Wed)
 - Maybe fixing everyone - empty attic. Collectables on 2nd floor

@@ -9,7 +9,7 @@ Well, he supposed that made sense. He'd woke up up not that long ago. Grant deci
 
 So Grant got up and started wondering around.
 
-Maybe he looks at some of the views, pays closer attention to what's in the cabin. Maybe he tries a bath, maybe he's not interested in trying to fool with the thing. He wonders into the living room area. There's a TV, fireplace, and.. a bookshelf. When was the last time he had time to read? Grant wasn't even sure. Between work and school and everything. But he had time to kill now. Grant walked over the the bookshelf, and started to browse. A few looked like they might be nice, but one spine in particular caught his eye: Encyclopedia Vampirica. Two days ago he would have assumed such a book was a joke, rolled his eyes and ignored it. But having now met a few vampires, Grant found himself intrigued. He started to flip through the book, and decided to read it. He sat in the chair next to the bookcase. 
+Maybe he looks at some of the views, pays closer attention to what's in the cabin. Maybe he tries a bath, maybe he's not interested in trying to fool with the thing. He wonders into the living room area. There's a TV, fireplace, and.. a bookshelf. When was the last time he had time to read? Grant wasn't even sure. Between work and school and everything. But now, he had time to kill. Grant walked over the the bookshelf, and started to browse. A few looked like they might be nice, but one spine in particular caught his eye: Encyclopedia Vampirica. Two days ago he would have assumed such a book was a joke, rolled his eyes and ignored it. But having now met a few vampires, Grant found himself intrigued. He started to flip through the book, and decided to read it. He sat in the chair next to the bookcase. 
 
 The end of the book seemed to come so fast, there was so much in it. His stomach complained, so Grant brought the book over to the kitchen and sat down for his second reading with a snack. 
 
@@ -17,7 +17,7 @@ Several snacks later, he head the sound of a door. Grant looked up to see Emma c
 
 "Oh, good morning." Emma yawned. "You're up early." 
 
-"Eh, more up late." 
+"Eh, more up late." He looked out the windows, sunrise. 
 
 She came over to the counter. "Couldn't sleep?" 
 
@@ -25,4 +25,4 @@ Grant shrugged, "I slept for most of yesterday, so I'm not really surprised." No
 
 She nodded. "Sounds good, I'm going to go hiking."
 
-I want Emma to see him head to bed. 
+I want Emma to see him head to bed. Maybe she's going to take a shower, and she pays attention to which bedroom he goes in? Or she's going to have some coffee so she's in the kitchen for a little while? 

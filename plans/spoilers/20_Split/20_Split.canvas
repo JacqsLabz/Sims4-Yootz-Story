@@ -3,7 +3,8 @@
 		{"id":"e73e663f65192d23","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/Splitting.md","x":-16,"y":135,"width":400,"height":400},
 		{"id":"a44c2cbb7c625765","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/Crystal Plot Summary 6-4-26.md","x":184,"y":-534,"width":400,"height":400},
 		{"id":"37f7cd2a7d2f4aaf","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/3.4-Distant Family.md","x":-316,"y":-534,"width":400,"height":400},
-		{"id":"e36c63ec418275b4","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/Distant Family.md","x":-583,"y":135,"width":400,"height":400}
+		{"id":"e36c63ec418275b4","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/20_Split/Distant Family.md","x":-583,"y":135,"width":400,"height":400},
+		{"id":"f2358183ab3e17ef","x":840,"y":-134,"width":400,"height":400,"type":"text","text":"\"I've been looking into ways to keep Brenda safe. There's an opening in a science career. I think if I worked there I could learn a lot. About space, about maybe a way for Brenda to meet her other parent.\" Emma said. \n\n\"That sounds good.\" \n\n\"But if I'm going to do that, I'll need to become human again.\" \n\n\"Is that what you want?\" Sara asked. \n\n\"It would just be temporary.\""}
 	],
 	"edges":[
 		{"id":"a5dc949c62b78637","fromNode":"e73e663f65192d23","fromSide":"top","toNode":"37f7cd2a7d2f4aaf","toSide":"bottom"},
