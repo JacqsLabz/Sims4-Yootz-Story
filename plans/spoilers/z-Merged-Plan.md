@@ -289,7 +289,7 @@ And Jane might not tell anyone, but she might have been quietly sort of having I
 
 Maybe Anne and Kaylie had kinda talked about what if the girls took after typical vampire children and got their fangs young, but for Anne those conversation never felt real because she couldn't do that with Cassandra. But then Clara gets her fangs, and suddenly staying in Willow Creek will not work for her. And Sara would have know about this, because at some point Lilith would have commented on Anne's lack of fangs. Heck maybe Emma, Jane, Sara, and Anne had kinda talked about what are we going to do if Clara gets fangs young, but it was just sort of an idk, but we have time to figure it out later. Well she got her fangs so they had to figure it out that night when the girls got to bed. 
 
-Ok so throwing out everything about Emma being a human test subject, because in the sims 4 science lvl 1 is Lab Technician. Instead we're going to say that the science career is basically the government looking for aliens. So they do a bunch of tests on employee on hire and at random to ensure all employees are human. The posting doesn't bluntly say "to ensure human" but it's clear from the list that a vampire won't pass. And everything in the lab is on camera, plus Emma never learned/mastered mind control, so she can't just use vampire power to fake passing the tests. As far as Sara & Don being in the military as vampires, Sara can mind control people if she needs to and there's less security cameras around entry level positions.  
+Ok so throwing out everything about Emma being a human test subject, because in the sims 4 science lvl 1 is Lab Technician. Instead we're going to say that the science career is basically the government looking for aliens. So they do a bunch of tests on employee on hire and at random to ensure all employees are human. The posting doesn't bluntly say "to ensure human" but it's clear from the list that a vampire won't pass. And everything in the lab is on camera, plus Emma never learned/mastered mind control, so she can't just use vampire power to fake passing the tests. As far as Sara & Don being in the military as vampires, Sara can mind control people if she needs to and there's less security cameras around entry level positions. As far as the sun, Sara just makes her and Don sunlight cocktails every morning.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\10_Before\Some more thoughts.md 
  
@@ -1836,7 +1836,7 @@ He was at her side in an instant. "Ok."
 
 She led him back deep into the woods. Away from everyone. As she did, her dark form released. When they were an ok distance away from the camp, she turned and took on their sparring posture. Don channeled that same dark power, and bared his fangs at her. Knowing she would talk when she could find the words for it. 
 
-She punched just as hard as a freight train, like when they'd first gotten here, and was too distraught to even be at half her usual skill. Don got her and held her by the neck. "What happened." He dropped her to ground. 
+She punched just as hard as a freight train, like when they'd first gotten here, but was too distraught to even be at half her usual skill. Don got her and held her by the neck. "What happened." He dropped her to ground. 
 
 Down on her knees, Sara's voice was muffled. Don came in close to hear her. 
 
@@ -1848,23 +1848,23 @@ Don felt like a heavy rock had just been dropped into his stomach. No wonder she
 
 He pulled her up. "Who are they?" 
 
-She avoided looking at him. "Her boys." Her eyes were distant, and it was like she was deflated of all her energy
+She avoided looking at him. "Her boys." Her eyes were distant, and it was like she was deflated of all her energy. 
 
 "You need more or your ready to go back?"
 
-She glared at him, the anger returning. 
+She glared at him, the anger and hurt returning. 
 
 "I assume you want to be there for them, since you can't for her anymore."
 
 From the confused shock on her face, the grief was keeping her from thinking clearly enough to see it that way. 
 
-"Well? I can only be out here so long." Don crossed his arms. Why his maker was more resistant to the sun than most vampires, who could say. Didn't change that his skin was sizzling out here. 
+"Well? I can only be out here so long." Don shifted his weight. Why his maker was more resistant to the sun than most vampires, who could say. Didn't change that his skin was sizzling out here. 
 
 She blinked and took some deep breathes. "Maybe I should make use some sunlight cocktails?" 
 
-"After we get these wounds wrapped up." 
+"After we get these wounds wrapped up." He offered his hand. 
 
-They made their way back to the small cabin.  
+They made their way back to the small cabin, walking at a human speed. Sara dried her tears as they went, the calm of having a mission or purpose to focus on changing her demeanor to something closer to how she typically held herself.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\plans\spoilers\40_TheBoys\16_CabinMeal.md 
  
