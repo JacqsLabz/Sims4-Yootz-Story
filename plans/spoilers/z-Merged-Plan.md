@@ -224,12 +224,12 @@ Like Brenda was born first, Brenda went to being a toddler first, Brenda weened 
  
  
 
-- [ ] Jane's suggestion also reflects an internal conflict she has quietly carried for some time. She loves Sara and doesn't regret becoming a vampire, but she never completely stopped wondering what life as a human would be like again. Raising Cass gives her a meaningful reason to take a temporary break from vampirism.
+- [ ] Jane's suggestion also reflects an internal conflict she has quietly carried for some time. She loves Sara and doesn't regret becoming a vampire, but she never completely stopped missing being out in the sun (hence her porch/sun rooms out front & back, maybe show those?) and being human. Raising Cass gives her a meaningful reason to take a temporary break from vampirism.
 - [ ] Brenda's situation has nothing to do with dangerous alien powers. The real danger is that aliens keep themselves hidden because humans may react violently if they discover an alien is living among them.
 - [ ] Sara goes with Emma and Brenda because, if Brenda is ever discovered, Sara is physically capable of protecting her. Sara's role is bodyguard as much as parent.
 - [ ] Emma's long-term goal isn't simply hiding Brenda forever. The adults realize they eventually need to answer a much bigger question: what does a safe life actually look like for an alien child?
 - [ ] Brenda asking about her other biological parent becomes the first seed of that journey. The question quietly sits in the adults' minds long before they have any practical way of searching for answers.
-- [ ] Emma has already begun thinking about Strangerville before the family split. Because (beofre Clara gets fangs) she notices a science career opening there and recognizes that working in the science field could eventually give her access to information about aliens, rockets, and classified research.
+- [ ] Emma has already begun thinking about Strangerville before the family split. Because (before Clara gets fangs) she notices a science career opening there and recognizes that working in the science field could eventually give her access to information about aliens, rockets, and classified research.
 - [ ] Emma's science career isn't about becoming a scientist for its own sake. It's an undercover way to gather information while maintaining the appearance of being an ordinary citizen.
 - [ ] Sara and Don both join the military in Strangerville because military service is a common, unremarkable career there. Their goal is to blend in completely while quietly supporting Emma's investigation.
 - [ ] Sara & Emma intentionally lives modestly in Strangerville, buying an ordinary house, taking ordinary jobs, and avoiding anything that would attract attention while protecting Brenda's identity (hiding Brenda). 

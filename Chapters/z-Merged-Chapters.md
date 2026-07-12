@@ -99,11 +99,11 @@ Sara got more tips from Don, including protein shakes.
 
 ![](../assets/img/01.01/12-22-16_6-15-41%20PM.png)
 
-"Hey Jane, does it look like I've put on any weight to you?" Sara asked in between breathes as she ran on the tredmil.
-
-"I think you look just prefect, my love."
+Sara started noticing her endurance was off, and her joints felt different. Sometimes she wondered about why during her jogs on the treadmill. 
 
 ![](../assets/img/01.01/12-22-16_6-19-08%20PM.png)
+
+When she wasn't distracted that is. Jane's affection was so warm. 
 
 ----
 
@@ -111,7 +111,7 @@ Whenever Sara had the day off work and Jane didn't, Sara got in some extra worko
 
 ![](../assets/img/01.01/12-22-16_6-34-09%20PM.png)
 
-One such day, her workout was going great.
+One such day, she was enjoying blowing off some extra steam, yelling at the punch bag. 
 
 ![](../assets/img/01.01/12-22-16_6-35-20%20PM.png)
 
@@ -127,7 +127,7 @@ She didn't know what think as she tried to clean up the mess.
 
 ----
 
-It turned out to be the first time of many. So, Sara tried changing a few things. She dropped the protein drinks, and tried the whole rest & fluids thing for a while. But it didn't seem to make any difference. 
+It turned out to be the first time of many. So, Sara tried changing a few things. She dropped the protein drinks, and tried the whole 'rest & fluids' thing for a while. But it didn't seem to make any difference. 
 
 ![](../assets/img/01.01/12-22-16_6-48-29%20PM.png)
 
@@ -153,11 +153,11 @@ The food was great, but it still went down rough for Sara. She managed to keep i
 
 "Still feeling under the weather, dear?" Jane sat back down across from Sara. "Look, I've been kind of wondering lately; what if you're pregnant?"
 
-"Wait," Sara closed her eyes, "is that even possible? But we're... How would..."
+"Wait," Sara closed her eyes, "is that even possible? But we were careful... and I..."
 
 ![](../assets/img/01.01/12-22-16_6-32-20%20PM.png)
 
-"I'm not sure, but it would explain a lot." Jane shrugged.
+"I know, but it would explain a lot." Jane shrugged.
 
 "I need some time to think..." Sara stood. "Like, I need a minute."
 
@@ -171,7 +171,7 @@ Jane did the dishes and waited a while, before she softly knocked on the door an
 
 ![](../assets/img/01.01/12-22-16_6-54-18%20PM.png)
 
-"But this is not something I ever though I'd have to... I didn't think I even could get... like with anyone." Sara couldn't even put all the words together.
+"But this is not something I ever though I'd... I didn't think I even could get... like with anyone." Sara couldn't even put all the words together.
 
 ![](../assets/img/01.01/12-22-16_6-54-33%20PM.png)
 
@@ -203,7 +203,7 @@ Soon after, Sara took a pregnancy test, that came out positive. After, she came 
 
 ----
 
-Since she hadn't been to the gym much lately, Sara invited over her buddy Don so they could catch up some.
+Since she hadn't been to the gym much lately, Sara invited over her buddy Don so they could catch up some while she had some tea. 
 
 ![](../assets/img/01.01/12-22-16_7-31-53%20PM.png)
 
@@ -215,30 +215,37 @@ Bonding with her friend helped Sara feel like herself.
 
 "You ok there?" Don asked.
 
-Sara swallowed and waited to see what her stomach was going to do. Thankfully, the feeling passed pretty quickly this time. "Yeah, apperently it's totally normal to just feel sick like, the entire time."
+Sara swallowed and waited to see what her stomach was going to do. Thankfully, the feeling passed pretty quickly this time. 
 
 ![](../assets/img/01.01/12-22-16_7-35-37%20PM.png)
 
-"Honestly that's not even the worst part; it's just like how am I supposed to get used to this, you know? I can hardly breath, there's a laundry list of things I can't eat; my endurance is totally shot." Sara complained. "None of my joints feel right, and I had to get a size bigger of all my shoes." Sara scoffed. 
-
-"Give it time. For one thing, you'll get at least some of your endurance back the moment you can breath fully again." 
+"Yeah, apparently it's totally normal to just feel sick like, the entire time." Sara tried to breath and she turned back to the TV. "I can't even breath right. It's just hard. I haven't been able to workout like I'm used to, and it's been putting me on edge. Sorry." She hadn't felt like this since before she'd taken up running and exercising as a teen. 
 
 ![](../assets/img/01.01/12-22-16_7-35-00%20PM.png)
 
-"Yeah, I guess you're right." Sara turned to the TV. "Just pisses me off."
+"You know," Don said, "there's a few things, they call them modifications, I've heard about that might help. I could coach you through trying them? Might help you still burn off that anger." 
 
-"I bet it isn't as bad as you say. I bet you could still burn off some of that anger if you did it right."
-
-"Is that a challenge?" She looked at him out of the side of her eye.
-
-"Go get your gym clothes and get on that treadmill." Don smirked. 
+Sara doubted it, but, "At this point, I'll try anything. I feel like I'm crawling out of my skin." She went to change then Don had her get on the treadmill. 
 
 ![](../assets/img/01.01/12-22-16_7-38-57%20PM.png)
 
-Sara did, and Don coached her through a less intense workout. 
+"Just a few more rep's, you'll get used to it." Don coached Sara through a less intense version of part of her usual workout. 
 
 ----
+
+As Sara's belly continued to grow, 
+
+![](../assets/img/01.01/12-22-16_7-08-48%C2%A0PM.png)
+
+the nausea was just as persistent. But Sara tried to remind herself it was only temporary. 
+
+----
+
 ![](../assets/img/01.01/12-22-16_7-42-16%20PM.png)
+
+Though some nights, Sara was up for other reasons. 
+
+----
 
 Then the next morning when they were getting ready for the day...
 
@@ -258,17 +265,17 @@ Then the next morning when they were getting ready for the day...
 
 ![](../assets/img/01.01/12-22-16_7-01-45%20PM.png)
 
-Sara's grin grew as she looked deep in Jane's eyes and gave a little nod.
+Sara's grin grew as she looked deep in Jane's eyes and gave a little nod. It helped seeing Jane so passionately excited, seeing her happy. Also, the look in her wife's eyes reminded Sara why she had choose to go through with this. It was hard not feeling comfortable in her own skin, but this was their chance to start a family. 
 
 ----
 
 ![](../assets/img/01.01/12-22-16_7-17-06%20PM.png)
 
-"How was your workout?" Jane asked when Sara got off the treadmill.
+"How was your workout?" Jane asked as Sara got off the treadmill.
 
 ![](../assets/img/01.01/12-22-16_7-18-33%20PM.png)
 
-Sara sat with her. "Good, it really helps to get myself moving, Don had some great tips."
+Sara sat with her. "Good, thanks to some coaching from Don. His advice was really solid, and working out some is really helping." Her emotions had been less on edge recently, which was a win. 
 
 ![](../assets/img/01.01/12-22-16_7-18-48%20PM.png)
 
@@ -278,11 +285,11 @@ Sara sat with her. "Good, it really helps to get myself moving, Don had some gre
 
 ![](../assets/img/01.01/12-22-16_7-45-04%20PM.png)
 
-Before she knew it, her belly had grown even larger.
+Before she knew it, Sara's belly had grown even larger.
 
 ![](../assets/img/01.01/12-22-16_7-47-30%20PM.png)
 
-To the point that swimming was just about the only form of exercise she could do anymore. It was a rough adjustment for Sara.
+To the point that swimming was just about the only form of exercise she could do anymore. It was another rough adjustment for Sara.
 
 ![](../assets/img/01.01/12-22-16_7-55-34%20PM.png)
 
@@ -317,29 +324,9 @@ Turns out, Sara had twin girls. Savanna & Emma Yootz.
  
  
 
-- [ ] This scene with the pool needs to be cut.
+<!-- ![](12-23-16_5-09-12%C2%A0PM.png) -->
 
-Giving birth to not one, but two baby girls left Sara weakened and tired. At first she needed full rest, and spent a few days in bed. She knew her career would be fine. Sure, taking a long break wasn't ideal, but neither was returning too early and hurting herself. There were going to be headlines about rather she still had it, no matter what she did. A female athlete's performance post-pregnancy could be flawless and the tabloids would still print stuff. It was part of the job. The only thing she could control there was waiting to return until she actually was ready, and the first step was getting enough rest. 
-
-But all that rest made her feel cooped up and restless, compounding her hot-headed nature. So she tried the swimming again, just as something to get moving and keep her anger calm. 
-
-One evening, Jane got both girls to sleep at the same time as Sara was outside swimming. Jane figured Sara was probably nearly done, so she went out to the front porch to see Sara struggling to pull herself up out of the water. 
-
-Once she was out, Jane called out, "Hey there you." She made her way down towards the pool. "How you holding up?"
-
-Sara shrugged as she started walking towards her wife, "I'm ok I guess? Still exhausted, feels like I can hardly move sometimes. I can't do much of anything." She sighed and frowned as she walked.
-
-"Sara," Jane met her half way, and took Sara's hands in her own, "don't be so hard on yourself. You have achieved a great, enormous physical feat."
-
-![](../assets/img/02.01/12-23-16_5-09-12%20PM.png)
-
-Sara tilted her head to one side just a little. "What are you talking about?" Sara didn't follow, Jane could not mean her swimming.
-
-"Of course, silly. You made not just one life, but two. Two beautiful baby girls." Jane pulled her close into a hug. "I can't tell you how happy I am that we have a family of our own; I admire how strong you are. And, of course you need time to heal right now." 
-
-Sara blinked. That way of looking at it hadn't occurred to her; she was used measuring ability in seconds, reps, or pounds. But Jane was right. "Thank you." Sara hugged her back. 
-
-----
+<!-- Maybe something about Jane being like thank you, I know that was hard for you. And Sara being confused because while it was hard to carry twins, she choose to do it. Sure it was a painful uncomfortable challenge, but she wanted them to start a family together, and maybe she didn't know if she could get pregnant again. Like getting pregnant once is a fluke, not proof that she will ever again. --> 
 
 Twins made money tight for a while, but they had each other and their girls.
 
@@ -353,7 +340,7 @@ and helping care for the girls.
 
 ![](../assets/img/02.01/12-23-16_6-03-46%20PM.png)
 
-Once Sara took some time to recover, she returned to work and gently eased back into her workouts. 
+Once Sara took some time to recover, she returned to work and gently eased back into her upping the intensity of her workouts. 
 
 ![](../assets/img/02.01/12-23-16_6-09-33%20PM.png)
 
@@ -374,7 +361,7 @@ There was a lot of love in their house.
  
  
 
-*Author's note: This was before the toddlers update patch, so that's why no toddler phase. Like I said, this is back in 2016.*
+*Author's note: This was before the toddlers update patch, so that's why no toddler phase.*
 
 ![](../assets/img/02.02/12-24-16_8-46-03%20AM.png "Emma, Sara, Savanna")
 
@@ -1707,7 +1694,7 @@ Plus, Emma and Anne became best friends.
 
 ----
 
-I didn't get an pictures for it, but Lilith's unborn child's father is Alexander Goth, married and changed his name to Alexander Bheeda (when he married Jayceon Bheeda, son of Arun Bheeda and Jesminder Bheeda). Lilith named her daughter Kaylie Vatore. And Kaylie comes up again later, in a while, when she's grown up a bit. 
+I didn't get an pictures for it, but Lilith's unborn child's father is Alexander Goth, married and changed his name to Alexander Bheeda (when he married Jayceon Bheeda, son of Arun Bheeda and Jesminder Bheeda, who Sara later turns into a vampire). Lilith named her daughter Kaylie Vatore. And Kaylie comes up again later, in a while, when she's grown up a bit. 
 
 *(Look things got weird in this save. Vlad birthed a son with Morter Goth before Morter died, and I had NOTHING to do with that, ok? Yes I put in MC CC, but I didn't tell it to do that.)*  
  
@@ -1816,6 +1803,8 @@ Emma took a bite of her popcorn and smiled, "It tastes just like it used to." Sh
 Jane got herself in the nose with her tossed popcorn, then turned to Emma, "You're very welcome sweetie." she returned the warm smile from her daughter. 
 
 "Shh, it's starting!" said Anne. 
+
+- [ ] Emma asks for the movie night, Emma is leaning into being childish because Anne is young (and Emma is bonding with Anne since Savanna is gone, Emma suddenly doesn't have her twin sister)
 
 ----
 
@@ -2055,7 +2044,7 @@ Her daughter, Mckinley, was born.
 
 Eventually, they end up as:
 
-Savanna married to Genji, the guy who's Mckinley's father. As a teenager, Mckinley hooked up with their married landlord, had a son named Grant. Then Savanna had a son named Bentley (Ben). Mckinley died of electrocution, Genji died of anger. 
+Savanna married Genji, the guy who's Mckinley's father. As a teenager, Mckinley hooked up with their married landlord, had a son named Grant. Then Savanna had a son named Bentley (Ben). Mckinley died of electrocution, Genji died of anger. 
 
 Grant is a bit older than Ben. 
  
@@ -3004,9 +2993,16 @@ Later that evening, Kaylie knocked on their door.
 		{"id":"3902afd3d4269777","type":"text","text":"Maybe they workout together like 2x a week, and so it's been at least like 2-3 days since they've seen each other and trained together. \n\n\"How you been?\" Sara greeted Don. \n\n\"Good, think I'm finally getting somewhere with Nina. You?\" Don smirked, \n\n\"Oh really? Well good luck.\" Sara stepped on the treadmill, \"Nothing too much, I don't know, my energy has been a little not great. Any ideas on that?\"\n\n\"Well, has anything else been different? Your sleep, diet, cycle, or anything like that?\" \n\n\"No, don't think so.\" Sara shook her head. Well, not yet anyway. Her cycle was supposed to start any day now. \n\nDon shrugged, \"Then I'd say give it a few days. Honestly could be nothing.\" \n\nDuring her workout with Don, she notices her endurance being a bit less. ","x":-460,"y":-420,"width":780,"height":560},
 		{"id":"d36ba0584d142505","type":"text","text":"I don't know I guess I'm just sort of picturing a scene where Sara is frustrated and she's having a hard time late calming down and stuff, because again she's had to scale back her workouts which means she's basically scaled back her anger regulation, and she's having to explain to Jane that this is how she functions, this is what's wrong. And Jane validates her, maybe saying something like she would be entirely out of sorts if she broke her hands, since she paints using her hands. And Jane then points out that there are alternative ways. Well cuz one thing during the first pregnancy she's not a professional athlete yet, she's in the athletic career path in the sims, but she's not full on pro athlete. \n\nI'm picturing something of like she's currently a young adult, she hasn't been one for very long, she's new at a lot of this, and as a teenager that was how she dealt with this anger. This is what she learned to do and it worked so she kept using it. And basically Jane is pointing out of like well that's why you have plan B, you have some sort of alternative strategy and it's one of those things were like Sara knows she's right it's just that's what she's used to. She's not used to sitting with her feelings, she's used to going for a run or punching the bag or lifting weight. She's used to handling the activation with activity. Because movement can help with metabolizing emotions. \n\nI mean that kind of thing (doing something other than the habit you've built over years) is hard to learn to do when you're activated. It's one of those things for like yeah intellectually you can understand but that doesn't mean you do it in the moment. That and it's hard to learn to do something else in those moments. ","x":1280,"y":280,"width":740,"height":640},
 		{"id":"0f0b67e042ecb52c","type":"text","text":"\"I feel like I'm crawling out of my skin.\" Sara\n\n\"If I injured my hands and couldn't paint for months, I would be a mess. I would have to find another way to express myself until my hands healed. You have to find another way to process the feelings.\" Jane\n\n","x":2100,"y":320,"width":400,"height":400},
-		{"id":"e26c26cd25ef8ca2","x":880,"y":-820,"width":400,"height":400,"type":"text","text":"- [ ] add Sara's job, at least that she has one. "}
+		{"id":"e26c26cd25ef8ca2","type":"text","text":"- [ ] add Sara's job, at least that she has one. ","x":880,"y":-820,"width":400,"height":400},
+		{"id":"353d153bb01f78be","type":"text","text":"He's still a womanizer though. I mean this hasn't come up in the story, but he has a son with Dina and okay the game's a little corrupt but I'm pretty sure a daughter (or granddaughter ?) with Nina, you know the sisters the caliente sisters I guess or however their name is spelled. And like how you say that's why he has his own house in strangerville, so that he can have lady friends over. I'm thinking it's less of a confides in Dawn and more of a well like she starts noticing her body is a little off during workouts and because he's more experienced in this kind of thing she goes to him for advice or they just happen to be like on the treadmills next to each other and she comments about it. And he makes you know some sort of kind of offhand comment to him of like that's why all that tracking stuff we went over is important, see if anything's off about like your hydration, nutrition, cycle, or whatever. And at that moment nothing's off but she's due to start her cycle anytime, and it doesn't. She might decide to take a test by herself, I mean that seems kind of obvious to me anyway, and at some point before she figures out what she wants the two of them are working out together again, and her performance is still slightly affected. Or maybe like her \"mental game\" is off and he notices? Because she knows she's had a positive pregnancy test, and is really conflicted about it. Like she's trying to focus on the workout, but she can feel her body being off so it kinda messes with her head. Don might be a little concerned, just like asking if she's ok or needs a minute to get her head straight ok whatever. Maybe at first she just says something like she's still feeling off, like last week or a few days ago or whatever. He could ask if she figured out what's up. And she's like yeah but she doesn't know what she going to do about it because it's her cycle. \"You gonna see a doctor?\" He asked. \"Yeah I got an appointment tomorrow to see what's going on.\" She said. Idk, maybe he offers something to help her focus? Like a breathing technique or something? Not that he's like all zen, just if he's that into fitness, I think he knows how to get himself to do a productive workout even when he's feeling off. Heck maybe she doesn't believe the pregnancy pee test. Like maybe she took one before that conversation with Don where she says yeah it's cycle that's off. Because she's been told she's can't get pregnant and maybe her & Jane were using \"some protection\" (without me ever spelling out exactly what method, maybe just \"not the most effective\") and so the conflict is more layered in that moment: she doesn't want to let herself hope that she's actually pregnant, she accepted she wouldn't have a family of her own, her and Jane had maybe talked about adopting some day later on, so she's juggling this like \"what if it's like cancer?\" with this like \"but what if I could have my own kids?\" not that she is excited or wants to be pregnant, and yet maybe she pictures something like her and Jane holding their baby. Lots of conflicting feelings. Because her specific type of infertility could do more with getting pregnant in the first place, meaning if she ends this one, she would do so knowing there may never be another one. Again this doesn't mean she'll enjoy pregnancy or like how it feels or have any \"omg baby\" energy. For her it's more like an unplanned challenge she takes on because she doesn't know if she'll get another chance. She decides she wants to have kids, and she willing to go through with the pregnancy to do it, but choosing isn't enjoying. She wants to keep it, but that doesn't make it messing with her workouts and therefore her emotional regulation any easier. It's still hard for her. Yes modified workouts help, but that's still messing with her established routine and system. She doesn't like the changes to her body. She chooses to go through them, and she doesn't blame them on her daughters or Jane or anyone, but that doesn't mean she likes them.","x":-460,"y":280,"width":876,"height":905},
+		{"id":"616d8d15504df859","type":"text","text":"Well and then it also plays into the second pregnancy during the vampire transformation, of it first her being like well this feels like pregnancy but no way I'm pregnant again. Only for reality to basically be like haha yes you are. Which plays into things like knowing that going through vampire transformation could have affected what is her unborn child at that time, but again ending the pregnancy isn't on the table for her. It isn't something she likes but who knows if she'll get another chance to have another child? Which can also play just a little bit maybe into the idea of later on when she gets abducted by aliens and doesn't come back pregnant and is in fact told by them that well she won't make a good host or she's an incompatible host or whatever. She assumes it has to do with her vampirism, but maybe it was more than only that. I mean sure her withered stomach played a part, but maybe also just her well sorta infertility. Which makes it make even more sense when Emma does come back pregnant. Emma doesn't have a withered stomach, and isn't infertile. Even if Sara's infertility had nothing to do with her not coming back pregnant from the aliens, it's still makes things be like yep that checks out.","x":700,"y":680,"width":400,"height":400},
+		{"id":"cd1c1f5e6cb9ba13","x":-270,"y":-1020,"width":400,"height":400,"type":"text","text":"Maybe something like Sara \"I don't know if that's what I want.\"\n\nDon chuckled, \"that's what dating is for. Get to know her, see what you think of her.\" \n\nBasically Sara being unsure if she wants a relationship with Jane, and not being sure if she wants something long term, but Don's like that's no reason to hesitate, give it a try and see how it goes, and that's why Sara goes for it and is forward about her feelings with Jane. And Jane likes forward. "},
+		{"id":"af96d60070c46f08","x":240,"y":-1020,"width":400,"height":400,"type":"text","text":"At some point when they're getting together (certainly before marriage), Sara would mention her 'probably infertile' to Jane, who would just be like \"well, then what do you think of adopting?\"\n\nAnd Sara would think for a moment, and nod. \"Yeah, we could try that. Some day.\"\n\n\"Yeah, later on. When we have a bigger house.\"\n\n\"And more money.\" Sara said. Her paychecks right now weren't much. \n\n\"When we're ready, we can talk about it.\" Jane leaned in for a kiss. \n\nThat way, they're both like yes kid but later. "}
 	],
-	"edges":[]
+	"edges":[
+		{"id":"a21a938ea1a024e8","fromNode":"353d153bb01f78be","fromSide":"right","toNode":"616d8d15504df859","toSide":"left"},
+		{"id":"2af4a0917f3a5c1d","fromNode":"3902afd3d4269777","fromSide":"bottom","toNode":"353d153bb01f78be","toSide":"top"}
+	]
 } 
  
 # 2.04-TalkToVampires.canvas 
