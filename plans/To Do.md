@@ -1,4 +1,5 @@
 
+- [ ] Sara's dark form eyes & sleep make up? 
 - [ ] Check the ToDoist sims tag/subproject
 - [x] Sync glasses setting
 - [x] fix Ben's glasses
