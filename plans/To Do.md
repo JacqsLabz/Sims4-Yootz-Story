@@ -1,4 +1,7 @@
 
+Sources:
+- [ ] no "ecto pooling" for emma
+
 - [ ] Sara's dark form eyes & sleep make up? 
 - [ ] Check the ToDoist sims tag/subproject
 - [x] Sync glasses setting
