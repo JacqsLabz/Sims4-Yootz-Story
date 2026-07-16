@@ -1,6 +1,141 @@
  
  
-# 1.1-TwoSims+Romance.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.03 Symptoms+Test.md 
+ 
+ 
+Sara starts to feel tired and like her joints are lose. 
+
+She checks a few things and takes a few tests at home. One of her standard tests is a pregnancy one, because her cycles are irregular from her intense training. 
+
+Except instead of the routine negative result, the pregnant test come sup positive. She didn't want to let herself hope. Hop was powerful, and painful when it got crushed. No way she was pregnant Sara told herself. She blinked and swallowed, and used her phone to make an appointment for a blood test. That would come up negative, and she could start looking for the real reason for her fatigue and loose joints. 
+
+This is going to establish a "no we do not hope for being pregnant because we gave up on that" mindset in Sara. But like she wants a child, but she doesn't let herself hope that she'll actually have one. That says a lot about her feelings and opinions and desires.
+
+Sara is having the fatigue and her joints feeling loose and those are not something to be ignored. Fatigue means that she needs to adjust something to her, but joints being loose is concerning because that is risking injury and she hasn't gone pro yet so she doesn't want to you know risk tearing a ligament or some bull like that that could end her career before it really starts. It's one of those things that gets her attention because she pays a lot of attention to her body and she takes care of her body. I mean yes she does do these crazy intense workouts, but she understands that there is risk inherent in the way she does things and so she manages that risk by paying attention to what her body is telling her. She knows when to push through pain and she knows when to stop. And loose joints is one of those whoa whoa whoa whoa what's going on kind of signals. So she goes through her standard checklist of things to check in her logs and tests to run on herself at home, and one of these is a pregnancy test. Not because she thinks she's going to get pregnant, she expects they will always come up negative every single time because she has fertility issues and then she started doing intense workouts they gave her irregular cycles, so she's basically like yeah no chance in hell I'm pregnant but you know standard check box here we go. And she takes one expecting it to come up negative like it always does whenever she goes through her little checklist, except it's positive. And the important part of this scene or bit of the story or whatever, is that she's going to have this mental moment of like okay the test is positive but she doesn't think she's pregnant, she doesn't let herself hope that she's pregnant because having hope crushed is devastating and she knows it's not likely like really not likely. And this is showing that she wants to be pregnant, but she gave up on that a long time ago.
+
+This is something that she's wanted for a long time she just like I said gave up on it because she didn't want to be repeatedly crushed by having her dreams crashed so she just didn't dream, not about pregnancy and having children and all that kind of thing. Well maybe I shouldn't say she wants to be pregnant, she doesn't actually want to be pregnant but she does want her own kid. She wants the end result of pregnancy. That doesn't mean she wants the actual process, but she is willing to go through the process to get the end result, which is a very hard thing but worth it. She's a very goal-oriented person.  
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.04 Telling Jane.md 
+ 
+ 
+After she got home from the appointment with the blood test, Sarah was laying in bed on her phone. And found herself down a rabbit hole online, specifically a thread where people were complaining about morning sickness. Right, because she'd never ran until she puked, no... she rolled her eyes. Was it healthy? Probably not. Had she pushed her body to that extreme before? Multiple times. 
+
+She had to agree that the various common symptoms of pregnancy sounded really uncomfortable; downright painful and unpleasant. But physical discomfort was part of becoming and being an athlete. She was no stranger to that. It was what it took to train to compete at the level she was aiming for. She could handle it. She was willing to deal with the pain and the risks and all of it for her goal of having a child of her own. 
+
+At the same time... everything she saw online agreed with what her doctor had said: her workouts were going to need to change in major ways, starting yesterday. Not that she would ever trust the internet over her doctor, but death by a thousand cuts (or sources in this case) helped to counter the urge she felt to use her punch bag to let off steam. Sara put her phone down, and sighed. That urge to kick and punch was a bit less, but it wasn't gone. Understanding helped some, but it didn't solve everything. 
+
+Giving up the intensity that kept her steady was going to be a serious difficult adjustment. But giving up on or risking losing a pregnancy? She couldn't live with that, not when this might be literally her only chance at it. She hadn't let herself hope, and now... the positive blood test result was folded up in her wallet, and the doctor had said based on it, she was maybe at the 2 month mark, give or take. 
+
+And yet, it didn't feel... real. Her body didn't feel that different, but the doctor had said that was normal too. Actually he'd pointed out that in very rare cases there were people didn't know until birth, that every case was utterly unique, and they would know exactly where she was at her ultrasound he'd scheduled for a month from now. 
+
+Sara heard the front door, then someone moving about the house. Meaning Jane was home from work. Sara put away her phone. Ready or not, it was time to tell her wife about this. She had no idea what she was going to say, but she didn't want to wait or delay telling Jane. It hadn't even been a full week of not pushing to her usual level and barely around a day of not following her usual exercise schedule, but she was already antsy. She needed to tell Jane what was going on before it got worse. 
+
+Jane was in the living room, admiring another new painting Sara hadn't seen before that was now hanging on their wall. When she heard Sara, she turned. "Hey dear," she smiled, "how did the appointment go? They get it figured out, or no?" 
+
+Sara had told Jane she was seeing the doctor, but the only reason she'd given Jane was some fatigue. "Yeah, going to have to make some changes, for a while. Because..." She swallowed and tried to gather her words. She found herself putting her hands in her pockets. "Because I'm pregnant."
+
+Jane just sort of stopped for a moment, then, "You're... pregnant?"
+
+So maybe she'd been a bit abrupt- ok more than a bit, but she couldn't think of a way to be smooth about it. If she could have, she would have taken a long hard run to clear her head before trying to have a conversation like this. But that wasn't an option. "Yeah. They took a blood test, it was positive." 
+
+Jane's eyes went big, then her hands went to her mouth, "You're pregnant? Sorry, I just asked that. Sorry." She paused. "This just doesn't feel real."
+
+"Tell me about it." Sara smiled at Jane's cute excitement. 
+
+"Do you know how far along?" Jane glance down to Sara's middle for a moment. Nothing to see there, not yet anyway.  
+
+"He said maybe two months, but can't be sure at this point." Her hands came up and she shrugged a bit. 
+
+----
+
+maybe there's kind of like taking a minute to sort of let Jane take that in and enjoy it and stuff, Jane might have some questions or something or just want to hug her or something like that. I mean basically Jane's going to be overjoyed. Maybe ask one of the standard questions like you know if it's a boy or a girl and Sara will be like I don't know yet, but I have an appointment scheduled and Jane want to come. 
+
+And at some point during that conversation after Jane kinda takes in the good new part, Sara say like "There's also something else... Something that you need to know." Sara shifted her weight. "Want to sit with me?"
+
+They moved to the couch. 
+
+"You know I do a lot of really high intensity workouts. Those aren't just because I want to be an athlete. Actually that's not why I started doing them at all." This was the part that she didn't know how Jane would take, Sara wasn't sure she'd ever said it out loud to anyone else before. "I get really intense anger sometimes, well, regularly, and that's how I've been dealing with it since around when I started high school." She held one hand with the other. "The thing is, I can't keep doing those really intense workouts while I'm pregnant, it would put me at risk of losing... it." That felt so weird to say aloud. Sara paused and took a breath to brace herself. "So I want to go ahead and apologize if I get snippy with you, I don't want to, but-" This was freaking her out more than a match, but she tried to focus. And not sound like she was making excuses. "Look, I'm going to try other ways to manage that anger," Sara swallowed, "but it might take me a while to adjust. So like I said, I want to go ahead and say I'm sorry now." 
+
+Jane looked down at her own hands, and the bits of paint on them. She had been using painting to deal her own emotions even longer than that. From the sound of what Sara was saying, this was going to be like not being able to use her hands for months on end. Her fingers curled and she reflexively brought them a bit closer to herself without even meaning to. And Sara was choosing something like that so they could start a family? Jane relaxed her hands, and put her arms around Sara. 
+
+I don't know I guess I'm just kind of seeing it as being like this really tender moment between them and Jane responding in a way that's supportive, using physical touch to signal that she's there basically I guess? 
+
+"If I injured my hands and couldn't paint for months, I would be a mess. I would have to find another way to express myself until my hands healed, otherwise I would lose my mind. Do you want help finding other ways to manage it?" 
+
+
+
+Do you want me to help you find another way to express yours?" Jane said. 
+
+ 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.05 Muscle Blur.md 
+ 
+ 
+Maybe some morning sickness or nausea starts? But Sara would be already proactively taking steps to manage it without having it yet, so that will help.  
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.06 Yoga Stretch.md 
+ 
+ 
+ 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.07 Bikini poof.md 
+ 
+ 
+ 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.08 The Ball.md 
+ 
+ 
+One day Sara and Jane were laying on their bed just talking. 
+
+As Jane talked, Sara rolled to her back. That heavy full feeling was back down in her pelvis, but rolling didn't help. 
+
+Sara had to admit, Jane made a good point. As she talked, Sara put her hand over the spot to warm it a bit, hopefully a little heat would relax things. Except when she put her hand over where the stretched full discomfort was, it didn't feel like normal. Sara stopped talking. There was this round firm mass, maybe the size of a baseball or so, except it seemed... heavier. No wonder if had felt almost like there was a paperweight in there yesterday during yoga. As it registered what the mass was, Sara also got hit with this intense feeling... sort of like intrusion? On a deep bodily level, there was this instinctive reaction that felt like it was something that didn't belong inside her. Sara blinked at the sensation. Wasn't feeling the baby supposed to be magical? 
+
+"What is it?" Jane tilted her head, she couldn't read Sara's expression, "You ok?" Jane wasn't sure if Sara looked caught off guard, or surprised? Or maybe something else? 
+
+"Yeah, it's-" Sara almost said it was nothing, but one loud clear thought interrupted her words: Jane would want to know. She didn't know how to word things, so she didn't try. "Give me your hand?" Sara held out hers. 
+
+Jane's eyebrows furrowed in confusion, and put her hand in Sara's. As Sara guided her hand down to Sara's lower belly, Jane's eyes got big. She couldn't mean... could she?
+
+Sara guided Jane's hand to the same spot hers had been a moment ago. "Push right here; just be gentle, things are a bit tender in there." Which was true, but also- Sara gently bit her lip a bit as her thoughts were interrupted. Jane pushing on it only increased that weird internal sensation of... rejection, or recoil? She felt an urge to move away, but Sara choose not to act on it. She wanted to stay where she was while Jane felt it, she wanted Jane to have this. 
+
+"Oh." Jane gasped. "OH!" Jane tried to blink away tears then looked up at Sara. Who was biting her lip, had she pushed too hard? "Sorry, I just-" She found herself smiling so big she couldn't talk. "Just wow." She managed to get out and tried to be more gentle with the pressure. 
+
+Sara couldn't help but smile back. Jane was so overwhelmed with pure joy that her eyes had teared up. Sara put her arms around Jane, "Come here you." Her tender soft loving Jane. The source of her magic. 
+
+Jane's hand move away as she used both of them to move her body closer, and went right in to kiss Sara, passionate and long. The feelings in her had simply overflowed. 
+
+After the sudden make out session, Sara rested on her back with her arm around Jane and Jane's head on her shoulder. Sara felt this warm sort of happiness. 
+
+"Can I...?" Jane looked up at Sara and held out her hand. 
+
+Sara gave a half smile down to Jane and nodded. As Jane's hand found the spot again, Sara felt that sort of somatic discomfort increase like before.  
+
+Then Jane whispered, "Our baby." as her jaw shook. 
+
+Sara kissed Jane on the forehead, "Yeah." The discomfort itself didn't change, but seeing Jane overjoyed like this, Sara found she didn't mind that unsettling feeling so much. She didn't know why she didn't like feeling the baby, but she did like seeing Jane so happy. She loved being the reason for that joy. On top of that, she really loved getting to hold Jane like this. 
+
+
+
+And being able to be the reason for that happiness. And to be able to hold Jane  
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.09 Ultrasound.md 
+ 
+ 
+Sara goes for her first ultrasound appointment with Jane about a month after finding out she was pregnant. 
+
+They find out Sara is carrying twins, and now is actually two months, not three (three would have been the estimate from the blood test at the time of the ultrasound). 
+
+Jane is excited, and maybe they're at least holding hands when Sara starts asking the practical questions, around how it will be different. She understands as the challenge she has chosen to undergo has changed, she wants to know how her game plan needs to change. 
+
+Sara understand that it will be even more of a challenge than she thought, but it doesn't change wants to continue the pregnancy. Part of her is excited that it's two, she just also doesn't shy away from how this means it's going to be physically harder. Though emotionally, it might actually be the same? She can't do her intense workouts either way. At least until gentle movement starts to help, but that takes time. 
+
+She might have some sort of sarcastic "well of course she never was one for half doing physical challenges before" thought. Like just this concept in her head of comparing it to physical challenges she's taken on in the past, because she typically picked from the hardest choices available. Sort of like a dry humor, that of course she's not doing pregnancy in "easy mode" she never does anything in easy mode when it comes to her body. Of course her body is "going for the gusto" on her. She was a bit of glutton for punishment, of course this wasn't going to be any different. 
+
+And there might be a moment where Jane isn't sure how Sara is taking the news of the twins, and checks on her. Sara might be a bit stunned at first. But then the framing of this just being a hard version of the same type of challenge kicks in and she's fine. Because that taps into her competitive nature in a healthy way, because it makes her motivated to rise to this harder challenge. There's a part of her that likes a physical challenge, and supporting her body  
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.1-TwoSims+Romance.md 
  
  
 This story starts with two roommate sims, when their friendship became more.
@@ -86,241 +221,14 @@ Sara got more tips from Don, including protein shakes.
 
 - [ ] That's "energy juice" - protein shakes require a bar to craft
 
-----
-
-- I'm going to have to **completely** re-write this.
-- [ ] Sara will noticed her body being "off" (pregnant) sooner. Being an athlete means being in very touch with her body.  
-- [ ] At some point Sara sits down with Jane and explains how she uses lifting weights, running, and punching to regulate her anger, so with her ability to do those things being reduced, her ability to regulate that anger is also going down
-- [x] Is that a coffee mug? Or a tea mug? We don't want coffee
-	- Tea mugs look like that in the game
-- [ ] 
-
-----
-
-![](../assets/img/01.01/12-22-16_6-15-41%20PM.png)
-
-Sara started noticing her endurance was off, and her joints felt different. Sometimes she wondered about why during her jogs on the treadmill. 
-
-![](../assets/img/01.01/12-22-16_6-19-08%20PM.png)
-
-When she wasn't distracted that is. Jane's affection was so warm. 
-
-----
-
-Whenever Sara had the day off work and Jane didn't, Sara got in some extra workouts.
-
-![](../assets/img/01.01/12-22-16_6-34-09%20PM.png)
-
-One such day, she was enjoying blowing off some extra steam, yelling at the punch bag. 
-
-![](../assets/img/01.01/12-22-16_6-35-20%20PM.png)
-
-That is, until she suddenly knew she was going to be sick.
-
-![](../assets/img/01.01/12-22-16_6-38-54%20PM.png)
-
-Sara barely made it to the bathroom.
-
-![](../assets/img/01.01/12-22-16_6-39-47%20PM.png)
-
-She didn't know what think as she tried to clean up the mess.
-
-----
-
-It turned out to be the first time of many. So, Sara tried changing a few things. She dropped the protein drinks, and tried the whole 'rest & fluids' thing for a while. But it didn't seem to make any difference. 
-
-![](../assets/img/01.01/12-22-16_6-48-29%20PM.png)
-
-*'When am I going to get over this... whatever it is?'* she found herself wondering.
-
-----
-
-She missed working out, but often didn't have the energy for it. 
-
-![](../assets/img/01.01/12-22-16_7-05-47%20PM.png)
-
-"How about I make us some breakfast?" Jane offered.
-
-"Yeah, sure." Sara tried to smile. Her stomach still wasn't doing that great, but she didn't want to worry Jane too much.
-
-![](../assets/img/01.01/12-22-16_6-28-03%20PM.png)
-
-The food was great, but it still went down rough for Sara. She managed to keep it from showing until Jane stood up to take their dirty dishes to the kitchen.
-
-![](../assets/img/01.01/12-22-16_6-31-15%20PM.png)
-
-"Oh," Sara moaned and held her rebeling stomach. *'Can't I keep anything down?'* she thought.
-
-"Still feeling under the weather, dear?" Jane sat back down across from Sara. "Look, I've been kind of wondering lately; what if you're pregnant?"
-
-"Wait," Sara closed her eyes, "is that even possible? But we were careful... and I..."
-
-![](../assets/img/01.01/12-22-16_6-32-20%20PM.png)
-
-"I know, but it would explain a lot." Jane shrugged.
-
-"I need some time to think..." Sara stood. "Like, I need a minute."
-
-Sara went to their bedroom and sat on their bed, and tried to sort through her racing thoughts.
-
-----
-
-Jane did the dishes and waited a while, before she softly knocked on the door and came in to check on Sara.
-
-"You might be right," Sara admitted,
-
-![](../assets/img/01.01/12-22-16_6-54-18%20PM.png)
-
-"But this is not something I ever though I'd... I didn't think I even could get... like with anyone." Sara couldn't even put all the words together.
-
-![](../assets/img/01.01/12-22-16_6-54-33%20PM.png)
-
-"I know." Jane pulled her close. "Trust me, I didn't expect this either."
-
-She rubbed her wife's back for a minute as they embraced.
-
-As they pulled back from the hug,
-
-![](../assets/img/01.01/12-22-16_6-55-45%20PM.png)
-
-Jane gave her a peck on the cheek.
-
-----
-
-Soon after, Sara took a pregnancy test, that came out positive. After, she came to sit out on the couch.
-
-"Hey there sweetie," Jane came around the couch, "how you doing?"
-
-![](../assets/img/01.01/12-22-16_6-50-48%20PM.png)
-
-"Better, I think." Sara tried a tentative smile, "How about you?"
-
-![](../assets/img/01.01/12-22-16_6-51-01%20PM.png)
-
-"Honestly, I'm so excited that we're going to be parents. Have you thought about any names?" Jane was so excited.
-
-"I haven't, not yet anyway." Sara was caught off guard.
-
-----
-
-Since she hadn't been to the gym much lately, Sara invited over her buddy Don so they could catch up some while she had some tea. 
-
-![](../assets/img/01.01/12-22-16_7-31-53%20PM.png)
-
-![](../assets/img/01.01/12-22-16_7-30-48%20PM.png)
-
-Bonding with her friend helped Sara feel like herself.
-
-![](../assets/img/01.01/12-22-16_7-34-51%20PM.png)
-
-"You ok there?" Don asked.
-
-Sara swallowed and waited to see what her stomach was going to do. Thankfully, the feeling passed pretty quickly this time. 
-
-![](../assets/img/01.01/12-22-16_7-35-37%20PM.png)
-
-"Yeah, apparently it's totally normal to just feel sick like, the entire time." Sara tried to breath and she turned back to the TV. "I can't even breath right. It's just hard. I haven't been able to workout like I'm used to, and it's been putting me on edge. Sorry." She hadn't felt like this since before she'd taken up running and exercising as a teen. 
-
-![](../assets/img/01.01/12-22-16_7-35-00%20PM.png)
-
-"You know," Don said, "there's a few things, they call them modifications, I've heard about that might help. I could coach you through trying them? Might help you still burn off that anger." 
-
-Sara doubted it, but, "At this point, I'll try anything. I feel like I'm crawling out of my skin." She went to change then Don had her get on the treadmill. 
-
-![](../assets/img/01.01/12-22-16_7-38-57%20PM.png)
-
-"Just a few more rep's, you'll get used to it." Don coached Sara through a less intense version of part of her usual workout. 
-
-----
-
-As Sara's belly continued to grow, 
-
-![](../assets/img/01.01/12-22-16_7-08-48%C2%A0PM.png)
-
-the nausea was just as persistent. But Sara tried to remind herself it was only temporary. 
-
-----
-
-![](../assets/img/01.01/12-22-16_7-42-16%20PM.png)
-
-Though some nights, Sara was up for other reasons. 
-
-----
-
-Then the next morning when they were getting ready for the day...
-
-![](../assets/img/01.01/12-22-16_7-00-33%20PM.png)
-
-"Last night was amazing." Jane smiled.
-
-"Tell me about it." Sara grinned back.
-
-"Do you mind if I..." Jane held her hand near Sara's belly.
-
-"Go head." Sara pushed her belly out.
-
-![](../assets/img/01.01/12-22-16_7-01-37%20PM.png)
-
-"Did you feel that kick?"
-
-![](../assets/img/01.01/12-22-16_7-01-45%20PM.png)
-
-Sara's grin grew as she looked deep in Jane's eyes and gave a little nod. It helped seeing Jane so passionately excited, seeing her happy. Also, the look in her wife's eyes reminded Sara why she had choose to go through with this. It was hard not feeling comfortable in her own skin, but this was their chance to start a family. 
-
-----
-
-![](../assets/img/01.01/12-22-16_7-17-06%20PM.png)
-
-"How was your workout?" Jane asked as Sara got off the treadmill.
-
-![](../assets/img/01.01/12-22-16_7-18-33%20PM.png)
-
-Sara sat with her. "Good, thanks to some coaching from Don. His advice was really solid, and working out some is really helping." Her emotions had been less on edge recently, which was a win. 
-
-![](../assets/img/01.01/12-22-16_7-18-48%20PM.png)
-
-![](../assets/img/01.01/12-22-16_7-18-39%20PM.png)
-
-----
-
-![](../assets/img/01.01/12-22-16_7-45-04%20PM.png)
-
-Before she knew it, Sara's belly had grown even larger.
-
-![](../assets/img/01.01/12-22-16_7-47-30%20PM.png)
-
-To the point that swimming was just about the only form of exercise she could do anymore. It was another rough adjustment for Sara.
-
-![](../assets/img/01.01/12-22-16_7-55-34%20PM.png)
-
-But Jane (and Don) helped her through it.
-
-----
-
-![](../assets/img/01.01/12-23-16_1-26-06%20PM.png)
-
-----
-
-![](../assets/img/01.01/12-23-16_1-44-08%20PM.png)
-
-"Um I think..."
-
-![](../assets/img/01.01/12-23-16_1-53-52%20PM.png)
-
-"Jane, it's definately time! Ahh!"
-
-Once that contraction passed, Jane replied, "Then let's get you to the bedroom, just like we planned."
-
-![](../assets/img/01.01/12-23-16_2-03-03%20PM.png)
-
-Jane stayed with her the whole time.
-
-![](../assets/img/01.01/12-23-16_2-05-46%20PM.png)
-
-Turns out, Sara had twin girls. Savanna & Emma Yootz.
  
  
-# 2.01-TwinBabies.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.12 Showing.md 
+ 
+ 
+ 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.01-TwinBabies.md 
  
  
 
@@ -357,7 +265,7 @@ and that Don had been right: most of her strength & endurance returned pretty qu
 There was a lot of love in their house.
  
  
-# 2.02-Children.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.02-Children.md 
  
  
 
@@ -398,7 +306,7 @@ Sara squinted as she looked at the empty space, but then complied and sprayed an
 Jane tried her best to help Savanna with her school project. 
  
  
-# 2.03-FamiliarFeeling.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.03-FamiliarFeeling.md 
  
  
 
@@ -623,7 +531,7 @@ Sara got dressed, and headed for Lilith's house.
 ![](../assets/img/02.03/12-12-17_6-49-16%20PM.png)
  
  
-# 2.04-TalkToVampires.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.04-TalkToVampires.md 
  
  
 ---
@@ -810,7 +718,7 @@ Jane's face dropped even more, so Sara put her arms around Jane and pulled her c
 "Tell me about it." Sara held her belly and tried not to wince at the pain. 
  
  
-# 2.05-ThirdOne.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.05-ThirdOne.md 
  
  
 
@@ -892,7 +800,7 @@ After a while, when she got closer, Sara moved to the bedroom to have her third 
 ![](../assets/img/02.05/12-12-17_9-55-08%20PM.png)
  
  
-# 2.06-NewTree.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.06-NewTree.md 
  
  
 
@@ -971,7 +879,7 @@ Sara loved all her girls dearly.
 <!-- Kitchen got re-modeled during this chapter -->
  
  
-# 2.07-DateNightOut.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.07-DateNightOut.md 
  
  
 
@@ -1106,7 +1014,7 @@ Jane's smiled was pained.
 ![](../assets/img/02.07/12-19-17_10-56-29%20PM.png)
  
  
-# 2.08-Transformation.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.08-Transformation.md 
  
  
 
@@ -1267,7 +1175,7 @@ A few nights later, they were at a party at the bluff's
 "Yay! Congrats dude!"
  
  
-# 2.09-Tragedy.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.09-Tragedy.md 
  
  
 
@@ -1350,7 +1258,7 @@ While they were both vampires, Sara was far more attuned to their dark power, an
 Sara knew Jane wasn't as in touch with the moral vale, she could feel it. So, she did as Jane asked, and left her to sort her emotions out by herself. 
  
  
-# 2.10-Death+Life.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.10-Death+Life.md 
  
  
 
@@ -1462,7 +1370,7 @@ Emma felt like she needed a change after everything she had been through, and de
 Sara made sure to hold her close.
  
  
-# 2.11-Camping.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.11-Camping.md 
  
  
 
@@ -1550,7 +1458,7 @@ Jane did, and after a few moments collapse on the couch, deflated. "We're losing
 
 They agreed to start setting aside money for when that happened.  
  
-# 2.12-MoreVampires.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.12-MoreVampires.md 
  
  
 
@@ -1700,7 +1608,7 @@ I didn't get an pictures for it, but Lilith's unborn child's father is Alexander
 
 *(Look things got weird in this save. Vlad birthed a son with Morter Goth before Morter died, and I had NOTHING to do with that, ok? Yes I put in MC CC, but I didn't tell it to do that.)*  
  
-# 2.13-TheFillerEpisode.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.13-TheFillerEpisode.md 
  
  
 
@@ -1841,7 +1749,7 @@ And a yoga studio
 ![](../assets/img/02.13/05-29-18_7-08-12%20PM.png "Jane, Sara, Emma")
  
  
-# 2.14-Birthdays.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.14-Birthdays.md 
  
  
 
@@ -1906,7 +1814,7 @@ Foosball games.
 Emma blew out the candles, and became a young adult!
  
  
-# 2.14.2-Savanna.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.14.2-Savanna.md 
  
  
 
@@ -2051,7 +1959,7 @@ Savanna married Genji, the guy who's Mckinley's father. As a teenager, Mckinley 
 Grant is a bit older than Ben. 
  
  
-# 2.15-Selvadorada.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.15-Selvadorada.md 
  
  
 
@@ -2237,7 +2145,7 @@ Went they got back, everyone was happy to be safely back home.
 
 %% Last screenshot in the Daisy Hovel house? %% 
  
-# 2.16-CityFestivals.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.16-CityFestivals.md 
  
  
 
@@ -2322,7 +2230,7 @@ Humor & Hijinks was a blast.
 Literally. Sara took a firework to the face.
  
  
-# 3.0-Anne.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.0-Anne.md 
  
  
 
@@ -2453,7 +2361,7 @@ Once the contraction passed, Sara pulled her in for a hug. "Don't worry, you got
 So everyone was there when Cassandra, daughter of Anne Yootz and Maki Hasegawa, was born.
  
  
-# 3.1-Emma+Camping.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.1-Emma+Camping.md 
  
  
 
@@ -2632,7 +2540,7 @@ Emma continued her morning hike, eventually making her way back towards the rent
 Emma decided to get in some dark meditation before heading back inside for breakfast with her family.
  
  
-# 3.2-Breakfast.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.2-Breakfast.md 
  
  
 ---
@@ -2732,7 +2640,7 @@ She knocked softly on the door, "It's me Emma sweetie." She pushed open the door
 "I know baby, but she's not feeling well." Anne sighed. "Maybe another day sweetie."
  
  
-# 3.2.2-VacaLonger.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.2.2-VacaLonger.md 
  
  
 
@@ -2767,7 +2675,7 @@ Sara sat down and took a few minutes to gather her thoughts. "Well, another thin
 "If by monster you mean humans, then yes. It will easier to hide Emma's alien child if no one back home even knows she was pregnant in the first place." Sara shifted. "Easiest way to do that is to stay out here for a bit longer than we originally planned." 
  
  
-# 3.2.3-Brenda.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.2.3-Brenda.md 
  
  
 
@@ -2790,7 +2698,7 @@ They spent some time together as a family.
 Anne met her niece, and Cassandra was nearby.
  
  
-# 3.3-Toddlers+Spam.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.3-Toddlers+Spam.md 
  
  
 
@@ -2928,7 +2836,7 @@ Brenda b-day to child (say she grew up quickly? And they don't know, but somebod
 Shower & sauna
  
  
-# 3.4-DistantFamily.md 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.4-DistantFamily.md 
  
  
 
@@ -2987,27 +2895,7 @@ Later that evening, Kaylie knocked on their door.
 "We've missed you too." Sara tried to smile. 
  
  
-# 1.01-Revising.canvas 
- 
- 
-{
-	"nodes":[
-		{"id":"d36ba0584d142505","type":"text","text":"I don't know I guess I'm just sort of picturing a scene where Sara is frustrated and she's having a hard time late calming down and stuff, because again she's had to scale back her workouts which means she's basically scaled back her anger regulation, and she's having to explain to Jane that this is how she functions, this is what's wrong. And Jane validates her, maybe saying something like she would be entirely out of sorts if she broke her hands, since she paints using her hands. And Jane then points out that there are alternative ways. Well cuz one thing during the first pregnancy she's not a professional athlete yet, she's in the athletic career path in the sims, but she's not full on pro athlete. \n\nI'm picturing something of like she's currently a young adult, she hasn't been one for very long, she's new at a lot of this, and as a teenager that was how she dealt with this anger. This is what she learned to do and it worked so she kept using it. And basically Jane is pointing out of like well that's why you have plan B, you have some sort of alternative strategy and it's one of those things were like Sara knows she's right it's just that's what she's used to. She's not used to sitting with her feelings, she's used to going for a run or punching the bag or lifting weight. She's used to handling the activation with activity. Because movement can help with metabolizing emotions. \n\nI mean that kind of thing (doing something other than the habit you've built over years) is hard to learn to do when you're activated. It's one of those things for like yeah intellectually you can understand but that doesn't mean you do it in the moment. That and it's hard to learn to do something else in those moments. ","x":1280,"y":280,"width":740,"height":640},
-		{"id":"0f0b67e042ecb52c","type":"text","text":"\"I feel like I'm crawling out of my skin.\" Sara\n\n\"If I injured my hands and couldn't paint for months, I would be a mess. I would have to find another way to express myself until my hands healed. You have to find another way to process the feelings.\" Jane\n\n","x":2100,"y":320,"width":400,"height":400},
-		{"id":"e26c26cd25ef8ca2","type":"text","text":"- [ ] add Sara's job, at least that she has one. ","x":880,"y":-820,"width":400,"height":400},
-		{"id":"353d153bb01f78be","type":"text","text":"He's still a womanizer though. I mean this hasn't come up in the story, but he has a son with Dina and okay the game's a little corrupt but I'm pretty sure a daughter (or granddaughter ?) with Nina, you know the sisters the caliente sisters I guess or however their name is spelled. And like how you say that's why he has his own house in strangerville, so that he can have lady friends over. \n\nI'm thinking it's less of a confides in Don and more of a well like she starts noticing her body is a little off during workouts and because he's more experienced in this kind of thing she goes to him for advice or they just happen to be like on the treadmills next to each other and she comments about it. And he makes you know some sort of kind of offhand comment to him of like that's why all that tracking stuff we went over is important, see if anything's off about like your hydration, nutrition, cycle, or whatever. \n\nAt that moment nothing's off but she's due to start her cycle anytime, and it doesn't. She might decide to take a test by herself, I mean that seems kind of obvious to me anyway, and at some point before she figures out what she wants the two of them are working out together again, and her performance is still slightly affected. Or maybe like her \"mental game\" is off and he notices? \n\nBecause she knows she's had a positive pregnancy test, and is really conflicted about it. Like she's trying to focus on the workout, but she can feel her body being off so it kinda messes with her head. \n\nDon might be a little concerned, just like asking if she's ok or needs a minute to get her head straight ok whatever. Maybe at first she just says something like she's still feeling off, like last week or a few days ago or whatever. He could ask if she figured out what's up. And she's like yeah but she doesn't know what she going to \"fix\" it because it's her cycle. \"You gonna see a doctor?\" He asked. \"Yeah I got an appointment tomorrow to see what's going on.\" She said. \n\nIdk, maybe he offers something to help her focus? Like a breathing technique or something? Not that he's like all zen, just if he's that into fitness, I think he knows how to get himself to do a productive workout even when he's feeling off. \n\nHeck maybe she doesn't believe the pregnancy pee test. Like maybe she took one before that conversation with Don where she says yeah it's cycle that's off. Because she's been told she's can't get pregnant and maybe her & Jane were using \"some protection\" (without me ever spelling out exactly what method, maybe just \"not the most effective\") and so the conflict is more layered in that moment: she doesn't want to let herself hope that she's actually pregnant, she accepted she wouldn't have a family of her own, her and Jane had maybe talked about adopting some day later on, so she's juggling this like \"what if it's like cancer?\" with this like \"but what if I could have my own kids?\" not that she is excited or wants to be pregnant, and yet maybe she pictures something like her and Jane holding their baby. Lots of conflicting feelings. \n\nBecause her specific type of infertility could do more with getting pregnant in the first place, meaning if she ends this one, she would do so knowing there may never be another one. Again this doesn't mean she'll enjoy pregnancy or like how it feels or have any \"omg baby\" energy. For her it's more like an unplanned challenge she takes on because she doesn't know if she'll get another chance. She decides she wants to have kids, and she willing to go through with the pregnancy to do it, but choosing isn't enjoying. \n\nShe wants to keep it, but that doesn't make it messing with her workouts and therefore her emotional regulation any easier. It's still hard for her. Yes modified workouts help, but that's still messing with her established routine and system. She doesn't like the changes to her body. She chooses to go through them, and she doesn't blame them on her daughters or Jane or anyone, but that doesn't mean she likes them.","x":-280,"y":280,"width":540,"height":660},
-		{"id":"616d8d15504df859","type":"text","text":"Well and then it also plays into the second pregnancy during the vampire transformation, of it first her being like well this feels like pregnancy but no way I'm pregnant again. Only for reality to basically be like haha yes you are. Which plays into things like knowing that going through vampire transformation could have affected what is her unborn child at that time, but again ending the pregnancy isn't on the table for her. It isn't something she likes but who knows if she'll get another chance to have another child? Which can also play just a little bit maybe into the idea of later on when she gets abducted by aliens and doesn't come back pregnant and is in fact told by them that well she won't make a good host or she's an incompatible host or whatever. She assumes it has to do with her vampirism, but maybe it was more than only that. I mean sure her withered stomach played a part, but maybe also just her well sorta infertility. Which makes it make even more sense when Emma does come back pregnant. Emma doesn't have a withered stomach, and isn't infertile. Even if Sara's infertility had nothing to do with her not coming back pregnant from the aliens, it's still makes things be like yep that checks out.","x":700,"y":680,"width":400,"height":400},
-		{"id":"cd1c1f5e6cb9ba13","type":"text","text":"Maybe something like Sara \"I don't know if that's what I want.\"\n\nDon chuckled, \"that's what dating is for. Get to know her, see what you think of her.\" \n\nBasically Sara being unsure if she wants a relationship with Jane, and not being sure if she wants something long term, but Don's like that's no reason to hesitate, give it a try and see how it goes, and that's why Sara goes for it and is forward about her feelings with Jane. And Jane likes forward. \n\n----\n\n\"You like her right?\" Don asked. \n\n\"Well, yeah, she's just so... passionate.\" Sara smiled. She didn't know how else to put it, Jane was so wonderfully quirky. \n\n\"Then ask her out.\" Don was matter of fact about it.\n\nSara looked down. \"But what if... what if it can't work?\" \n\n\"Like what if you can't agree about the dishes or having kids or she snores like a train and you can't stand it?\" Don raised an eye brow. \n\nSara tried to keep her expression the same; Don had no way to know how squarely he'd hit the nail on the head with that middle one. \"Yeah, stuff like that.\" What if kids were a deal breaker for Jane? \n\nDon chuckled and smirked, \"That's what dating is for. So you can get to know her, she can get to know you. Figure all that stuff out.\" \n\nSara bit her lip, she was new to all of this. ","x":-460,"y":-1260,"width":590,"height":640},
-		{"id":"af96d60070c46f08","type":"text","text":"At some point when they're getting together (certainly before marriage), Sara would mention her 'probably infertile' to Jane, who would probably be like \"well, then what do you think of adopting?\"\n\nAnd Sara would think for a moment, and nod. \"Yeah, we could try that. Some day.\"\n\n\"Yeah, later on. When we have a bigger house.\"\n\n\"And more money.\" Sara said. Her paychecks right now weren't much, not yet. \n\n\"When we're ready, we can figure it out.\" Jane leaned in for a kiss. \n\nThat way, they're both like yes kid but later. ","x":240,"y":-1020,"width":400,"height":400},
-		{"id":"3902afd3d4269777","type":"text","text":"Maybe they workout together like 2x a week, and so it's been at least like 2-3 days since they've seen each other and trained together. \n\n\"How you been?\" Sara greeted Don. \n\n\"Good, think I'm finally getting somewhere with Nina. You?\" Don smirked, \n\n\"Oh really? Well good luck.\" Sara stepped on the treadmill, \"Nothing too much, I don't know, my energy has been a little not great. Any ideas on that?\"\n\n\"Well, has anything else been different? Your sleep, diet, cycle, or anything like that?\" \n\n\"No, don't think so.\" Sara shook her head. Well, not yet anyway. Her cycle was supposed to start any day now. \n\nDon shrugged, \"Then I'd say give it a few days. Honestly could be nothingand go back to normal on its own.\" \n\nDuring her workout with Don, she notices her endurance being a bit less. ","x":-330,"y":-500,"width":640,"height":640}
-	],
-	"edges":[
-		{"id":"a21a938ea1a024e8","fromNode":"353d153bb01f78be","fromSide":"right","toNode":"616d8d15504df859","toSide":"left"},
-		{"id":"2af4a0917f3a5c1d","fromNode":"3902afd3d4269777","fromSide":"bottom","toNode":"353d153bb01f78be","toSide":"top"}
-	]
-} 
- 
-# 2.04-TalkToVampires.canvas 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.04-TalkToVampires.canvas 
  
  
 {
@@ -3067,7 +2955,9 @@ Later that evening, Kaylie knocked on their door.
 		{"id":"6fbb6e3cddc974f7","type":"text","text":"\"Look, I get why you put on a front around them, but you don't need to put on a brave face around me. Something is off about you.\" Don said. \"So what's going on?\"\n\nyou don't need to act tough \n\nyou know you don't need the brave face around me\n\nLook, I get what the front with them. But you know you don't need the act around me. Something is off about you. So what is it?\" ","x":3780,"y":-440,"width":400,"height":400},
 		{"id":"62121f3f1abbdc95","type":"text","text":"I mean she's going to be on leave from work anyway from the pregnancy, it would make sense for her to stop and look at what she wants to do with her life now. Like literally what species she is has just changed. If ever there is a time for soul searching, that's it. Plus the culinary career is indoors, and she gets off work after sundown. That's relevant. Sure she's not like super weak to the sun, but she isn't immune either. \n\nAnd maybe the bloody mary drink idea kinda has her going in that direction? Idk, I guess I want this to make sense because this is what happened in the save file. The sim Sara got to Rookie in the athletic career, and then switched to the culinary career path, and that's part of why they started having bars in every kitchen in the house. Like I built that kitchen themed with decor to match the best bar in the game. That wasn't easy, since it's tiki themed and most of the kitchen objects in the game aren't. ","x":1110,"y":-600,"width":680,"height":880},
 		{"id":"130bfe72d75c2bb0","type":"text","text":"Building on that if she had to learn some mindfulness exercises with Jane's help during her first pregnancy, that could basically be where her head space is now, I'm just trying to breathe just trying to relax, as an athlete she probably has a higher pain tolerance and has a completely different mindset when it comes to pain, so she's not freaking out about the physical sensations the discomfort and the pain, and she could be trying to in this pregnancy use the stuff that helped her some in the last pregnancy, maybe she could still work out more in the last one? Because regular human, where is this one she's had the fucking tug of war from hell inside her. And that could all relate back to later with Cassandra, and helping her with the werewolf fury. Because also eventually she's going to switch away from the pro athlete career and into the culinary career, so she's going to need to work on that whole using other things to manage her anchor. Not that she can't use punching anymore, but things are going to change. That has a certain sort of irony to it though, going into food service when she can't eat. But it's actually someone who's been in food service it's actually more convenient that way if you don't need to eat.\n\nWell it could be that she's just working up the ranks to become a mixologist, because what she's actually interested in his bartending, because well it's the only thing she can have now? I don't know that feels like a really weird pivot that doesn't really that math don't math I don't know or maybe it does I'm really unsure about that. Because like she was so committed to being an athlete, and exercise has been such a big part of her life, but like at the same time that was only to manage her anger and thanks to her pregnancies she probably learned to not need as much exercise, also she's a vampire so like her life has taken a sharp right turn no left turn those are more violent and dangerous. Like I mean who's to say she could even pass basic physicals as vampire? Also it's not really a competition if you literally have superhuman abilities.  ","x":251,"y":-400,"width":611,"height":800},
-		{"id":"2ca47bc7878094f6","type":"text","text":"I don't want working out to becomes useless to her once she's a vampire, maybe it's more like she needs to approach it differently. Like when she was a human teenager, maybe she could just go for a run and that was enough to cause the full regulation, that was enough activity to scale down her activation, but as a young adult vampire, while the activity still helps it doesn't de-escalate everything on its own, maybe she has to bring the more mindfulness and what not into her workouts, like still punching, but really honing into her body and really paying attention to how that feels while she's punching. Like it necessitates more mind body connection to work, and maybe she supplements the workouts with like meditating or whatever.\n\nMaybe she also has control over her strength. Because vampires that have the speed can choose to walk at a normal human sim pace. Maybe it's about how much she uses the dark power while she's running or punching or lifting. So again there's more of a mind-body connection required to make this work for her. She can choose how she mixes the ratio of her supernatural abilities with her her own muscles, if she's in tune with her body & is paying attention & such. ","x":2030,"y":-440,"width":680,"height":560}
+		{"id":"2ca47bc7878094f6","type":"text","text":"I don't want working out to becomes useless to her once she's a vampire, maybe it's more like she needs to approach it differently. Like when she was a human teenager, maybe she could just go for a run and that was enough to cause the full regulation, that was enough activity to scale down her activation, but as a young adult vampire, while the activity still helps it doesn't de-escalate everything on its own, maybe she has to bring the more mindfulness and what not into her workouts, like still punching, but really honing into her body and really paying attention to how that feels while she's punching. Like it necessitates more mind body connection to work, and maybe she supplements the workouts with like meditating or whatever.\n\nMaybe she also has control over her strength. Because vampires that have the speed can choose to walk at a normal human sim pace. Maybe it's about how much she uses the dark power while she's running or punching or lifting. So again there's more of a mind-body connection required to make this work for her. She can choose how she mixes the ratio of her supernatural abilities with her her own muscles, if she's in tune with her body & is paying attention & such. ","x":2030,"y":-440,"width":680,"height":560},
+		{"id":"f4cacc2eab7f459e","type":"text","text":"\"Using your sense on your own body well harm your mind-body connection.\"\n\nSara already knew she needed that, \"Yeah, can't lose that.\" That mindful awareness was even more important while she was pregnant, it was how she had gotten through her first pregnancy. \n\n\"No, you wouldn't be able to regulate you vampiric strength if you lost it.\" Lilith said. \"It would make living with humans even more difficult.\"\n\nBasically have Lilith point out the downside: that she would lose her ability to \"dial down\" her superhuman abilities, and Sara doesn't know in that moment how important that will be to her, but she does figure it out at some point. \n\nOr maybe she finds it in the books? If I can't get the scene to flow nicely. ","x":-1520,"y":8400,"width":400,"height":400},
+		{"id":"2dad32a2223f61f8","x":-1400,"y":-3020,"width":400,"height":400,"type":"text","text":"Maybe part of how it feels different is she can feel her insides moving, not just her stomach, but her whole gut churning is this weird way. Basically anything that got part her stomach going back to her stomach so she can throw it up. Her body is hitting a major \"reverse\" because finishing digestion just isn't an option anymore. She can't \"pass\" it, so her body is removing it. "}
 	],
 	"edges":[
 		{"id":"b9cb5792576cb979","fromNode":"ba8931403c5441ab","fromSide":"bottom","toNode":"d08e9d8625e05d07","toSide":"top"},
@@ -3096,11 +2986,12 @@ Later that evening, Kaylie knocked on their door.
 		{"id":"e5e6b6d77e92838d","fromNode":"066231c87565821a","fromSide":"bottom","toNode":"1a90bf367c92d3ce","toSide":"top"},
 		{"id":"3a55e11c432af7cc","fromNode":"ce6914bd65538672","fromSide":"bottom","toNode":"066231c87565821a","toSide":"top"},
 		{"id":"8b48c806aabf461b","fromNode":"1231a37daafe6f2c","fromSide":"top","toNode":"6c39ae022153bf72","toSide":"bottom"},
-		{"id":"fe96cb777540e06a","fromNode":"1231a37daafe6f2c","fromSide":"right","toNode":"6fbb6e3cddc974f7","toSide":"left"}
+		{"id":"fe96cb777540e06a","fromNode":"1231a37daafe6f2c","fromSide":"right","toNode":"6fbb6e3cddc974f7","toSide":"left"},
+		{"id":"ecd41096b8453076","fromNode":"ce6914bd65538672","fromSide":"left","toNode":"f4cacc2eab7f459e","toSide":"right"}
 	]
 } 
  
-# 2.14-Birthdays.canvas 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.14-Birthdays.canvas 
  
  
 {
@@ -3112,7 +3003,7 @@ Later that evening, Kaylie knocked on their door.
 	"edges":[]
 } 
  
-# 3.2-Breakfast.canvas 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\3.2-Breakfast.canvas 
  
  
 {
@@ -3121,4 +3012,75 @@ Later that evening, Kaylie knocked on their door.
 		{"id":"6ae23bbe6fdf2782","x":440,"y":3120,"width":400,"height":400,"type":"text","text":"Idk, maybe Sara doesn't come back downstairs. Maybe Sara stays with Emma. \n\nMaybe Emma cries a bit, and Sara asks if she wants to be alone. "}
 	],
 	"edges":[]
+} 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.01 Revising\1 Love.canvas 
+ 
+ 
+{
+	"nodes":[
+		{"id":"e26c26cd25ef8ca2","type":"text","text":"- [ ] add Sara's job, at least that she has one. ","x":880,"y":-820,"width":400,"height":400},
+		{"id":"cd1c1f5e6cb9ba13","type":"text","text":"Maybe something like Sara \"I don't know if that's what I want.\"\n\nDon chuckled, \"that's what dating is for. Get to know her, see what you think of her.\" \n\nBasically Sara being unsure if she wants a relationship with Jane, and not being sure if she wants something long term, but Don's like that's no reason to hesitate, give it a try and see how it goes, and that's why Sara goes for it and is forward about her feelings with Jane. And Jane likes forward. \n\n----\n\n\"You like her right?\" Don asked. \n\n\"Well, yeah, she's just so... passionate.\" Sara smiled. She didn't know how else to put it, Jane was so wonderfully quirky. \n\n\"Then ask her out.\" Don was matter of fact about it.\n\nSara looked down. \"But what if... what if it can't work?\" \n\n\"Like what if you can't agree about the dishes or having kids or she snores like a train and you can't stand it?\" Don raised an eye brow. \n\nSara tried to keep her expression the same; Don had no way to know how squarely he'd hit the nail on the head with that middle one. \"Yeah, stuff like that.\" What if kids were a deal breaker for Jane? \n\nDon chuckled and smirked, \"That's what dating is for. So you can get to know her, she can get to know you. Figure all that stuff out.\" \n\nSara bit her lip, she was new to all of this. ","x":-460,"y":-1260,"width":590,"height":640},
+		{"id":"af96d60070c46f08","type":"text","text":"At some point when they're getting together (certainly before marriage), Sara would mention her 'probably infertile' to Jane, who would probably be like \"well, then what do you think of adopting?\"\n\nAnd Sara would think for a moment, and nod. \"Yeah, we could try that. Some day.\"\n\n\"Yeah, later on. When we have a bigger house.\"\n\n\"And more money.\" Sara said. Her paychecks right now weren't much, not yet. \n\n\"When we're ready, we can figure it out.\" Jane leaned in for a kiss. \n\nThat way, they're both like yes kid but later. ","x":240,"y":-1020,"width":400,"height":400}
+	],
+	"edges":[]
+} 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.01 Revising\2 Preg.canvas 
+ 
+ 
+{
+	"nodes":[
+		{"id":"1ff9c3fce087a1e3","type":"text","text":"Some more ideas based on some pregnancy research: Since Sara does such intense workouts and is training with elite athlete as her goal, she'll likely have irregular cycles, and therefore her cycle won't be late exactly. Meaning a home pregnancy test would just be a normal routine thing for her that she does from time to time, and it coming out as negative is just part of the routine. She'll start feeling off and taking one will just be part of her \"normal operating procedure\" to take one along with probably a few other things to check the basics. \n\nBut then suddenly the test is positive. \n\nOnce she has the positive home test, then gets the blood test by herself (as in without Jane) within like a day or two. They tell her it's positive and schedule in ultrasound in about a month (when they think she'll be 12wks based on the blood test, but she'll actually be at 8-10wks because twins). \n\nSo she goes home and tells Jane she's pregnant (as described elsewhere, Jane wants kids and is excited) and Sara explains about her anger that Jane hadn't seen before because Sara had been managing it with intense workouts, and basically explains she might get snippy or testy (the scene described elsewhere). ","x":-570,"y":-900,"width":660,"height":503},
+		{"id":"5a0848868e48c742","type":"text","text":"One day Sara being like hey Jane like I want to talk or I have some news or hey can we talk or something like that.\n\nand Jane is like yeah, what's up \n\nSara is like \"well...\" and maybe like needs a moment to gather her words. And when she says that she's pregnant (however exactly she phrases it), Jane's eyes just light up. Like excitement joy that that sort of facial expression of like OMG. And it kind of like warms Sara's heart that Jane is so excited, because she was betting Jane would be so excited. ","x":-590,"y":-260,"width":700,"height":660},
+		{"id":"8d4fb1d0942eb8b7","type":"text","text":"So Jane helps with things like taking walks and trying yoga classes and other stress/anger management stuff, since Sara has to back off her workouts (cut the intensity) basically right away to not risk losing the pregnancy (which she doesn't want, with her issues around fertility, she isn't sure she can get pregnant again later, making her very motivated to do all she can to be safe with this one, even if it's hard for her). \n\nJane becomes like a \"teammate\" because they are working together on this shared goal. \n\nJane might help Sara with grounding herself? At least in the early part? Helping remind Sara in the moment to use the new strategies. ","x":-590,"y":480,"width":700,"height":280},
+		{"id":"23967a973b5367a3","type":"text","text":"Maybe eventually Sara switches her pj outfit to her pj pants and her workout top? The sports bra, if her belly gets to big for her usual pj shirt","x":340,"y":3600,"width":400,"height":400},
+		{"id":"88e7d27cc4c3cb5d","type":"text","text":"When then Sara & Jane go to the ultrasound appointment together and there's a lot of emotions. There's happiness about having two kids, and the knowledge that pregnancy with two is more of a challenge than one. There's a lot of Sara & Jane bonding and connecting. I mean yes Sara does struggle with the adjustment, because to some degree stress doesn't read as stress to her, it reads like an urge to do heavy weight lifting or hard running or similar because of years of learned habits, and she's having to resist & change those habits. It's hard for her, but it is what she choose for herself. And Jane steps up to help, and the two grow closer from it.\n\nThe \"Team\" Mindset: Because her partner has already proven they are a teammate by helping her manage her anger and workouts over the past month, their reaction to twins will naturally be: \"We can do this. We are a team.\"","x":-590,"y":1720,"width":700,"height":320},
+		{"id":"c84481326f080837","type":"text","text":"Don might comment on how quickly she's changing? I mean he'll know she's pregnant and unless she changes her workout clothes (a sports bra and shorts), he's going to see she's growing fast. I don't know if he'll say anything, but it's going to be visually obvious, since she's got twins growing in there. Sara still going to the gym will probably be more of a habit thing not a necessity thing, cuz she's doing low intensity workouts, but I mean the gym feels familiar? That is as long as it isn't too much of a reminder of what she can't do right now. But like I said I could also see it being familiar and feeling good to get out of the house and follow some of her typical pattern, even if all she does at the gym is walk on the treadmill (and not use the punch bags or weightlifting machines). ","x":-520,"y":2260,"width":560,"height":420},
+		{"id":"afb3a51c794a681e","type":"text","text":"\"Talk about going for double or nothin'.\"","x":360,"y":1620,"width":400,"height":400},
+		{"id":"e9872834b2a7e3bc","type":"text","text":"large grapefruit or a small cantaloupe size is 12wk for single, 8-10wk for twin. So about when Sara gets the ultrasound. ","x":360,"y":1080,"width":400,"height":400},
+		{"id":"5a1ff9381fd82dad","type":"text","text":"Kind of a connecting things sort of thoughts. Like before the pregnancy Sarah was using treadmills for running, and she could decide that she doesn't really like walking on a treadmill, and so that could be what prompts her walking with jane, maybe like at first just around their own little neighborhood. Or maybe they like go to the park and walk around the park or something like that. And after the pregnancy I have that Sarah goes on these endurance dogs out to like other places, including forgotten hollow where she gets bitten by a vampire, and so that could be like sort of a natural progression thing. Like before the first pregnancy she runs on treadmills. During the first pregnancy she walks outside because she finds she doesn't like walking on a treadmill, and so then after that first pregnancy when she starts running again she runs outside. And that's where she bumps into a vampire. I mean I might have the second pregnancy starts before the vampire transformation just because of where she's going to be in the pregnancy at the end of The vampire transformation and I don't want the vampire transformation to last for months, but I mean once she meets Lilith and Lilith can sense that she wants the dark power, kind of only a matter of time before Lilith turns her. And I mean maybe even if she knows she's pregnant before she gets bit, she could still just be going on one of her walks or something like that. Or like a lighter jog and less of like a long distance endurance run and she's just switching up the scenery. I don't know just a fun little way to tie things together I guess? Maybe?","x":360,"y":450,"width":640,"height":540},
+		{"id":"cf943dca4372bbec","type":"text","text":"Don is still a womanizer though. I mean this hasn't come up in the story, but he has a son with Dina and okay the game's a little corrupt but I'm pretty sure a daughter (or granddaughter?) with Nina, you know the sisters the caliente sisters I guess or however their name is spelled. And like how you say that's why he has his own house in strangerville, so that he can have lady friends over. \n\nI'm thinking it's less of a confides in Don and more of a well like she starts noticing her body is a little off during workouts and because he's more experienced in this kind of thing she goes to him for advice or they just happen to be like on the treadmills next to each other and she comments about it. And he makes you know some sort of kind of offhand comment to him of like that's why all that tracking stuff we went over is important, see if anything's off about like your hydration, nutrition, cycle, or whatever. \n\nAt that moment nothing's off but she's due to start her cycle anytime, and it doesn't. She might decide to take a test by herself, I mean that seems kind of obvious to me anyway, and at some point before she figures out what she wants the two of them are working out together again, and her performance is still slightly affected. Or maybe like her \"mental game\" is off and he notices? \n\nBecause she knows she's had a positive pregnancy test, and is really conflicted about it. Like she's trying to focus on the workout, but she can feel her body being off so it kinda messes with her head. \n\nDon might be a little concerned, just like asking if she's ok or needs a minute to get her head straight ok whatever. Maybe at first she just says something like she's still feeling off, like last week or a few days ago or whatever. He could ask if she figured out what's up. And she's like yeah but she doesn't know what she going to \"fix\" it because it's her cycle. \"You gonna see a doctor?\" He asked. \"Yeah I got an appointment tomorrow to see what's going on.\" She said. \n\nIdk, maybe he offers something to help her focus? Like a breathing technique or something? Not that he's like all zen, just if he's that into fitness, I think he knows how to get himself to do a productive workout even when he's feeling off. \n\nHeck maybe she doesn't believe the pregnancy pee test, and quickly schedules an appointment for a blood test. Like maybe she took one before that conversation with Don where she says yeah it's cycle that's off. Because she's been told she's can't get pregnant and maybe her & Jane were using \"some protection\" (without me ever spelling out exactly what method, maybe just \"not the most effective\") and so the conflict is more layered in that moment: she doesn't want to let herself hope that she's actually pregnant, she accepted she wouldn't have a family of her own, her and Jane had maybe talked about adopting some day later on, so she's juggling this like \"what if it's like cancer?\" with this like \"but what if I could have my own kids?\" not that she is excited or wants to be pregnant, and yet maybe she pictures something like her and Jane holding their baby. Lots of conflicting feelings. \n\nBecause her specific type of infertility could do more with getting pregnant in the first place, meaning if she ends this one, she would do so knowing there may never be another one. Again this doesn't mean she'll enjoy pregnancy or like how it feels or have any \"omg baby\" energy. For her it's more like an unplanned challenge she takes on because she doesn't know if she'll get another chance. She decides she wants to have kids, and she willing to go through with the pregnancy to do it, but choosing isn't enjoying. \n\nShe wants to keep it, but that doesn't make it messing with her workouts and therefore her emotional regulation any easier. It's still hard for her. Yes she can do less intense workouts, but it's the intensity that she's been using to deal with her anger and stress for years. Also she doesn't like the changes to her body. She chooses to go through them, and she doesn't blame them on her daughters or Jane or anyone, but that doesn't mean she likes them.\n\nOh and as far as the urine test: it would make sense for Sara to doubt it, but she could within a day or two get an appointment to get a blood test, and they would definitive. They would schedule her for an ultrasound in about a month, expecting her to be at 12 weeks, but she's not, she's at 8 and it's twins. It would be harder to guess how far she is at the blood test, because intense training would make her cycles irregular. ","x":-510,"y":-1723,"width":540,"height":660},
+		{"id":"8f158b7aedf207aa","type":"text","text":"Well and then it also plays into the second pregnancy during the vampire transformation, of it first her being like well this feels like pregnancy but no way I'm pregnant again. Only for reality to basically be like haha yes you are. Which plays into things like knowing that going through vampire transformation could have affected what is her unborn child at that time, but again ending the pregnancy isn't on the table for her. It isn't something she likes but who knows if she'll get another chance to have another child? Which can also play just a little bit maybe into the idea of later on when she gets abducted by aliens and doesn't come back pregnant and is in fact told by them that well she won't make a good host or she's an incompatible host or whatever. She assumes it has to do with her vampirism, but maybe it was more than only that. I mean sure her withered stomach played a part, but maybe also just her well sorta infertility. Which makes it make even more sense when Emma does come back pregnant. Emma doesn't have a withered stomach, and isn't infertile. Even if Sara's infertility had nothing to do with her not coming back pregnant from the aliens, it's still makes things be like yep that checks out. Or for Sara rolling her eyes and being like \"tell me something I don't know\" ","x":470,"y":-1423,"width":530,"height":563},
+		{"id":"e12f113d22c01fac","type":"text","text":"Maybe they workout together like 2x a week, and so it's been at least like 2-3 days since they've seen each other and trained together. \n\n\"How you been?\" Sara greeted Don. \n\n\"Good, think I'm finally getting somewhere with Nina. You?\" Don smirked, \n\n\"Oh really? Well good luck.\" Sara stepped on the treadmill, \"Nothing too much, I don't know, my energy has been a little not great. Any ideas on that?\"\n\n\"Well, has anything else been different? Your sleep, diet, cycle, or anything like that?\" \n\n\"No, don't think so.\" Sara shook her head. Well, her cycle hadn't been regular for a while now. Guess it was time to take one of those test she kept at home, just to rule that out. \n\nDon shrugged, \"Then I'd say give it a few days. Honestly could be nothing and go back to normal on its own.\" \n\nDuring her workout with Don, she notices her endurance being a bit less. ","x":-548,"y":-2500,"width":617,"height":640},
+		{"id":"2a75d225889ac23e","type":"text","text":"Sara's going to tell Don that she's pregnant I mean the two are friends, and he might help her with doing some moderate or low intensity workouts at least with the treadmill? I mean Sims gym equipment is basically treadmill punch bag and weight lifting machine. I don't know if there would be a such thing as like a low intensity weight lifting sort of idea? I also still really like the idea of Jane's suggesting a yoga class together, and so the two of them go partly because Sara's like well it's moving my body so maybe it'll work who knows. And maybe Jane mentions that she's read it takes doing it regularly for it to actually help so don't expect one session to really do too much. Or maybe Sarah's like you know looking it up on her phone herself and just kind of has this almost like resigned sigh of like a course it takes a lot of practice for this to actually be beneficial, that's usually how practice works for her. You know it's not one practice session that makes you able to do the thing or successfully perform the move it's countless practice sessions. Of course this mindfulness stuff works the same way can't be easy no no that would be too easy you know. Maybe that's not literally her thoughts but that's kind of what her thoughts boil down to if you translate them to the way I talk. I could just see her basically being like well of course it takes a lot of practice why would it not take a lot of practice okay let's start doing the practice then let's start knocking out these sessions.","x":260,"y":2200,"width":600,"height":540},
+		{"id":"7e0d44cc7dcedf0a","type":"text","text":"I'm thinking Sara's head will basically \"classify\" the yoga instructor as a type of coach or trainer, so Sara will of course tell them she's pregnant so they can tell her how to tailor the exercise to her current physical condition. No different than telling Don about her energy levels or a sports coach about pulling her shoulder or something like that. \n\nMight be a little odd to Jane or the instructor, but Sara isn't going to blush at it. Or maybe telling a stranger is odd to Jane, and Sara's manner of doing so is abnormally direct to the instructor, but this is how this works in Sara's mind. \n\nEither from online or from the instructor, Sarah is going to know to not bend forward too much, to not twist too much, if something is tight to just let it be tight don't force It, and so on. \n\nAnd/or maybe Jane just straight up finds them a prenatal yoga class, specifically targeted at during pregnancy. Even if it's not specifically for pregnancy, any amount of searching is going to tell them that gentle yoga is better, and so she's going to look for something that emphasizes not forcing stretching and just letting the body relax into poses and things like that. ","x":-1340,"y":420,"width":400,"height":400},
+		{"id":"7c5a00d589aaa89e","type":"text","text":"Well and I think she would understand that in the gym working hard to push to a new personal best serves her typical goal of getting stronger or faster. I mean sure she might catch herself having the impulse to do that, and it might feel really abnormal to not do so, but I can also see her respond like she does to \"get her head in the game\" as in taking a moment the breath and focusing on her goal. That doesn't make not pushing herself automatic, it doesn't make her miss doing so any less, it doesn't make it easy, it doesn't make her comfortable. But it does help her focus on using what might be her only chance to have a biological child with Jane. Because that's the big goal. She doesn't like being pregnant, but she's choosing to go through with this pregnancy. Since it has become priority 1 for her, she's trying to adjust everything else around it. \n\n\"The goal has changed. Pushing today means losing the match. Discomfort is part of the training.\"\n\nIt might also help that pregnancy has an end (and that she knows she'll \"recover\" from it, unlike an injury). Maybe sometimes it helps to remind herself that she will go back to running until her lungs burn but later not now. \n\nShe might not need anyone to help her learn to visualize it, she might figure that out on her own. Like she might have had a (past) coach teach her visualization, and so she's like well I wonder if I could just visualize running until I can't walk right. And Jane would be supportive by giving her the quiet space to do this. Or maybe Don could suggest it at some point? Idk, I might like that figures out how to do it on her own. ","x":-2400,"y":360,"width":620,"height":520},
+		{"id":"905815d69e3522ae","type":"text","text":"Well and I think I like this, combined with yoga and meditation and maybe a few other things they try. Because visualizing her past intense workouts that helped with her anger and stress I think helps with the idea that she goes back to them after the pregnancy. And I think it would help that this isn't something entirely new, it's using her memories of what it feels like to use her punch bag. Heck, she might even like go over to it and smell it to help activate those memories. She might even try changing into her workout clothes (at least while they still fit, maybe when they don't something similar or like just touching/smelling her workout clothes) and putting on the boxing gloves, but not actually throwing any punches. Or maybe she could find an audio track of hitting punch bag noises and listen to it and imagine it's her hitting the bag to make those noises. Or like I was thinking she would still go to the gym, but just because it's a familiar place and she like the familiar routine of seeing her gym buddy. She'll stick to light walking on the treadmill instead of doing anything serious while she's at the gym. But she could also find somewhere to sit at the gym and visualize herself doing an intense workout, and think about how she's going to do that workout after her pregnancy. Because she knows she's going to \"recover\" from this. I guess that's another element some injuries carry that this doesn't, some injuries there's no way to know if you'll be able to be an athlete afterwards. Well and because then she would hear all the normal sounds and smell all the normal smells of a gym, because she's literally in one. \n\nI don't know if she'll figure all that out in the month before the ultrasound, but especially as her belly grows in the later months, I could see her getting more limited in her movement, so she could lean more on the visualizing thing.","x":-2760,"y":1040,"width":560,"height":680},
+		{"id":"266518a26f91bbb4","type":"text","text":"Based on what I've seen online, Sara going to feel the difference in her belly before the ultrasound.\n\n- Wk5-6: her lower abs will start to blur/soften (starting just a week or two after the home test, cuz hormones. Home test = wk3-4)\n- Wk6-7: there will be pressure/stretching/tightness deep in her pelvis (starting another wk or 2 after that; this is her uterus starting to outgrow it's usual spot, stretching ligaments that hold it in place, at first she'll feel it when twisting/using her core/standing quickly) \n- Wk7-8: she'll notice a small mound/poof at her bikini line (another wk or 2 after that, uterus pushing her intestines up & out, and trying to suck her stomach in won't change it)\n- Wk8-10: If Sara lies flat on her back on the floor/bed, her abdominal muscles will stretch taut. If she or Jane presses gently right above her pubic bone, they won't feel soft fat or flexible muscle—they will feel a distinct, firm, baseball-sized mass. Which will line up with the theory that she's further along than she actually is and might make at least Jane wonder about how long until she starts to show. \n\nI'm picturing like Sara notices the stretching feeling changing. Then soon before the ultrasound appointment she feels like there's a ball, and basically shows Jane. And Jane is just all excited of course. \n\nSara is still having a hard time adjusting and she's not enjoying feeling or being pregnant, but she does enjoy Jane being excited about it. Because Sara likes seeing Jane happy. And Jane could mention that she saw online the other day said it mention Sara was probably right around the end of trimester 1 / start of trimester 2 (about 12wks, though I probably won't use weeks in the story). So when they find out she's like a month before that (about 8wks), Sara might feel a setback flavor of feeling. Like I said learning its twins is going to be very mixed feelings for Sara. \n\nWell and I think I like the laying down and feeling \"the ball\" in Sara's pelvis, the scene has such contrast. They're together, but emotionally they're in different places. Sara's noticing a lack of muscle tone in her lower core and she's feeling discomfort, and since it's been about a month she's already been struggling with her anger. So pregnancy has already been a struggle for her. Then on top of all that, to her the idea of something, of someone, inside her body feels almost like an invasion. One she's choosing to allow to happen, and she wants kids, but to Sara it feels weird. Intellectually she knows it makes sense for it to be there, but emotionally it feels like it shouldn't. She's made her choice, and she's not doubting it but this is more of the physical reality of that choice showing up. Kinda like she knew it would happen, but that didn't make her more ok with it. But. But at the same time, Sara knows what it will mean to Jane. So as much as it's uncomfortable and in a category of things that she normally she wouldn't mention or draw attention to, she shares it with Jane. Because she knows how Jane is going to react. Sara doesn't like the physical sensation, and she can handle being physically uncomfortable, but seeing Jane happy helps Sara with the handling being physically uncomfortable part. Sara likes seeing Jane smile. It doesn't make Sara like pregnancy, and she's still doing this for herself (because she wants to have a kid), but Sara likes that Jane likes that Sara is pregnant. Sure having a kid in the end makes it worth it in the end, but having Jane happy in that moment helps make it more worth it in that moment. It's a small thing, and Jane isn't doing it for Sara (Jane is just being herself), but I would say it's normal to enjoy seeing your partner smiling with so much joy and excitement.\n\nWell and I suppose this moment will be more of it feeling real to Jane as well? Of putting her hand there and knowing that that sort of ball in there is their baby. And Jane's a very enthusiastic kind of person. Passionate but not just in the romantic sense. And they're going to get an ultrasound very soon. I don't know I guess at the moment I'm picturing something like Jane blinks away tears of joy and then just tries to like smother Sara with kisses. Whatever Jane's response it's going to be something very very affectionate. I guess I'm just seeing Jane as being deeply moved by the experience. And then Sara just sort of holds her, and it's this really vulnerable emotional shared moment. \n\nWell and also because of that deeply passionate nature that Jane has is part of what Sarah loves about her. So she might not like her physical condition of being pregnant, but she sees it bringing out what she loves about Jane, and gets to hold Jane. Jane intense joy makes Sara happy, and Sara enjoys getting to hold Jane as she moves through that intense joy that was caused by Sara's decisions and putting up with her body being out of sorts. Again it wouldn't make Sara like the pregnancy, but Sara would like that she could bring that joy to Jane. And like I said Sarah decided to go through with the pregnancy for herself because she wants her own children, but like I said it's nice getting to see that side of her lover that is why she loves Jane, and getting to hold her as she expresses that passion that Sara loves so much about her.\n\nAnd maybe feeling this \"ball\" is significant for Sara because that it was all just symptoms in her body. Some morning sickness (nothing she couldn't happen), her joints being loose (impacting her workouts). But it was all still her body. And maybe she didn't expect this emotional reaction, but once her hand feels that ball in her pelvis and she knows it's the baby (she doesn't know its twins at that point, and it's assuming it's one), it causes this deep emotional advision to the idea of having someone else in her body. She knows intellectually it makes sense that the \"ball\" is there, but feelings was it registers as wrong. It isn't all only her body now. Part of her feels invaded or hijacked, which is also confusing since she knows she's choosing to stay pregnant. But the skin crawling feeling is there regardless. \n\nThis isn't about a loss of control or autonomy, as Sara hasn't lost either. She has actively choose to continue the pregnancy, and is still choosing/wanting that. The wrongness feeling isn't grounded in facts, and it doesn't feel like she's lost her autonomy or choice. It's not that complex or layered. Just that it's there and there's bodily response rejecting it, of wanting to push it away. And this deep feeling of finding it weird to have someone else in her body. Like I said in her mind she wants kids and she chooses this, but those are thoughts, not what she feels, not her gut reactions. She's not angry at the ball, but it is deeply uncomfortable for her, but not just physically uncomfortable. It's not just the physical fullness or pressure, it's that emotional discomfort and wrongness that's coming from having another in her body (not because of the pregnancy symptoms, just the presence of someone else in her body), it's feels inherently weird and uncomfortable emotionally for Sara. Like I said in her mind she knows it's the baby, but focusing feeling it doesn't cause happiness, it causes this emotionally uncomfortable feeling. In her mind she knows it's the baby and therefore it's serving her goal, but on a visceral level focusing on the physical feeling of the ball makes her skin crawl because it registers as weird and uncomfortable and out of place and in her body but not part of her body. It's so foreign to her (though it being unfamiliar isn't the issue, time doesn't \"solve\" it). Also this feeling doesn't come how she's given up her intense workouts. That is one reason she doesn't like pregnancy. This emotional response is another different separate reason. \n\nSeeing Jane so happy doesn't take that feeling away, but it helps give Sara something else to put her focus on. Because focusing on the physical sensation of her now firm and round uterus (the \"ball\", rather with her hand from the outside or that internal heaviness, fullness, and pressure she feels on the inside) does not bring her any positive emotions, but focusing on Jane's joy and how what Sara is doing is causing that joy for Jane brings Sara all kinds of warm fuzzies and love and happiness. ","x":-595,"y":900,"width":710,"height":760},
+		{"id":"e26f9d417d3aac74","type":"text","text":"I don't know I guess I'm just sort of picturing a scene where Sara is frustrated and she's having a hard time late calming down and stuff, because again she's had to scale back her workouts which means she's basically scaled back her anger regulation, and she's having to explain to Jane that this is how she functions, this is what's wrong. And Jane validates her, maybe saying something like she would be entirely out of sorts if she broke her hands, since she paints using her hands. And Jane then points out that there are alternative ways. Well cuz one thing during the first pregnancy she's not a professional athlete yet, she's in the athletic career path in the sims, but she's not full on pro athlete. \n\nI'm picturing something of like she's currently a young adult, she hasn't been one for very long, she's new at a lot of this, and as a teenager that was how she dealt with this anger. This is what she learned to do and it worked so she kept using it. And basically Jane is pointing out of like well that's why you have plan B, you have some sort of alternative strategy and it's one of those things were like Sara knows she's right it's just that's what she's used to. She's not used to sitting with her feelings, she's used to going for a run or punching the bag or lifting weight. She's used to handling the activation with activity. Because movement can help with metabolizing emotions. \n\nI mean that kind of thing (doing something other than the habit you've built over years) is hard to learn to do when you're activated. It's one of those things for like yeah intellectually you can understand but that doesn't mean you do it in the moment. That and it's hard to learn to do something else in those moments. ","x":300,"y":-250,"width":740,"height":640},
+		{"id":"f2e355545f37221d","type":"text","text":"\"I feel like I'm crawling out of my skin.\" Sara\n\n\n","x":1240,"y":-130,"width":400,"height":400},
+		{"id":"055ffede5f2cce26","type":"file","file":"Sims4-Yootz-Story/Chapters/1.08 The Ball.md","x":-1060,"y":1440,"width":400,"height":400},
+		{"id":"89fac3bb80e24b21","type":"file","file":"Sims4-Yootz-Story/Chapters/1.04 Telling Jane.md","x":-1200,"y":-640,"width":400,"height":400},
+		{"id":"289b354d4dae4331","type":"file","file":"Sims4-Yootz-Story/Chapters/1.09 Ultrasound.md","x":-1060,"y":1880,"width":400,"height":400},
+		{"id":"cd5681f507ba0dd0","type":"text","text":"Instead of her pregnant bump forming and her showing to others about 1.5-2 months after the ultrasound, Sara is instead going to show about a month after that. \n\nSingles show wk16-20, she's going to show wk10-14 (probably wk10-12, because her shirt is form-fitting, and in her gym outfit, which is just a sports bra and shorts). \n\n**The \"One-Month Ahead\" Rule:** After week 20, a twin bump generally looks and measures **4 to 5 weeks ahead** of a single pregnancy. At 24 weeks, your character will look like they are 28 weeks pregnant.\n\nThe Final Stretch: By week 32, a twin pregnancy reaches the same uterine volume as a full-term 40-week singleton. If the character makes it to 36 or 37 weeks, their bump will be much larger than a standard full-term belly.\n\nThe Visual Change: By week 12 to 14, the bump will round out enough that it no longer looks like she just had a heavy meal. What others see: If she wears a fitted shirt, anyone who knows her well will immediately notice the change in her silhouette. By week 14, even loose clothing will have a hard time hiding the distinct, round shape of a twin pregnancy.","x":-1120,"y":2320,"width":400,"height":400},
+		{"id":"2d5b361f9b244c74","type":"text","text":"Here is a week-by-week sensory and visual breakdown of what your character will experience internally and externally from week 6 to week 13, capturing that exact transition from internal pressure to the sudden outward \"pop.\"\n\n---\n\n## Week 6: The Unseen Anchor\n\n- What it Looks Like: Externally, her stomach looks completely flat and normal. In form-fitting athletic wear, nothing has changed visually.\n- What it Feels Like (Sensations): Deep, low, localized twinges and dull heavy aches.\n- Where She Feels It: Deep inside the true pelvis, right behind her pubic bone. It feels like severe menstrual cramps or a heavy weight sitting on her bladder.\n\n## Week 7: The Intestinal Crowding Begins\n\n- What it Looks Like: A slight thickening of her waistline by the end of the day. In tight leggings, her lower stomach might look a tiny bit soft, easily mistaken for a heavy lunch.\n- What it Feels Like (Sensations): Deep, internal pressure and early sharp, pulling twinges.\n- Where She Feels It: The round ligaments anchoring the uterus start to stretch. If she rolls over too fast in bed or sneezes, she will feel a sudden, sharp, lightning-bolt zap in her lower groin/pelvis. Internally, she feels bloated, but it feels like a heavy, dense bloat that doesn't go away.\n- she might need least extenders for her jeans\n\n## Week 8: The \"Solid Balloon\" Stage\n\n- What it Looks Like: A persistent, low-level pooch that looks exactly like gas or water retention. However, if she wears a tight dress, the pooch stays exactly the same shape from the side whether she is standing, sitting, or lying down.\n- What it Feels Like (Sensations): Rigid compression. The uterus is now the size of a large grapefruit. It is trapped by the pelvic bones and is forcibly shoving her intestines up and back against her spine.\n- Where She Feels It: Her lower abdominal cavity feels packed tight. If she presses her hand into her lower stomach, it doesn't squish or give way like gas; it feels rock-hard and resistant just an inch beneath the surface.\n\n## Week 9: The \"Splinted\" Core\n\n- What it Looks Like: In form-fitting clothes, her profile is no longer flat. Her lower abdomen is pushed forward into a firm, wide slant, but it lacks a round top. It just looks like her torso has become thicker and wider from hip to hip.\n- What it Feels Like (Sensations): Unyielding tension and structural resistance.\n- Where She Feels It: In her lower vertical abdominal muscles (the rectus abdominis). The muscles are being pulled completely taut over the displaced internal organs. If she tries to \"suck it in\" to zip up her pants, her brain tells the muscles to contract, but they physically cannot move backward. (Side note trying to squeeze into pants is not recommended and stupid uncomfortable, can cut off circulation and such, so she's not going to do that)\n- she might not fit in her pants anymore, even with waste extenders. \n\n## Week 10: The Crunchy Workout Ache\n\n- What it Looks Like: Her lower belly is distinctly full and rigid. In a tight dress, the fabric is pulled completely smooth across her lower torso, removing any natural dip at her waist.\n- What it Feels Like (Sensations): Deep muscular exhaustion and aching.\n- Where She Feels It: Right down the midline of her stomach (the linea alba). It feels exactly like she did 200 crunches the day before. The vertical muscle bands are under maximum tension, fighting the outward pressure of the uterus, which is now heavily encroaching on the abdominal space.\n- that is probably a sensation she's going to enjoy, because it feels like an intense workout\n- her pre-pregnancy pants almost definitely do not fit, again even with waste extenders she probably can't put them on, partially due to her legs changing in size but still. \n\n## Week 11: The Tipping Point (Maximum Pressure)\n\n- What it Looks Like: She looks heavily bloated, but the shape is completely frozen and unyielding. If she lies flat on her back, a normal bloat disappears into her flanks; her twin uterus remains as a hard, distinct mound rising above her pelvic bone.\n- What it Feels Like (Sensations): Suffocating tightness and a \"too-short\" torso.\n- Where She Feels It: Everywhere from her pubic bone to her belly button. The pressure is at an absolute maximum. Her skin over her lower abdomen feels dry and taut, and her core feels like a drumhead that has been tightened as far as the screws will allow. Bending over to tie her shoes feels like trying to fold a bowling ball in half.\n\n## Week 12: The Overnight \"Pop\"\n\n- What it Looks Like: The transformation. Over the course of 24 to 48 hours, the uterus finally clears the top of the pelvic bone. The flat, rigid slant of her stomach suddenly gives way to a distinct, forward-projecting, rounded sphere. In form-fitting clothing, there is no longer any ambiguity—it is an undeniable baby bump.\n- What it Feels Like (Sensations): A sudden, strange release of internal pressure, immediately followed by surface-level stretching.\n- Where She Feels It: The deep, suffocating ache inside her pelvis eases up as the uterus moves into the roomier abdominal cavity. However, the sensation instantly shifts to the skin and superficial tissue on the front of her stomach, which is now being pushed out past its normal human limits.\n\n## Week 13: The New Reality\n\n- What it Looks Like: A hard, basketball-like curve protruding sharply from her lower abdomen. Fabric on tight clothing stretches so thin over the bump that you can see the texture of her underwear waistband underneath.\n- What it Feels Like (Sensations): Intense, superficial skin tightness and itching.\n- Where She Feels It: The skin directly over the mound and right around her belly button. The skin feels so taut it feels brittle, like it might split open, and it begins to itch furiously as the dermis stretches. When she walks, she can feel the physical weight of the uterus swaying forward, dragging against the skin of her abdomen.\n\n---\n\nWould you like to focus on a specific moment from this timeline, perhaps exploring how sudden movements or clothing choices trigger these sensations during her daily routine?","x":-2447,"y":2326,"width":400,"height":400},
+		{"id":"37e8806840bcb1e5","type":"text","text":"The \"lie down test\" is a real, classic clinical milestone. In a twin pregnancy, it happens exceptionally early—right around week 8 to 9. [1, 2]\n\nIn a singleton pregnancy, the uterus is tucked completely behind the pelvic bone until week 12, making the test impossible before then. But because twins grow at double the speed, the uterus reaches that critical grapefruit size early. [1, 2]\n\n## How the \"Lie Down Test\" Fits the Timeline\n\n## Weeks 8 to 9: The Hidden Discovery\n\n- The Context: This fits right into the \"Solid Balloon\" stage from the previous timeline. While she looks vaguely bloated or thick when standing up (because her gut is being pushed forward), lying flat changes everything. [1, 3]\n- The Test: When she lies completely flat on her back, gravity pulls her soft intestines down into her flanks. A normal gas bloat will completely flatten out or disappear.\n- The Sensation: If she presses her fingertips firmly right into the skin just above her pubic bone, she will strike a sudden, unyielding wall. It feels like a smooth, hard, dense rubber ball or a grapefruit wedged right behind the bone. It does not squish, and it feels completely detached from her regular abdominal tissue. [1, 4]\n\n## Week 10: The \"Tennis Ball\" Shift\n\n- The Context: This is during her \"Splinted\" Core stage.\n- The Test: By week 10, the mass has grown large enough that she doesn't even have to press down deep to find it.\n- The Sensation: When she wakes up in the morning and lies flat, she will actually be able to see and feel a distinct, hard, grapefruit-sized lump visibly distorting her lower belly under the skin. If she has a full bladder, it pushes the uterus even higher, making it feel like a rock sitting right above her pelvis. [1, 5, 6]\n\n## Weeks 11 to 12: The Ascent\n\n- The Context: This is the Tipping Point right before the outward \"pop.\"\n- The Test: The hard mass is no longer just peeking over the pubic bone; it is actively climbing.\n- The Sensation: When lying down, she can trace the top curve of the uterus (the fundus) halfway up toward her belly button. It feels like a solid, heavy dome rising up out of her pelvis. [5, 7, 8]\n\n## Writing the Scene\n\nThis test is a great tool for a writer because it is often the exact moment a character (or her partner) realizes something is different. It changes the pregnancy from an abstract concept or \"just feeling sick\" into a tangible, heavy reality they can physically touch before a public bump ever forms. [1, 4]\n\nWould you like to write a scene where she shows someone else how to find the mass during the test, or uses it to figure out her body isn't just bloated? Let me know what you'd like to map out. [1]\n\n  \n\n[1] [https://community.whattoexpect.com](https://community.whattoexpect.com/forums/multiples-and-twins/topic/1st-trimester-question.html)\n\n[2] [https://my.clevelandclinic.org](https://my.clevelandclinic.org/health/diagnostics/22294-fundal-height)\n\n[3] [https://www.instagram.com](https://www.instagram.com/reel/DMO4Kj2tgTi/)\n\n[4] [https://thewonderweeks.com](https://thewonderweeks.com/pregnancy/week-by-week/pregnancy-week-11/)\n\n[5] [https://www.reddit.com](https://www.reddit.com/r/PregnancyAfterTFMR/comments/1l7z617/uterus_above_pubic_bone_at_only_10_weeks/)\n\n[6] [https://www.bellybelly.com.au](https://www.bellybelly.com.au/pregnancy/12-week-ultrasound/)\n\n[7] [https://thewonderweeks.com](https://thewonderweeks.com/pregnancy/week-by-week/pregnancy-week-11/)\n\n[8] [https://www.facebook.com](https://www.facebook.com/anurseinthemaking/posts/how-to-find-and-assess-the-fundus-after-delivery-for-mother-baby-clinicals-one-h/1705861598207142/)","x":-1860,"y":2500,"width":400,"height":400},
+		{"id":"2d8c8717fac69994","type":"text","text":"That internal tightness will absolutely stay with her, but it will constantly shift, evolve, and grow into a different type of sensation as her pregnancy progresses. By the time she reaches that 8-to-10-week mark where she can feel the firm mound from the outside, that initial subtle pulling will have turned into a very real, constant internal presence.\n## How the Sensation Evolves week by week:\n## Wk 6 Unseen Anchor\n- It feels like severe menstrual cramps or a heavy weight sitting on her bladder. Deep, low, localized twinges and dull heavy aches.\n- her belly looks completely flat and normal\n## Weeks 6 to 7 (The Initial Pull)\n\n- What she feels during yoga: This is when she first notices it during gentle yoga twists or stretching poses (like Cobra or Upward Dog).\n- The feeling: It feels like a deep, stubborn muscle strain or a tight rubber band pulling in her lowest pelvic floor. It is subtle enough that she might initially try to \"breathe through it\" or stretch it out, only to find that it refuses to loosen up. \n## Wk 7 Intestinal Crowding Begins\n- slight thickening of her waistline by the end of the day (like she had a lot to eat)\n- Deep, internal pressure and early sharp, pulling twinges.\n- If she rolls over too fast in bed or sneezes, she will feel a sudden, sharp, lightning-bolt zap in her lower groin/pelvis. Internally, she feels bloated, but it feels like a heavy, dense bloat that doesn't go away.\n## Wk 8 Solid Balloon \n- persistent, low-level pooch that looks exactly like gas or water retention, except it's \"solid\" and doesn't push in\n- Rigid compression: Her lower abdominal cavity feels packed tight. If she presses her hand into her lower stomach, it doesn't squish or give way like gas; it feels rock-hard and resistant just an inch beneath the surface.\n\n## Weeks 8 to 10 (The \"Fullness\" and Pressure)\n\n- What she feels during yoga: This is her body right at the time of the ultrasound.\n- The feeling: The stretching sensation shifts into a feeling of heavy internal fullness and pressure. It no longer feels like a tight muscle; it feels like she has a solid, heavy paperweight that is sitting deep behind her pubic bone. When she moves into yoga poses that fold her body (like Child’s Pose or a seated forward fold), she will physically feel her torso compressing against a hard obstacle inside her own pelvis. \n## Beyond Week 12 (The Structural Shift)\n\n- The feeling: Once she clears the first trimester, the uterus actually pushes up and out of the pelvic bucket and enters her main abdominal cavity. The internal tightness will change from a deep pelvic ache into a wide, surface-level stretching across her entire belly. Her skin and abdominal walls will start to feel tight and itchy as they expand rapidly to accommodate the twins. ","x":-1880,"y":1045,"width":660,"height":470},
+		{"id":"6105724b64bd1c8c","type":"text","text":"Jane is going to ask to feel the baby \"ball\" again, and mavel at it growing","x":-520,"y":3200,"width":400,"height":400},
+		{"id":"2f525fd7fa677a76","type":"text","text":"Important: Sara is choosing the pregnancy, so therefore feeling the baby is not a loss of her bodily autonomy as it is not happening against her will, but rather that her will/mind just isn't aligned with her physical lived somatic experience. Put simply, pregnancy isn't magical for her, and that's just yet another way she isn't what society says \"a woman\" is. ","x":-520,"y":3800,"width":400,"height":400},
+		{"id":"922654a7fa323c5d","x":-2262,"y":2928,"width":400,"height":400,"type":"text","text":"Cool cuz I'm writing a story with a character that thinks she's pregnant with one, but actually she's pregnant with two, and so she thinks she's basically a month ahead based on the blood test. She has irregular cycles so she can't use that method to guess where she is, and she's too early along for a measuring ultrasound just yet. So that'll just further feed into the idea of like yeah she thinks she's a month further than cheap actually is. "}
+	],
+	"edges":[
+		{"id":"f63889f26e8ed924","fromNode":"e26f9d417d3aac74","fromSide":"right","toNode":"f2e355545f37221d","toSide":"left"},
+		{"id":"e46040f0889641be","fromNode":"cf943dca4372bbec","fromSide":"right","toNode":"8f158b7aedf207aa","toSide":"left"},
+		{"id":"b7e5b53c89545349","fromNode":"e12f113d22c01fac","fromSide":"bottom","toNode":"cf943dca4372bbec","toSide":"top"},
+		{"id":"a6b45605e7af6373","fromNode":"1ff9c3fce087a1e3","fromSide":"bottom","toNode":"5a0848868e48c742","toSide":"top"},
+		{"id":"f8308af1cd529672","fromNode":"5a0848868e48c742","fromSide":"right","toNode":"e26f9d417d3aac74","toSide":"left"},
+		{"id":"051f00ecdc761e09","fromNode":"5a0848868e48c742","fromSide":"bottom","toNode":"8d4fb1d0942eb8b7","toSide":"top"},
+		{"id":"71851fbeff78955c","fromNode":"8d4fb1d0942eb8b7","fromSide":"right","toNode":"5a1ff9381fd82dad","toSide":"left"},
+		{"id":"97740b1e844da258","fromNode":"266518a26f91bbb4","fromSide":"right","toNode":"e9872834b2a7e3bc","toSide":"left"},
+		{"id":"f061dc30c73f16e7","fromNode":"8d4fb1d0942eb8b7","fromSide":"bottom","toNode":"266518a26f91bbb4","toSide":"top"},
+		{"id":"a820c2c3f01af27d","fromNode":"88e7d27cc4c3cb5d","fromSide":"right","toNode":"afb3a51c794a681e","toSide":"left"},
+		{"id":"d33e277ceb228be1","fromNode":"88e7d27cc4c3cb5d","fromSide":"bottom","toNode":"c84481326f080837","toSide":"top"},
+		{"id":"c593e6f81b91d4c0","fromNode":"266518a26f91bbb4","fromSide":"bottom","toNode":"88e7d27cc4c3cb5d","toSide":"top"},
+		{"id":"4e68fc3f87a1e8ef","fromNode":"cf943dca4372bbec","fromSide":"bottom","toNode":"1ff9c3fce087a1e3","toSide":"top"},
+		{"id":"bdb48774f9e82a35","fromNode":"c84481326f080837","fromSide":"right","toNode":"2a75d225889ac23e","toSide":"left"},
+		{"id":"cf558eda09fac0fd","fromNode":"8d4fb1d0942eb8b7","fromSide":"left","toNode":"7e0d44cc7dcedf0a","toSide":"right"},
+		{"id":"7bb66f8f290ea754","fromNode":"7e0d44cc7dcedf0a","fromSide":"left","toNode":"7c5a00d589aaa89e","toSide":"right"},
+		{"id":"3f5a1baafaad87f7","fromNode":"7c5a00d589aaa89e","fromSide":"bottom","toNode":"905815d69e3522ae","toSide":"top"},
+		{"id":"3606810c73c2c7aa","fromNode":"266518a26f91bbb4","fromSide":"left","toNode":"2d8c8717fac69994","toSide":"right"},
+		{"id":"23e113f42071a74f","fromNode":"2d8c8717fac69994","fromSide":"bottom","toNode":"2d5b361f9b244c74","toSide":"top"},
+		{"id":"3500f3cda53eb222","fromNode":"2d5b361f9b244c74","fromSide":"right","toNode":"37e8806840bcb1e5","toSide":"left"}
+	]
 }
