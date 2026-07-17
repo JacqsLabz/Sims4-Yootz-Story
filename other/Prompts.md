@@ -1,4 +1,8 @@
 
+Please focus on Sara's first pregnancy and what happens while she's pregnant. Please don't review her background as an athlete, please start with Sara taking a home pregnancy test and work from there without spending time on what leads up to that moment. 
+
+----
+
 Please focus on what happens when Emma finds Ben & Grant, how she takes them to Jane, everything that happens when they meet the extended family they didn't know existed out in the woods, and the rental cabin in Granite Falls. How Grant learns more about all of them, and please spend a lot of time looking at Grant's mental state, personality, and any mental/emotional changes he is going through during this change in his life. 
 
 ----
