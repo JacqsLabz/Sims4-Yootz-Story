@@ -1,0 +1,10 @@
+{
+	"nodes":[
+		{"id":"6abbc9ee44ed31f5","x":-520,"y":-360,"width":540,"height":460,"type":"text","text":"# Sara Yootz\n- Light skinned\n- Red hair. Medium length (a little past her shoulders), choppy cut, usually simply wears it down (doesn't do much with it)\n- Red eyes (even before she's turned into a vampire, they do not glow)\n- Muscle, lean, almost masculine build. Basically no feminine curves: She does have average size breasts, but effectively no hips and not much butt. \n- Often wears sneakers, dark jeans, a red t-shirt and a unzipped jacket \n- Has multiple tattoos, including large ones on both arms and on her upper chest above her breasts. \n- No jewelry (no necklaces, rings, bracelets, earrings, etc)"},
+		{"id":"0ded3c24cf32c432","x":280,"y":-360,"width":480,"height":460,"type":"text","text":"# Jane Yootz\n- Madien name: Jane Witt\n- Pale skin\n- Purple Eyes\n- Black hair with purple streaks, typically in a french braid\n- Very thin feminine build: her breast are just below average in size, she has at least average sized hips and butt. \n- Often wears a black tank top, black and white plaid skirt, Stripped purple leggings, and big black knee-high boots covered in straps. \n- Wears feather earrings, a spiked choker, and punk-style bracelets. "}
+	],
+	"edges":[
+		{"id":"0a9b159865966057","fromNode":"6abbc9ee44ed31f5","fromSide":"right","toNode":"0ded3c24cf32c432","toSide":"left"},
+		{"id":"646dc05f98910534","fromNode":"0ded3c24cf32c432","fromSide":"left","toNode":"6abbc9ee44ed31f5","toSide":"right"}
+	]
+}

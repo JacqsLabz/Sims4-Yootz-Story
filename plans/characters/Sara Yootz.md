@@ -4,7 +4,7 @@ Past Jobs:
   - Professional Athlete - Minor Leager
   - Culinary - Lvl 8
 ---
-Her love is fiercely protective. She's practical, blunt, and straight forward. She focuses on the next practical step. 
+Her love is fiercely protective. She's practical, blunt, and straight forward. She focuses on the next practical step. Acting protective is grounding for her. 
 # Next Steps
 - Move to Strangerville
 - Military career (blend In)
