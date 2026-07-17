@@ -9,7 +9,7 @@ Descriptions of the physical appearance of the characters
 - Has multiple tattoos, including large ones on both arms and on her upper chest above her breasts. 
 - No jewelry (no necklaces, rings, bracelets, earrings, etc)
 ## Jane Yootz
-- Madien name: Jane Witt
+- Madden name: Jane Witt
 - Pale skin
 - Purple Eyes
 - Black hair with purple streaks, typically in a french braid
