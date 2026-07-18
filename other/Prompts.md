@@ -1,5 +1,5 @@
 
-Please focus on Sara's first pregnancy and what happens while she's pregnant. Please don't review her background as an athlete, please start with Sara taking a home pregnancy test and work from there without spending time on what leads up to that moment. 
+Please focus on Sara's first pregnancy and what happens while she's pregnant, especially after she tells Jane. Please don't review her background as an athlete, please start with Sara taking a home pregnancy test and work from there without spending time on what leads up to that moment. 
 
 ----
 
