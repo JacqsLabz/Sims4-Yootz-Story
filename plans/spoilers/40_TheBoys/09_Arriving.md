@@ -4,15 +4,15 @@ canvas:
 TheBoys:
   - "[11_Cooking](11_Cooking.md)"
 ---
-They arrived together at Gibbi point. Emma sighed. Her soul wanted to assert itself, to phase her body into a ghost. But it would need to wait. This was going to be hard enough without her appearing as though she was dead. She could just picture Jane panicking and searching her garden for death flowers, this was going to be hard enough without any of that. 
+They arrived together at Gibbi point. Emma sighed. Her soul wanted to assert itself, to phase her body into a ghost. But it would need to wait. This was going to be hard enough without her appearing as though she was dead. She could just picture Jane panicking and searching her garden for death flowers; this was going to be hard enough without any of that. 
 
 As Emma led the boys from the road back to the small cabin, they walked into a clearing with Sara and Cass sitting on folding camping chairs. There was a whole group of chairs, logs, and rocks around a campfire that was currently unlit. 
 
 "Hey Emma." Sara called out, one of her signature bloody mary drinks made from blood fruit in hand, "Didn't expect to see you here."
 
-"Didn't expect to be here." Emma came closer. "Though didn't expect to see you here either. What's with the bandage?" Why was her mother out in the sun with a wrapped up wound? 
+"Didn't expect to be here." Emma came closer. "Though didn't expect to see you here either. What's with the bandage and wraps?" Why was her mother out in the sun with a bandaged wound? And why were her hands wrapped up like she was to fight? 
 
-Sara waved a hand back and forth, "It's nothing, really. I'm fine."
+Sara waved a hand back and forth, "It's nothing, really. I'm fine, don't worry about it."
 
 Emma noticed that Cass looked down at her own bandaged wrapped arm and blushed, guilt all over her face. Strange indeed. But Cass already looked uncomfortable about it, so Emma left it alone, for now. "I was hoping to talk to Jane. Is she about somewhere?"
 

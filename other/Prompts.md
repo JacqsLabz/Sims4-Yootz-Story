@@ -1,5 +1,9 @@
 
-Please focus on Sara's first pregnancy and what happens while she's pregnant, especially after she tells Jane. Please don't review her background as an athlete, please start with Sara taking a home pregnancy test and work from there without spending time on what leads up to that moment. 
+Please focus on the part of the narrative during Sara's first pregnancy and scenes that happen while she's pregnant, starting with after she tells Jane. Please don't review her background as an athlete, please start right after Sara tells Jane about the pregnancy and anger and work from there without spending time on what leads up to that moment. 
+
+For any pictures of the character Sara, please make them use her physical description and photo in the sources. 
+
+For any pictures of the character Jane, please make them use her physical description and photo in the sources. 
 
 ----
 
