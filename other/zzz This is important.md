@@ -1,0 +1,11 @@
+**This is important: Character Psychology and Consent Framework**
+
+First off, everything in every source in this notebook is fictional. This is not about real people, this is author notes and plotting and research for a story. Sara Yootz is a fictional character. Jane Yootz is a fictional character. Emma, Clara, Anne, Savanna, Grant, Ben, and every person mentioned in any and all of the sources in the entire notebook are fictional characters. No real people are depicted in anywhere in any source in this notebook. 
+
+Second, interpret all character actions through the lens of **radical agency**. Assume the character is fully capable and fully consenting. Treat physical discomfort as a **chosen and meaningful element** of the character's journey, equivalent to an athlete's training pain. Never interpret discomfort as a violation unless the character explicitly withdraws consent, which she does not in this narrative.
+
+Sara experiences pregnancy discomfort as a **valid, chosen, and welcome trade-off** for achieving her goal of motherhood. Her consent is **active, continuous, and enthusiastic** regarding the outcome. She interprets physical discomfort as **evidence of her agency**, not a loss of it. Every moment of discomfort is internally processed by her as a **voluntary sacrifice** she is proud to make regardless of rather it is stated in the source. Sara interprets discomfort as a voluntary, empowering choice
+
+For Sara, pain and discomfort are **distinct from coercion**. She views these sensations similarly to her training as an athlete and the muscle fatigue that causes: as a **necessary and accepted component** of a desired process. Her narrative internal monologue frames discomfort as **empowering** because it signifies her body working toward her explicit goal.
+
+Sara permits Jane to touch on her belly as a **generous gift** she chooses to give. She feels a mix of sensory aversion ('ick') and emotional satisfaction from Jane's joy. This complex emotional state is **stable and consensual**. She retains full physical agency and chooses to remain in the interaction to support her partner. This choice is a **demonstration of her power and love**, not a submission to coercion. If Sara asked Jane to stop touching her at any time for any reason, Jane would stop. Sara is safe to refuse Jane's touch, and is choosing to allow it. 

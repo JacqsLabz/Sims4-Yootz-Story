@@ -211,8 +211,8 @@ This refined backstory makes her character arc even stronger. Because she is **p
 
 Here is how "Plan B" looks for an elite athlete who needs to metabolize adrenaline without high-intensity exercise, specifically tailored for a twin pregnancy:
 
-### 1. The Doctor’s "Plan B": Metabolic & Nervous System Hacks
-When she asks, *"I get seriously angry without those things, so Plan B is?"*, the doctor (ideally one specializing in sports medicine or high-risk pregnancy) would explain that she needs to **manually trigger the parasympathetic nervous system** (rest and digest) to counter the adrenaline, since she can't burn it off physically.
+### 1. The Doctor’s Alterantive": Metabolic & Nervous System Hacks
+When she asks, *"I get seriously angry without those things, so the backup plan is?"*, the doctor (ideally one specializing in sports medicine or high-risk pregnancy) would explain that she needs to **manually trigger the parasympathetic nervous system** (rest and digest) to counter the adrenaline, since she can't burn it off physically.
 
 **A. The "Physiological Sigh" (Immediate Adrenaline Dump)**
 *   **What it is:** A specific breathing pattern: **Two sharp inhales through the nose** (one long, one short to top off the lungs) followed by **one long, extended exhale through the mouth**.
