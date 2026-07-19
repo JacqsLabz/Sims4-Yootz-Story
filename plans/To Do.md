@@ -3,6 +3,7 @@ Sources:
 - [ ] no "ecto pooling" for emma
 
 - [ ] Sara's dark form eyes & sleep make up? 
+- [ ] pool: search slab (spa day) or shelf (base game)
 - [ ] Check the ToDoist sims tag/subproject
 - [x] Sync glasses setting
 - [x] fix Ben's glasses

@@ -30,11 +30,13 @@ She checks a few things and takes a few tests at home. One of her standard tests
 
 Except instead of the routine negative result, the pregnant test comes up positive. She didn't want to let herself hope. Hop was powerful, and painful when it got crushed. No way she was pregnant Sara told herself. She blinked and swallowed, and used her phone to make an appointment for a blood test. That would come up negative, and she could start looking for the real reason for her fatigue and loose joints. 
 
-This is going to establish a "no we do not hope for being pregnant because we gave up on that" mindset in Sara. But like she wants a child, but she doesn't let herself hope that she'll actually have one. That says a lot about her feelings and opinions and desires.
+This scene shoes a "no we do not hope for being pregnant because we gave up on that" mindset of the character Sara. This character wants her own biological children more than anything else, but she doesn't let herself hope that she'll actually have one. 
 
-Sara is having the fatigue and her joints feeling loose and those are not something to be ignored. Fatigue means that she needs to adjust something to her, but joints being loose is concerning because that is risking injury and she hasn't gone pro yet so she doesn't want to you know risk tearing a ligament or some bull like that that could end her career before it really starts. It's one of those things that gets her attention because she pays a lot of attention to her body and she takes care of her body. I mean yes she does do these crazy intense workouts, but she understands that there is risk inherent in the way she does things and so she manages that risk by paying attention to what her body is telling her. She knows when to push through pain and she knows when to stop. And loose joints is one of those whoa whoa whoa whoa what's going on kind of signals. So she goes through her standard checklist of things to check in her logs and tests to run on herself at home, and one of these is a pregnancy test. Not because she thinks she's going to get pregnant, she expects they will always come up negative every single time because she has fertility issues and then she started doing intense workouts they gave her irregular cycles, so she's basically like yeah no chance in hell I'm pregnant but you know standard check box here we go. And she takes one expecting it to come up negative like it always does whenever she goes through her little checklist, except it's positive. And the important part of this scene or bit of the story or whatever, is that she's going to have this mental moment of like okay the test is positive but she doesn't think she's pregnant, she doesn't let herself hope that she's pregnant because having hope crushed is devastating and she knows it's not likely like really not likely. And this is showing that she wants to be pregnant, but she gave up on that a long time ago.
+Sara is having the fatigue and her joints feeling loose and those are not something to be ignored. Fatigue means that she needs to adjust something to her, but joints being loose is concerning because that is risking injury and she hasn't gone pro yet so she doesn't want to you know risk tearing a ligament or some bull like that that could end her career before it really starts. It's one of those things that gets her attention because she pays a lot of attention to her body and she takes care of her body. I mean yes she does do these crazy intense workouts, but she understands that there is risk inherent in the way she does things and so she manages that risk by paying attention to what her body is telling her. She knows when to push through pain and she knows when to stop. And loose joints is one of those whoa stop what's going on kind of signals. So she goes through her standard checklist of things to check in her logs and tests to run on herself at home, and one of these is a pregnancy test. Not because she thinks she's going to get pregnant, she expects they will always come up negative every single time because she has fertility issues and then she started doing intense workouts they gave her irregular cycles, so she's basically like yeah no chance in hell I'm pregnant but it's recommended for her to check to make sure it's negative due to her irregular cycles. And she takes one expecting it to come up negative like it always does whenever she goes through her little checklist, except it's positive. And the important part of this scene in the story, is that she's going to have this mental moment of like okay the test is positive but she doesn't think she's pregnant, she doesn't let herself hope that she's pregnant because having hope crushed is devastating and she knows it's not likely like really not likely. And this is showing that she wants to be pregnant, but she gave up on that a long time ago.
 
-This is something that she's wanted for a long time she just like I said gave up on it because she didn't want to be repeatedly crushed by having her dreams crashed so she just didn't dream, not about pregnancy and having children and all that kind of thing. Well maybe I shouldn't say she wants to be pregnant, she doesn't actually want to be pregnant but she does want her own kid. She wants the end result of pregnancy. That doesn't mean she wants the actual process, but she is willing to go through the process to get the end result, which is a very hard thing but worth it. She's a very goal-oriented person. 
+This is something that the character Sara has wanted more than anything for a long time she just like I said gave up on it because she didn't want to be repeatedly crushed by having her dreams crashed so she just didn't dream, not about pregnancy and having children and all that kind of thing. Well maybe I shouldn't say she wants to be pregnant, she doesn't actually want to be pregnant but she does want her own kid. She wants the end result of pregnancy. That doesn't mean she wants the actual process, but she is willing to go through the process to get the end result, which is a very hard thing but worth it. She's a very goal-oriented person. 
+
+At her core, Sara is extremely loving. She often expresses her love through her fierce protectiveness. After she has her family, she it protective of them. Before she has a family, it's like a hole in her soul she doesn't look at because it hurts too much. She wants a family that she can love by protecting more than anything, but knows her odds are low. But then (because this is a story) the character gets crazy lucky, as we see in the next scene. 
 
 ----
 ## Author's Notes
@@ -106,14 +108,22 @@ Sara's breath shifted automatically and she felt a few of her muscles relax. "Th
 ----
 
 ## Author's notes
-The character Sara's pregnancy is actually at 1 month at this point, but she doesn't find that out until the ultrasound.  
+The character Sara's pregnancy is actually at 1 month at this point in the plot, but she doesn't find that out until the ultrasound. 
+
+The first part of this scene (where she's alone on the bed) show the character Sara thinking about temporarily giving up her intense workout vs give up on her pregnancy, and it's no contest for her: this character wants her own biological children more than anything. She willing gives up her intense workouts temporarily knowing it will be difficult for her but more than worth it to her. This character also knows not doing these workouts will be temporary, as after she gives birth, she will not be pregnant and therefore able to do high intensity workouts without risking the things or people (other characters) that she loves. 
+
+The first part of this scene shows that the character Sara doesn't have much of a reaction to the pain and discomfort of pregnancy. She is used to her goals requiring pain and discomfort in her body. This is nothing new to her, and for her is a small price to pay for entry into having a family of her own. At this point in the story, the character Sara wants a family, she wants her own biological children more than anything. 
+
+The first part of this scene mainly shows that Sara is choosing to keep the pregnancy and carry it to term on her own, before even her wife knows about it. She makes this choice fully willingly and she is fully informed about how difficult it will be for her and what she will need to temporarily give up to make that happen. 
+
+In the second part of this scene, the character Sara is approaching the character Jane with her decision already made. Sara is informing Jane and not asking what Jane thinks of all this or what Jane wants to do, because Sara has made the decision that she's choosing to go through with the pregnancy. Sara is scared the anger will push Jane away, because Sara's anger has pushed away other characters before, but again Sara has already decided carrying the pregnancy to term is what she wants to do because to her that is worth all of this, because that's how much she values having her own biological children.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.05 Muscle Blur.md 
  
  
 ## Author's Notes
 
-Sarah notices especially her lower abs losing their definition. 
+Sarah notices especially her lower abs losing their definition. Because this is a normal and expected part of pregnancy, Sara accepts this temporary change to her body. 
 
 Maybe some morning sickness or nausea starts? But Sara would be already proactively taking steps to manage it without having it yet, so that will help.  
  
@@ -123,7 +133,7 @@ Maybe some morning sickness or nausea starts? But Sara would be already proactiv
 
 One day (about a week or two after telling Jane), while they're getting ready to go the pool together, Sara does something like slam a cabinet or a door and Jane is like you want the ice pack, and Sarah roughly is like yeah. She sounds angry but Jane knows what's going on. This is becoming routine. Jane brings Sara the ice pack to put over her eyes and maybe stays with her just as a presence. Sara breathes deeply and has to work on / learn to not fight the anger, but to allow the anger to exist and breathe through it. Though knowing she needs to do that because she read about it online and actually doing it are two different things. 
 
-The ice helps some, but there's still a degree of chaos in her system. She feels the urge to wrap her hands like she's going to punch/box. She checks that it's safe, and wraps her hands before she gets in the pool (being extra careful about the tension of the wraps). She might slowly do some of her boxing moves in the shallow end. 
+The ice helps some, but there's still a degree of chaos in her system. She feels the urge to wrap her hands like she's going to punch/box. She checks that it's safe, and wraps her hands before she gets in the pool (being extra careful about the tension of the wraps). Sara will swim with the wraps on. She might slowly do some of her boxing moves in the shallow end. If she does moves that use her arms, she will make sure they are in the water so that she is safe. 
 
 ----
 
@@ -132,7 +142,7 @@ At this point Sara still looks normal, though she can feel what feels like bad p
 
 The actual reason for boxing wraps are because for Sara they have a learned associated with releasing her anger when wearing them. They are like signal to her subconscious that its time to work through her emotions, and they feel very familiar. The process of doing the wrapping helps her relax just a little, and might cause her to visualize punching to release anger without serious focused effort. Then the mild compression (at a healthy amount) while she wears the wraps on some level helps her feel steady, even if she doesn't directly realize or think about it. In boxing, the wraps are to stabilize the hands and help protect them from injury during punching. Obviously nothing makes injury impossible, but they greatly reduce the risk of breaking bones in the hands while boxing & punching. 
 
- 
+This scene is showing the character Sara is struggling to adjust to the temporary changes she is choosing to make to minimize the risk to her wanted pregnancy. Sara exacted this, and this scene is also payoff for Sara being honest with Jane. This scene is one example of showing Jane doing what she said: helping Sara find new ways to manage her emotions while Sara has choose to temporarily forgo her usual high intensity workouts because Sara values having her own biological children more.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.07 Bikini poof.md 
  
@@ -177,7 +187,17 @@ Then Jane whispered, "Our baby." as her jaw shook.
 
 Sara kissed Jane on the forehead, "Yeah." That sensation itself didn't change, but seeing Jane overjoyed like this, Sara found it was easier to just be with that unsettling feeling. She didn't know why she didn't like feeling the baby, but she did like seeing Jane so happy. She loved being the reason for that joy. On top of that, she really loved getting to hold Jane like this. 
 
- 
+----
+
+## Author's Notes
+
+When Sara stands up, the "ball" can't be felt or seen. Sara simply looks bloated. She'll need waist extenders or new pants. Her shape hasn't changed that much. She doesn't look pregnant to strangers. Her abs have still lost definition, and her lower abdomen has grow some, but again she just looks bloated or a little chubby there. Since her uterus is still down in her pelvis, this is simply her displaced guts starting to push in all directions. 
+
+This scene shows the character Sara willingly choose discomfort for something she highly values, sharing this milestone with Jane, who she loves dearly. It shows that the somatic experience pregnancy isn't a source of magical glowing joy for Sara and how this does not change that Sara values having her own biological children above all else (including that discomfort). Instead Sara finds happiness and comfort in her protective love for Jane. She holds the discomfort and her love for Jane at the same time. Jane accidently makes it easier for Sara to sit with her own sensations. Which is a helpful towards learning to sit with her own feelings. Sara is still willing continuing the pregnancy, and is choosing intimacy with Jane by inviting Jane into this very private experience. While having Jane push on that spot does cause Sara some discomfort, Sara chooses to show Jane the spot. This could be compared to how both pre and post pregnancy, Sara's boxing causes bruising and discomfort in her hands: It is part of the process of achieving her goals, and does not change that she chooses to do things like hit a punch bag. And again Sara knows this discomfort is temporary as pregnancy is temporary. 
+
+This scene is about tenderness and love, shown through connection and bonding. 
+
+Important: This scene shows Sara feeling vulnerable, and choosing to include Jane in the moment instead of being guarded. This is part of Sara's emotional growth in this story.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.09 Ultrasound.md 
  
@@ -188,9 +208,9 @@ canvas:
 2 Preg: []
 ---
 
-They made it to the ultrasound appointment on time, and both went back in the room. Jane's antipation was so clear in every movement. 
+They made it to the ultrasound appointment on time, and both followed the nurse back to the exam room. Jane's anticipation was so clear in every movement. 
 
-That somatic feeling returned from the wand, but thankfully Jane was already holding her hand.
+That somatic feeling returned when the doctor pushed the wand on Sara's lower belly, but thankfully Jane was already holding her hand.
 
 After a minute or so, the doctor said, "Hu." 
 
@@ -198,7 +218,7 @@ Sara couldn't tell if that was a good hu or a bad hu. But Jane spoke first.
 
 "What is it?" Jane squeezed Sara's hand.
 
-Sara squeezed it back to reassure her, wishing she could do more. But moving to much would interfere with what the doctor was doing. 
+Sara squeezed it back to reassure her, wishing she could do more. But moving too much would interfere with what the doctor was doing. 
 
 "That estimate from to blood test was off. You are not at 3 months with one child," he pointed to the screen, "you're about two months with twins. See here is one and this over here is the other baby."
 
@@ -230,7 +250,9 @@ Later when they're getting in bed, Jane asks to feel that spot at Sara's pelvis 
 ----
 
 ## Author's notes
-At this point, Sara can't suck in what looks like bloat in her lower abs (shape: a firm, wide slant), but feels much firmer than bloat. Her torso is thicker and wider from hip to hip, she feels tension. Her pre-pregnancy pants might not fit, even with waste extenders. 
+At this point, Sara can't suck in what looks like bloat in her lower abs (shape: a firm, wide slant), but feels much firmer than bloat. Her torso is thicker and wider from hip to hip, she feels tension in the muscles below her belly button. Basically as the babies grow, it's pushing more of her guts up into her lower belly (between her pelvis and belly button) and at this point it's just making her lower abdomen expand a bit everywhere. 
+
+Her pre-pregnancy pants might not fit, even with waste extenders. 
  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.1-TwoSims+Romance.md 
@@ -324,9 +346,9 @@ Sara got more tips from Don, including protein shakes.
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.10 Lotion.md 
  
  
-Maybe a week or so after the ultrasound, I want a scene where Jane was feeling the spot and then Jane stops, and Sarah realizes that she wants Jane to keep doing that. Not because it feels good it the somatic sensation of rejection is still there, but she wants more of Jane's touch and so maybe she kind of uses solution as an excuse. 
+Maybe a week or so after the ultrasound, I want a scene where Jane was feeling the spot and then Jane stops, and Sarah realizes that she wants Jane to keep doing that. The somatic sensation of rejection is acting up in that moment, and she wants more of Jane's touch, so maybe she kind of uses solution as an excuse. 
 
-So I don't see it as being something where she's like mechanically explaining it, she just might be like do you also want to rub some lotion on me? 
+she just might be like do you also want to rub some lotion on me? 
 
 And either Jane like says yes right away or Jane is like you want some lotion or something like that, or like "You mean on your belly?"
 
@@ -337,20 +359,22 @@ Jane is like sure and gets the lotion and starts rubbing it on her.
 ----
 ## Author's Notes
 
-I think I do want to end up going with Sarah asks Jane to start putting on the lotion, and Sara might still put on the lotion herself like in the morning after her shower, but she has she's the one that asked Jane to start doing it during those quiet intimate moments as like a little way that she starts leaning on jane. 
+I think I do want to end up going with Sarah asks Jane to start putting on the lotion, and Sara might still put on the lotion herself like in the morning after her shower, but she has she's the one that asked Jane to start doing it during those quiet intimate moments as like a little way that she starts leaning on Jane. 
 
 Also at this point she can't put on her pre-preg pants (extenders are not enough), her legs are changing in size
 
-Her abs feels like she's done a super intense workout, like endless crunches. Sara finds the sensation of tired muscles familiar and comfortable, she likes it. But this sensation doesn't last, so she doesn't get to enjoy it for long. Basically her lower abs are trying to hold in her guts in while her uterus is pushing her guts out of the way, and those muscles are getting tired from that. But before long after this, they're stretched too far for that, and just hurt from being stretched so far.  
+Her abs feels like she's done a super intense workout, like endless crunches. Sara finds the sensation of tired muscles familiar and comfortable, she likes it. But this sensation doesn't last, so she doesn't get to enjoy it for long. Basically her lower abs are trying to hold in her guts in while her uterus is pushing her guts out of the way, and those muscles are getting tired from that. But within a week or so, they're stretched too far for that, and just hurt from being stretched so far. 
+
+Before Sara was accustom to managing her internal world by herself. She is not used to asking others for help with her feelings. This scene is showing huge emotional growth from Sara, as she is asking for the action that provides the support she needs. Sara struggles with vulnerability. But this scene shows growth on her part, because she is showing some vulnerability to Jane by making this request. Even if she doesn't state the true reason out loud, it is still her asking for something she needs. This scene is showing their bond as a couple deepening further as Sara learns to allow herself to be vulnerable with Jane and as Jane accommodates Sara's struggle with vulnerability through her response.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.11 Seeing the ball.md 
  
  
-## Author's Notes
 
-One night, maybe 3 weeks or so after the ultra sound, Jane is going to put lotion on Sara's belly, and while Sara is laying on her back in the bed, Jane notices that there's like a mound or dome in that spot at Sara's pelvis. So, Jane sees it first. Which is another sort of like deeply private intimate sort of thing, because Sara isn't showing yet. When she's standing, Sara just looks heavily bloated. Her abdomen is firm, not squishy like bloat actually is, they know she's not actually bloated. But to the outside world when Sara is standing, that's what it looks like. But without any fabric over her abdomen while laying flat on her back, Jane can finally see just a bit of that "ball" she has been able to feel for a few weeks, well almost a month. 
+One night, maybe 3 weeks or so after the ultra sound, I want a scene where Jane is about to put lotion on Sara's belly, and while Sara is laying on her back in the bed, Jane notices that there's like a mound or dome in that spot at Sara's pelvis. So, Jane sees it first. Which is another sort of like deeply private intimate sort of thing, because Sara isn't showing yet. When she's standing, Sara just looks heavily bloated. Her abdomen is firm, not squishy like bloat actually is, they know she's not actually bloated. But to the outside world when Sara is standing, that's what it looks like. But without any fabric over her abdomen while laying flat on her back, Jane can finally see just a bit of that "ball" she has been able to feel for a few weeks, well almost a month. 
 
 ----
+## Author's Notes
 
 The tightness in Sara's lower abs will be extreme, her skin in that area will feel taut. From her belly button to her pubic bone her abs and skin feel stretched to the limit (at this point the sensation is dull not sharp). Her torso feels tight and almost like it's too short. Her middle still has that flat rigid slat shape, like as if she's just heavily bloated (except it doesn't yield). Bending over to tie her shoes feels like trying to fold a bowling ball in half.  
  
@@ -397,11 +421,13 @@ Sara kissed her forehead. "Me too "
 
 ----
 ## Author's Notes
-Sara is going to wake up one morning and her balance is going to suddenly feel different, because she's going to have the twin pop, so overnight what looked like heavily bloating before is now a round pregnancy bump. It's a small bump, but the change is that her lower abdomen has this round type of shape in one spot instead of looking more generally full with heavy bloating. It's her uterus reaching over the top of that pelvis area and pushing on her abs, moving them out of the way and quickly changing her center of gravity. I think this will probably make her careful about moving about. Not that she won't, just make her have caution as she adjusts to how her body is now. 
+Sara is going to wake up one morning and her balance is going to suddenly feel different, because she's going to have the twin pop, so overnight what looked like heavily bloating before is now a round pregnancy bump. It's a very small bump and is mainly down below her belly button, but the change is that her lower abdomen has this round type of shape in one spot instead of looking more generally full everywhere with heavy bloating. It's her uterus reaching over the top of that pelvis area and pushing on her abs, moving them out of the way (stretching them past their normal limits) and quickly changing her center of gravity. I think this will probably make her careful about moving about. Not that she won't, just make her have caution as she adjusts to how her body is now. 
 
-At this point she'll be able to hide in with baggy clothes, but that won't last long. 
+At this point she'll be able to hide her new baby bump with baggy clothes (to appear not pregnant in public), but that won't last long. 
 
-Her previous tight feeling (pre-pop) would have been like a dull ache. Post-pop it's a sharp pulling 
+Her previous tight feeling (pre-pop) would have been like a dull ache. Post-pop it's a sharp pulling
+
+This scene is showing more of Sara's emotional growing in this story arc because even though Jane is not nearby, Sara is still seeking comfort in Jane. Bringing Jane into this is much more involved and intentional.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.01-TwinBabies.md 
  
@@ -489,6 +515,7 @@ Jane tried her best to help Savanna with her school project.
 - [ ] No coffee, or at least like less coffee? Not chamomile tea, Oolong tea. Probably no coffee all along. and just oolong tea. Or maybe a few other teas too? 
 - [ ] Def different meals though, more protein. 
 - [ ] Maybe she even reaches a point where she dislikes feeling hungry. Her stomach is in enough pain when she hasn't eaten recently. Like she puts up with it and she tries to eat, but she doesn't want to. Her desire for food is just gone. Heck maybe her protein shakes are the only reason she doesn't starve though this whole process - yes, but she keeps trying solid food anyway. 
+- [ ] When I majorly revise this part, if Sara has a urine or blood pregnancy test, have her think (in her dry humor way) that part of her wonders if it will be triplets this time. Like she knows it doesn't work that way, but wondering if her body is going to up the challenge from last time.... little does she know) 
 
 One evening, a familiar sort of feeling washed over Sara just as Jane got the girls tucked in for the night.
 
@@ -3228,7 +3255,6 @@ Later that evening, Kaylie knocked on their door.
 		{"id":"289b354d4dae4331","type":"file","file":"Sims4-Yootz-Story/Chapters/1.09 Ultrasound.md","x":-1060,"y":1880,"width":400,"height":400},
 		{"id":"cd5681f507ba0dd0","type":"text","text":"Instead of her pregnant bump forming and her showing to others about 1.5-2 months after the ultrasound, Sara is instead going to show about a month after that. \n\nSingles show wk16-20, she's going to show wk10-14 (probably wk10-12, because her shirt is form-fitting, and in her gym outfit, which is just a sports bra and shorts). \n\n**The \"One-Month Ahead\" Rule:** After week 20, a twin bump generally looks and measures **4 to 5 weeks ahead** of a single pregnancy. At 24 weeks, your character will look like they are 28 weeks pregnant.\n\nThe Final Stretch: By week 32, a twin pregnancy reaches the same uterine volume as a full-term 40-week singleton. If the character makes it to 36 or 37 weeks, their bump will be much larger than a standard full-term belly.\n\nThe Visual Change: By week 12 to 14, the bump will round out enough that it no longer looks like she just had a heavy meal. What others see: If she wears a fitted shirt, anyone who knows her well will immediately notice the change in her silhouette. By week 14, even loose clothing will have a hard time hiding the distinct, round shape of a twin pregnancy.","x":-1120,"y":2320,"width":400,"height":400},
 		{"id":"6105724b64bd1c8c","type":"text","text":"Jane is going to ask to feel the baby \"ball\" again, and mavel at it growing","x":-520,"y":3200,"width":400,"height":400},
-		{"id":"2f525fd7fa677a76","type":"text","text":"Important: Sara is choosing the pregnancy, so therefore feeling the baby is not a loss of her bodily autonomy as it is not happening against her will, but rather that her will/mind just isn't aligned with her physical lived somatic experience. Put simply, pregnancy isn't magical for her, and that's just yet another way she isn't what society says \"a woman\" is. ","x":-520,"y":3800,"width":400,"height":400},
 		{"id":"b44f15b3059ceca7","type":"text","text":"Sara uses being protective of Jane to cope with and hold to feeling of \"that doesn't belong in me\" - does she realize and start to actively choose some type of being protective to help as she makes her way through the pregnancy? Especially as her belly grows, which might make the \"this doesn't belong in me\" recoil grow, along with her physical vulnerability grow. Separate issue, that are both feeding into why she doesn't like pregnancy on a visceral level. \n\nBut by holding and protecting Jane and Jane's dream of parenthood, it can help Sara hold the uncomfortable feelings. Plus hold and protecting Jane's dream of parenthood could help Sara with connecting with her own goal of parenthood, because Sara does want children of her own. It probably comes from her fiercely protective nature. Maybe she always wanted a family to protect, and that's why she's so protective of her family later. That desire was always there, it just didn't have a family of her own to protect yet. \n\nAlso, Sara's protection is her love language. Her steadfast steadiness, the way she's often the steady rock in the storm, her practical choices, and her protectiveness are how she loves. She desperately wanted a family to love; that's why she refused to let herself hope, that's why she quickly pivoted to keeping the pregnancy, that's why she plays it so safe, that's why she gives up her coping, that's why she pushes though the \"don't belong\" and physical vulnerability that make her so uncomfortable. ","x":200,"y":3200,"width":400,"height":400},
 		{"id":"980eb4a6f3949ee5","type":"file","file":"Sims4-Yootz-Story/Chapters/1.03 Symptoms+Test.md","x":-1013,"y":-1776,"width":400,"height":400},
 		{"id":"23967a973b5367a3","type":"text","text":"Maybe eventually Sara switches her pj outfit to her pj pants and her workout top? The sports bra, if her belly gets to big for her usual pj shirt","x":-2960,"y":2260,"width":400,"height":400},

@@ -10,7 +10,7 @@ As Emma led the boys from the road back to the small cabin, they walked into a c
 
 "Hey Emma." Sara called out, one of her signature bloody mary drinks made from blood fruit in hand, "Didn't expect to see you here."
 
-"Didn't expect to be here." Emma came closer. "Though didn't expect to see you here either. What's with the bandage and wraps?" Why was her mother out in the sun with a bandaged wound? And why were her hands wrapped up like she was to fight? 
+"Didn't expect to be here." Emma came closer. "Though didn't expect to see you here either. What's with the bandage and wraps?" Why was her mother out in the sun with a bandaged wound? And why were her hands wrapped up like she was going to fight? 
 
 Sara waved a hand back and forth, "It's nothing, really. I'm fine, don't worry about it."
 
@@ -26,7 +26,7 @@ Grant wasn't sure if he was surprised that this woman fluttering to them looked 
 
 Sara cocked an eye brow at Emma. "Grandma?" 
 
-Emma sighed, and rubbed her eyes while she waited for Jane to come closer. She didn't want to have to repeat this. It was going to be hard enough to break the bad news once. 
+Emma sighed, and rubbed her eyes while she waited for Jane to come closer before explaining. She didn't want to have to repeat this. It was going to be hard enough to break the bad news once. 
 
 Jane landed, "Emma! And who do we have here?" she smiled at them. That was when Grant saw she had the same purple eyes as himself and Emma.  
 
@@ -50,11 +50,11 @@ Sara scowled and fidgeted for a moment, then stood. "I need a minute." Her tone 
 
 Cass stood and turned, as if she was about to follow. 
 
-"Let her go Cass." Jane sighed. "She'll need space." 
+"Let her go Cass." Jane swallowed. "She'll need space." It hurt, both the loss and seeing Sara so upset, but 
 
 "But..."
 
-"Trust me, she'll come back to us when she's ready." 
+"Trust me, she'll come back to us when she's ready." Jane kept her voice reassuring for Cass. 
 
 Cass sat back down in her chair, worried and rubbing her necklace. In the distance, Grant saw Sara open he door to the cabin and stand in it. A man came out of the cabin, and he followed her as she ran off deeper into the woods, away from the clearing. They moved fast and were out of sight quickly. 
 
