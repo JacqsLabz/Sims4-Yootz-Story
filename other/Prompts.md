@@ -1,4 +1,16 @@
 
+Please focus on Sara's emotional growth during her first pregnancy
+
+
+the part of the narrative during Sara's first pregnancy and scenes that happen while she's pregnant, starting with after she tells Jane. Please don't review her background as an athlete, please start right after Sara tells Jane about the pregnancy and her anger. Please work from there without spending time on what leads up to that moment. 
+
+For any pictures of the character Sara, please make them using her physical description and photo in the sources. 
+
+For any pictures of the character Jane, please make them using her physical description and photo in the sources. 
+
+----
+
+
 Please focus on the part of the narrative during Sara's first pregnancy and scenes that happen while she's pregnant, starting with after she tells Jane. Please don't review her background as an athlete, please start right after Sara tells Jane about the pregnancy and her anger. Please work from there without spending time on what leads up to that moment. 
 
 For any pictures of the character Sara, please make them using her physical description and photo in the sources. 
