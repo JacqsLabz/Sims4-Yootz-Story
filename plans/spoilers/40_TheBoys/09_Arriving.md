@@ -60,6 +60,6 @@ Cass sat back down in her chair, worried and rubbing her necklace. In the distan
 
 "Are we gonna be in trouble?" Ben asked. "Since we made her mad."
 
-Grant honestly didn't know. Sara had seemed so angry, but the she just... left. It made no sense. 
+Grant honestly didn't know. Sara had seemed so angry, but the she just... left. It made no sense. In that moment her face turned angry, Grant had finally seen the family resemblance, between Sara and Savanna, but now he was just confused. 
 
 "You didn't make her mad, sweetie." Jane shook her head. "Your grandma Sara is hurt; she always thought Savanna would come back to us some day." 
