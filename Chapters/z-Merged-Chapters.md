@@ -110,15 +110,15 @@ Sara's breath shifted automatically and she felt a few of her muscles relax. "Th
 ## Author's notes
 The character Sara's pregnancy is actually at 1 month at this point in the plot, but she doesn't find that out until the ultrasound. 
 
-The first part of this scene (where she's alone on the bed) show the character Sara thinking about temporarily giving up her intense workout vs giving up on her pregnancy, and it's no contest for her: this character wants her own biological children more than anything. She willing gives up her intense workouts temporarily knowing it will be difficult for her but more than worth it to her. This character also knows not doing these workouts will be temporary, as after she gives birth, she will not be pregnant and therefore able to do high intensity workouts without risking the things or people (other characters) that she loves. 
+The first part of this scene (where she's alone on the bed) show the character Sara thinking about temporarily giving up her intense workout vs giving up on her pregnancy, and it's no contest for her: this character wants her own biological children more than anything. She willing gives up her intense workouts temporarily (during the pregnancy) knowing it will be difficult for her but more than worth it to her. This character also knows not doing these workouts will be temporary, as after she gives birth, she will not be pregnant and therefore able to do high intensity workouts without risking the things or people (other characters) that she loves. She knows it is not permanent and she will be able to do her workout again later. 
 
 The first part of this scene shows that the character Sara doesn't have much of a reaction to the pain and discomfort of pregnancy. Because she is used to her goals requiring pain and discomfort in her body. This is nothing new to her, and for her is a small price to pay for entry into having a family of her own. At this point in the story, the character Sara wants a family, she wants her own biological children more than anything. 
 
-The first part of this scene mainly shows that Sara is choosing to keep the pregnancy and carry it to term on her own, before even her wife knows about it. She makes this choice fully willingly and she is fully informed about how difficult it will be for her and what she will need to temporarily give up to make that happen. 
+The first part of this scene mainly shows that Sara is choosing to keep the pregnancy and carry it to term on her own, before even her wife knows about it. She makes this choice fully willingly and she is fully informed about how difficult it will be for her and what she will need to temporarily give up to make that happen. This is very healthy, because she is the only one pregnant, therefore it is her decision to make and one she should make on her own. 
 
-In the second part of this scene, the character Sara is approaching the character Jane with her decision already made. Sara is informing Jane and not asking what Jane thinks of all this or what Jane wants to do, because Sara has made the decision that she's choosing to go through with the pregnancy. Sara is scared the anger will push Jane away, because Sara's anger has pushed away other characters before, but again Sara has already decided carrying the pregnancy to term is what she wants to do because to her that is worth all of this, because that's how much she values having her own biological children. 
+In the second part of this scene, the character Sara is approaching the character Jane with her decision about her own body already made already made, and Jane respects Sara's decision. Sara is scared the anger will push Jane away, because Sara's anger has pushed away other characters before, but again Sara has already decided carrying her pregnancy to term is what she wants to do because to her that is worth all of this, because that's how much she values having her own biological children. This further shows just how deeply important this is to Sara. It also shows how much Sara wants family and connection, even if vulnerability and her own emotions are things she struggles with. 
 
-But admitting about her anger to Jane is hard because Sara is used to managing her internal world alone. No one else in her past as been able to weather the storm within her. Sara thinks she believes Jane, but there will be some subconscious part of her that will be scared Jane is going to change her mind anyway.  
+Sara admitting about her anger to Jane is hard because Sara is used to managing her internal world alone. No one else in her past has been able to weather the storm within her. Sara thinks she believes Jane, but there will be some subconscious part of her that will be scared Jane is going to change her mind anyway. So in later scenes when Jane shows up repeatedly, this plus Sara's deep desire for family & connection are why Sara feels so strongly in the later scene with the ice pack.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.05 Muscle Blur.md 
  
@@ -147,11 +147,14 @@ Maybe some morning sickness or nausea starts? But Sara would be already proactiv
  
  
 
+Sara was in the kitchen one day, when a surge of anger seemed to hit her out of nowhere. 
+
+
 "Do you want your back rubbed?" Jane asked, since that had done a lot to help Sara during the past two weeks or since she'd told Jane about the pregnancy. 
 
 "No." Sara ground out as her arm twitched. She flexed her hands and tried to breath. She didn't even know what she was angry about, just that this time she didn't want to be touched. 
 
-Jane nodded, today's episode was a bad one then. "What about the ice pack then?" 
+Jane nodded, so today's episode was a bad one. "What about the ice pack then?" 
 
 "Maybe, I don't know." She honestly couldn't tell.  
 
@@ -159,61 +162,25 @@ Jane nodded, today's episode was a bad one then. "What about the ice pack then?"
 
 "I guess." Sara kept clenching and unclenching her hands as she went to the bedroom. She just wanted out of this loop. The one that had her stuck between the urge to go wrap up her hands then punch until she felt like herself again, until she felt stable; and the knowledge that doing so with her joints like this came with too high a risk of injury, which came with several other possible problems, none of which were worth taking that risk. 
 
-Jane grabbed the ice pack from the freezer, holding it by the edge of the fabric sleeve to avoid getting her fingers cold, then came into the bedroom to find Sara curled up on top the covers. She set the ice pack down near Sara's face, and then went over to her side of the bed and sat down. "If you want me to leave, just let me know." She knew all too well that sometimes being in that dark pit meant needing space, and sometimes it meant the only thing worse than being in it was being alone in it. 
+Jane grabbed the ice pack from the freezer, holding it by the edge of the fabric sleeve to avoid getting her thin fingers cold, then came into the bedroom to find Sara curled up on top the covers. She set the ice pack down near Sara's face, and then went over to her side of the bed and sat down. "If you want me to leave, just let me know." She knew all too well that sometimes being in that dark pit meant needing space, and sometimes it meant the only thing worse than being in it was being alone in it. 
 
-Sara rolled on her back and laid the ice pack in it's fabric sleeve over her eyes and upper cheeks and tried to slow her breathing. She wasn't sure she wanted Jane to stay, but didn't like the idea of her leaving. Her breathe was ragged and her lungs didn't want expand. Sara flexed her fists and tried to think about what Jane had said on their walk yesterday, about not fighting the anger. They had been in the park, holding hands as they resting on a bench because Jane had said her legs were tired. 
+Sara rolled on her back and laid the ice pack in it's fabric sleeve over her eyes and upper cheeks and tried to slow her breathing. She wasn't sure she wanted Jane to stay, but didn't like the idea of her leaving. Her breathe was brittle and her lungs didn't want expand. Sara flexed her fists and tried to think about what Jane had said on their walk yesterday, about not fighting the anger. They had been in the park, holding hands as they sat resting on a bench because Jane had said her legs were tired. 
 
 Sara moved her hand along the covers until she found the texture of Jane's skirt, and then just held it open. 
 
-Jane looked down to see Sara's open palm at her thigh. Looked like she had managed to get at least one hand out of the pit maybe? Jane put her palm over's Sara, but didn't close her fingers until Sara closed hers first. Sara gave a little squeeze, Jane firmly squeezed back as if to say yes she was right here. 
+Jane looked down to see Sara's open palm at her thigh. Maybe she had managed to get at least one hand out of the pit? Jane put her palm over's Sara. Jane didn't put her fingers around Sara's hand at first, that way if Sara wanted to pull away it would easy for her to do so. But then Sara's fingers closed around her hand, and gave a little squeeze. Jane smiled a little, closed her own fingers around Sara's hand too. She firmly squeezed back as if to say yes she was right here. 
 
 They just stayed like that for around ten minutes or so, until Sara opened her fingers and tugged so Jane knew to let go. 
 
-Sara took the ice pack off her face. She had known this wasn't going to be easy, but this one was especially rough. In a way she felt like her body been hit by a ton of bricks. She wasn't sure she would ever get used to feeling so exhausted when she basically hadn't moved. 
+Sara took the ice pack off her face as she took stock of herself. Physically, her limbs felt slow, and a little heavy; like the opposite of her usual "ready to go" feeling. That dull heavy ache was still down in her pelvis, and still felt sort of like cramps. It was a little unsettling sometimes, but everything she read said it was from stretching because of growth, and therefore a normal healthy sign. Sara still wasn't sure what had set off this especially rough bought of anger, but she had known from the start this wasn't going to be easy. Sara slowly sat up, and looked over at Jane. The feeling that swelled up in her chest was huge, "Thank you." she managed to get out. 
 
-"Want me to put it back?" Jane pointed to the ice pack. 
+Jane smiled, "Of course dear." 
 
-"Yeah," Sara swallowed and stated to sit up. "Can you grab the protein shake while you're in there?"
-
-"Of course." Jane grabbed the ice pack and moved to get off the bed. 
-
-Her arms felt shaky as Sara pushed herself up and moved back to lean against the headboard. She let out a belched then rubbed her stomach as she grabbed a cracker from her nightstand. 
+Sara didn't have words for how much Jane's help meant to her. So instead she scooted closer in the bed, and pulled Jane into a passionate kiss. Was she being swept away in intense feelings? Obviously. Did Sara care? Not in the slightest. 
 
 ----
-
-Actually no stomach acid. More like a strange stillness or calm. If she check in with herself she'll also feel that heavy cramping feeling, but that's normal so it doesn't bother her. Like sure maybe her body has this vague shouldn't but she knows it should so she's ok with it. 
-
-I think Sara will thank Jane? Or at least say sorry that one came out of no where. 
-
-Jane says she knows there will be good days and bad days. 
-
-Maybe Sara feels this sudden strong appreciation for Jane. A sort of what did I do to deserve you type of feeling. And does something like lean in to kiss her. Maybe they end up at least like cuddling or making out. 
-
-----
-
-Maybe after a while Sara comes over to Jane, and Jane rubs her back. 
-
-Maybe Jane suggests they go swimming? 
-
-And/or Sara mentions about missing wrapping her hands, and Jane points out that just wrapping them won't hurt her. Or maybe like Jane sees Sara holding the strips of fabric? And so Jane is like hey what's up and Sara explains she misses wrapping her hands, and Jane suggest she just wrap them (without throwing punches). 
-
-----
-
-One day (about a week or two after telling Jane), while they're getting ready to go the pool together, Sara does something like slam a cabinet or a door and Jane is like you want the ice pack, and Sara roughly is like yeah. She sounds angry but Jane knows what's going on. This is becoming routine. Jane brings Sara the ice pack to put over her eyes and just stays with her just as a presence. Sara breathes deeply and has to work on / learn to not fight the anger, but to allow the anger to exist and breathe through it. Though knowing she needs to do that because she read about it online and actually doing it are two different things. 
-
-The ice helps some, but there's still a degree of chaos in her system. She feels the urge to wrap her hands like she's going to punch/box. She checks that it's safe, and wraps her hands ~~before she gets in the pool (being extra careful about the tension of the wraps). Then Sara keeps the wraps on while swimming in the pool.~~ (no, cotton + pool = too heavy)
-
-She might slowly do some of her boxing moves in the shallow end. If she does moves that use her arms, she will make sure they are in the water so that she is safe. 
-
-----
-
-- [ ] massage during pregnancy? 
 ## Author's Notes
 At this point Sara still looks normal, though she can feel what feels like bad period cramps and like there's a weight on her bladder. Maybe she's already having a sort of shouldn't feel that way but it's small and quiet and easy to deal with by reminding herself that yes it should. 
-
-The actual reason for boxing wraps are because for Sara they have a learned associated with releasing her anger when wearing them. They are like signal to her subconscious that its time to work through her emotions, and they feel very familiar. The process of doing the wrapping helps her relax just a little, and might cause her to visualize punching to release anger without serious focused effort. Then the mild compression (at a healthy amount) while she wears the wraps on some level helps her feel steady, even if she doesn't directly realize or think about it. In boxing, the wraps are to stabilize the hands and help protect them from injury during punching. Obviously nothing makes injury impossible, but they greatly reduce the risk of breaking bones in the hands while boxing & punching. 
-
-If she does slow boxing moves while in the water, it's because moving her box into those positions is familiar, and helps her use visualization of doing the moves with her normal speed and force. Plus she can work on her form, and keep it familiar. But she might decide she doesn't like that and sticks to just swimming with her hands wrapped. Because again putting them on is familiar, wearing them is familiar, and her brain associates them to releasing anger. Having them on while swimming would probably help her deal with more anger while she's swimming. 
 
 This scene is showing an example of what becomes a common moment that isn't always shown in the story: the character Sara is struggling to adjust to the temporary changes she is choosing to make to minimize the risk to her wanted pregnancy. Sara exacted this, and this scene is also payoff for Sara being honest with Jane. This scene is one example of showing Jane doing what she said: helping Sara find new ways to manage her emotions while Sara has choose to temporarily forgo her usual high intensity workouts because Sara values having her own biological children more. 
 
@@ -299,7 +266,7 @@ Sara couldn't tell if that was a good hu or a bad hu. But Jane spoke first.
 
 Sara squeezed it back to reassure her, wishing she could do more. But moving too much would interfere with what the doctor was doing. 
 
-"That estimate from to blood test was off. You are not at 3 months with one child," he pointed to the screen, "you're about two months with twins. See here is one and this over here is the other baby."
+"That estimate from to blood test was off." He pointed to the screen as he spoke, "You are not at 3 months with one child, instead you're about two months with twins. See here is one gestational sack, and this over here is the other one."
 
 "Two... Babies?" Jane managed to get out. 
 
@@ -312,9 +279,9 @@ Maybe the doctor finishes the ultrasound and then starts explaining this will me
 
 Sara goes for her first ultrasound appointment with Jane about a month after finding out she was pregnant (meaning a month after the blood test and when Sara told Jane about her anger). 
 
-They find out Sara is carrying twins, and now is actually two months, not three (three now would have been the estimate from the blood test at the time of the ultrasound). Which means that earlier when they found out she was pregnant (when she had the blood test & told Jane), Sara wasn't at two months, she was at only one month. Everything has seemed to line up, because with twins things happen about a month or so early, give take. 
+Sara and Jane find out Sara is pregnant with twins, and now is actually two months, not three (three now would have been the estimate from the blood test at the time of the ultrasound). Which means that earlier when they found out she was pregnant (when she had the blood test & told Jane), Sara wasn't at two months, she was at only one month. Everything has seemed to line up, because with twins things happen about a month or so early, give take. 
 
-Jane is excited, and maybe they're at least holding hands when Sara starts asking the practical questions, around how it will be different. She understands this news as the challenge she has chosen to undergo has changed, she wants to know how her game plan needs to adapt. 
+Jane is excited, and maybe they're at least holding hands when Sara starts asking the practical questions, around how it will be different. She understands this news as the challenge she has chosen to undergo has changed, she wants to know how her 'game plan' needs to adapt. 
 
 Sara understand that it will be even more of a challenge than she thought, but it doesn't change wants to continue the pregnancy. Part of her is excited that it's two, she just also doesn't ignore how this means it's going to be physically harder. Though emotionally, it might actually be the same? She can't do her intense workouts either way. Eventually the gentle movement will start to help, but that takes time. 
 
@@ -329,7 +296,7 @@ Later when they're getting in bed, Jane asks to feel that spot at Sara's pelvis 
 ----
 
 ## Author's notes
-At this point, Sara can't suck in what looks like bloat in her lower abs (shape: a firm, wide slant), but feels much firmer than bloat. Her torso is thicker and wider from hip to hip, she feels tension in the muscles below her belly button. Basically as the babies grow, it's pushing more of her guts up into her lower belly (between her pelvis and belly button) and at this point it's just making her lower abdomen expand a bit everywhere. 
+At this point, Sara can't suck in what looks like bloat in her lower abs (shape: a firm, wide slant), but feels much firmer than bloat. Her torso is thicker and wider from hip to hip, she feels tension in the muscles below her belly button. Basically as the babies grow, it's pushing more of her guts up into her lower belly (between her pelvis and belly button) and at this point it's just making her lower abdomen expand a bit everywhere. There's not focused spot where her torso is expanding, just sort of all over in the lower part (compared ot a baby bump is a focused spot). 
 
 Her pre-pregnancy pants might not fit, even with waste extenders. 
  
@@ -425,13 +392,23 @@ Sara got more tips from Don, including protein shakes.
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.10 Lotion.md 
  
  
-Maybe a week or so after the ultrasound, I want a scene where Jane was feeling the spot and then Jane stops, and Sarah realizes that she wants Jane to keep doing that. The somatic sensation of rejection is acting up in that moment, and she wants more of Jane's touch, so maybe she kind of uses solution as an excuse. 
+Maybe a week or so after the ultrasound, I want a scene where Jane was feeling the spot and then Jane is finished feeling it, and Sarah realizes that she wants Jane to keep doing that. The somatic sensation of rejection is acting up in that moment, and she wants more of Jane's touch, so maybe she kind of uses the lotion as an excuse. 
 
-she just might be like do you also want to rub some lotion on me? 
+Maybe Jane is thinking about how much bigger the babies are getting (in her head Jane doesn't call it a ball). Jane couldn't wait until Sara was showing, and it felt like she was getting closer and closer each time she asked to check ever few days. Sara has said the spot was tender, which made sense given how quickly twins grew, so Jane didn't want to bother Sara about it too often. 
+
+Sars just might be like "do you also want to rub some lotion on me?" 
 
 And either Jane like says yes right away or Jane is like you want some lotion or something like that, or like "You mean on your belly?"
 
-Sarah's like "Yeah, well, it's supposed to help with the stretching feeling, for when I start... showing..." and she blushes and looks away. 
+Sara's like "Yeah, well, it's supposed to help with the stretching feeling, for when I start... showing..." and she blushed and looked away. It was true: moisturized skin wouldn't itch or hurt as much once it was stretched out. But given that she was able to put it on herself, maybe it more obvious that moisturizing wasn't the main point than she'd thought before she opened her mouth. 
+
+Jane smiled. Sara could be so shy sometimes. Everything about Sara was such an interesting mix of contrasts. "I'd love to. Is it best to put it on daily? We could do it a bit before we go to sleep in the evening if you'd like." 
+
+Sara just nodded. 
+
+----
+
+Maybe it an outsider, it looked like the two of them were opposites, but really Sara was the opposite of herself 
 
 Jane is like sure and gets the lotion and starts rubbing it on her.
 
@@ -462,17 +439,19 @@ The tightness in Sara's lower abs will be extreme, her skin in that area will fe
  
 At least a few days after Jane spots the dome, there's a morning where Sara sleeps in a bit, so when Sara wakes up, Jane is already at work. 
 
-Consciousness came to Sara a little bit at a time. First thing to hit her sleepy awareness was that the tightness in her lower abs and the skin there was worse than ever, even though she thought it was at the limit before. She rubbed her eyes. Another thing that felt almost weird was that the pressure on her bladder had actually gone down a bit. It didn't feel totally full, but she did needed to use the bathroom.
+Consciousness came to Sara a little bit at a time. First thing to hit her sleepy awareness was that the tightness in her lower abs and the skin there was worse than ever, even though she thought it was at the limit before. She rubbed her eyes. Another thing that felt almost weird was that the pressure on her bladder had actually gone down a bit. It didn't feel totally full, but she definitely needed to use the bathroom.
 
-When Sara wakes up, maybe she notices the tightness in her lower abs and the skin there is worse than ever, even though she thought it was at the limit before. She rubs her eyes thinking it almost feels weird that the pressure on her bladder has gone down a bit. Maybe it's just not that full, but she does need to use the bathroom, so she threw off the covers and remembered to do the roll her on side thing then swings out her legs to get out of bed. Since directly just sitting up with her abs was neither comfortable nor recommended. And caught herself by grabbing the bed, because her center of gravity is way off, like as if there was weights strapped to- Sara looked down. Right: twin pop. She'd read about about it, but in her half asleep haze had forgotten for a moment that it was due to happen any day now. She rubbed her eyes with her right index finger and thumb, hunched her shoulders, and shuddered. Just when she had almost gotten... well, not comfortable, but less uncomfortable in her own skin. She had actually started to get a handle on that somatic recoil urge, but now it was back in full force. And her bladder was of course insisting, so hiding under the covers and pretending it wasn't there wasn't an option. Sara grabbed two crackers from her nightstand stash and chewed them as she carefully, slowly, made her way to the bathroom. As she did, she decided that she had definitely taken walking for granted before now, and (sharply) learned a new definition for the phrase 'stretched to the limit' when it came to her belly. 
+When Sara wakes up, maybe she notices the tightness in her lower abs and the skin there is worse than ever, even though she thought it was at the limit before. She rubs her eyes thinking it almost feels weird that the pressure on her bladder has gone down a bit. Maybe it's just not that full, but she does need to use the bathroom, so she threw off the covers and remembered to do the roll her on side thing then swings out her legs to get out of bed. Since directly just sitting up with her abs was neither comfortable nor recommended. And caught herself by grabbing the bed, because her center of gravity is way off, like as if there was weights strapped to the front of- Sara looked down. Right: twin pop. She'd read about about it, but in her half asleep haze had forgotten for a moment that it was due to happen any day now. 
 
-Once she relieved herself, Sara noticed her reflection in the bathroom mirror. Oh boy, Jane was going to squeal so loud. Sara put some lotion on her taut belly before she left the bathroom, though she really wished Jane was there to do it. Being touched by her wife felt so nice. But since Jane wasn't there, Sara decided to try the ice pack to see if help with that skin crawling somatic feeling. She grabbed it from the freezer as she passed the fridge on her way back. 
+Sara rubbed her eyes with her right index finger and thumb, hunched her shoulders, and shuddered. Just when she had almost gotten... well, not comfortable, but less uncomfortable in her own skin. She had actually started to get a handle on that somatic recoil urge, but now it was back in full force. And her bladder was of course insisting, so hiding under the covers and pretending it wasn't there wasn't an option. Sara grabbed two crackers from her nightstand stash and chewed them as she carefully, slowly, made her way to the bathroom. As she did, she decided that she had definitely taken walking for granted before now, and (sharply) learned a new definition for the phrase 'stretched to the limit' when it came to her belly. 
 
-In the bedroom she grabbed her phone from the nightstand, took a picture of herself, and then sent Jane the image and a message that she was laying back down. Then Sara proceeded to get in bed and put the cold pack on her eyes. 
+Once she relieved herself, Sara noticed her reflection in the bathroom mirror. Oh boy, Jane was going to squeal so loud. Sara squirted some lotion from the bottle in the bathroom into her hand, and noticed the bottle was light and clearly running low. She rubbed some of it on her taut belly, though she really wished Jane was there to do it. Being touched by her wife felt so nice. But since Jane wasn't there, Sara decided to try the ice pack to see if help with that skin crawling somatic feeling. She carefully left the bathroom and grabbed it from the freezer as she passed the fridge as she slowly made her way back to the bed. 
 
-After her phone buzzed three times, Sara smirked and peeked out to check it. As she guessed, Jane had sent "OMG," then a bunch of hearts and kisses, and finally raved about how she couldn't wait until she got home. Sara replied saying "love you too, using my ice pack now, can't wait to see you either. Oh and pick up more lotion on the way home?" She was planning ask Jane if she would rub lotion on her belly more than once a day, so they were going to be going through it. 
+In the bedroom she grabbed her phone from the nightstand, took a picture of herself, and sent Jane the image. Then Sara proceeded to get into bed, laydown, and put the cold pack in its fabric sleeve on her eyes. 
 
-In the meantime, Sara could just about picture it: Her lovely Jane was probably physically bouncing. Sara almost felt sorry for the woman's coworkers. She snickered to herself, then put the phone back on the nightstand so she could focus on her breathing, before it was time to get up and work on learn to walk again. Or rather, to waddle. 
+After her phone buzzed three times, Sara smirked and peeked out to check it. As she guessed, Jane had sent "OMG!!!", then a bunch of hearts and kisses, and finally raved about how she couldn't wait until she got home. Sara replied saying "love you too, using my ice pack now, can't wait to see you either. Oh and pick up more lotion on the way home?" That was definitely something Sara didn't want then to run out of, she was really looking forward to Jane's soothing touch later. 
+
+In the meantime, Sara could just about picture it: Her lovely Jane was probably physically bouncing. Sara almost felt sorry for the woman's coworkers. She snickered to herself, then put the phone back on the nightstand so she could focus on her breathing, before it was time to get up and work on learning to walk again. Or rather, to waddle. 
 
 ----
 
@@ -500,15 +479,77 @@ Sara kissed her forehead. "Me too "
 
 ----
 ## Author's Notes
-Sara is going to wake up one morning and her balance is going to suddenly feel different, because she's going to have the twin pop, so overnight what looked like heavily bloating before is now a round pregnancy bump. It's a very small bump and is mainly down below her belly button, but the change is that her lower abdomen has this round type of shape in one spot instead of looking more generally full everywhere with heavy bloating. It's her uterus reaching over the top of that pelvis area and pushing on her abs, moving them out of the way (stretching them past their normal limits) and quickly changing her center of gravity. I think this will probably make her careful about moving about. Not that she won't, just make her have caution as she adjusts to how her body is now. 
+Sara is going to wake up one morning and her balance is going to suddenly feel different, because she's going to have the twin pop (her uterus getting big enough to take up space in her abdominal cavity instead of only being in her pelvis), so overnight she goes from looking heavily bloated, to having a small round pregnancy bump. It's a very small bump and low on her abdomen, but the change is that her lower abdomen has this round type of shape in one spot instead of looking more generally full everywhere with heavy bloating. It's her uterus reaching over the top of that pelvis area and pushing on her abs, moving them out of the way (stretching them past their normal limits).
+
+This means there's now suddenly a lot of weight in space the previously was outside her skin, which quickly changes her center of gravity. Before she looked bloated because the displacement and therefore weight was eventually disturbed, but it's suddenly focused in one spot (her new bump). I think this change to her balance will probably make her careful about moving about. Not that she won't, just make her have caution as she adjusts to how her body is now. 
 
 At this point she'll be able to hide her new baby bump with baggy clothes (to appear not pregnant in public), but that won't last long. 
 
-Her previous tight feeling (pre-pop) would have been like a dull ache. Post-pop it's a sharp pulling
+Her previous tight feeling (pre-pop) would have been like a dull ache. Post-pop it's a sharp pulling. 
 
 This scene is showing more of Sara's emotional growing in this story arc because even though Jane is not nearby, Sara is still reaching out for comfort in a very deliberate way. Bringing Jane into this is much more involved and intentional. Setting up showing Jane this milestone isn't only a reveal. It is Sara more actively seeking support for another person because she is getting more comfortable with doing so. 
 
-While having her center of gravity change initially catches Sara off guard, it is not alarming to her as it is an expected normal part of pregnancy and therefore to Sara it is a signal of getting closer to her goal. This is why she can joke about it with Jane the way she does. It is all simply part of the process she is willingly engaging in to achieve her most important goal.  
+While having her center of gravity change initially catches Sara off guard, it is not alarming to her as it is an expected normal part of pregnancy and therefore to Sara it is a signal of getting closer to her goal. This is why she can joke about it with Jane the way she does (by calling the twins "little stinkers"). It is all simply part of the process she is willingly engaging in to achieve her most important goal.  
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.14 Gym.md 
+ 
+ 
+Maybe a scene a two week after Sara start to show, where she's obviously show (especially in her gym clothes), she goes to the gym and gets some looks, but that doesn't both her. Maybe she's amused by it? Not sure. If she even notices, maybe her friend notices? She's just going because it's familiar, all she's going to do is walk on a treadmill, like she has been doing for week at this point. 
+
+Don came over near her treadmill with an interesting look on his face. "You're really not bothered by it, are you?" He asked. 
+
+"Bothered by what?" Sara took the treadmill down a notch or two. She could talk already, but no reason she couldn't make it easier. 
+
+"Bothered by the looks I think half the people in here are giving you."
+
+"Honestly, hadn't noticed."
+
+"Really?"
+
+"Don, I was born with blood-red hair. Not to mention, I've had these tattoos for a long time. And I gave up acting like what people think a woman should for even long than that." Sara said. "When people have been 'giving you looks' for your whole life, you get used to it. Which means you don't notice it. I am what I am, and just because most people don't like it doesn't mean I have to care what they think."
+
+ 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.20 Birth Training.md 
+ 
+ 
+Oh right at some point there will be a scene of basically Sarah taking birthing classes, so she'll know what to do when she actually goes into labor. 
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.30 Visualize.md 
+ 
+ 
+Late in her first pregnancy, Sara is going to lean more on things like visualization (and the ice pack of course) to deal with her emotions. 
+
+The somatic feeling is going to get nuts again near the end, and I think she'll lean knowing that it's almost over. Well, in addition to help from Jane. Might have Sara actually talk about it and try to describe it to Jane sometimes during the second trimester. 
+
+Sara is much more likely to think "I've made it this far just a little long" than she is to get overwhelmed and breakdown about it. 
+
+At the house, her personal punch bag is in the corner with the meditation cushion next to it (or maybe some other seat? Maybe once she's heavily pregnant a chair is much easier for her). She wraps up her hands as if she's going to box, and visualizes punching, using her memories of what she practiced before she was pregnant, and thinking about how great it's going to feel to do those moves again after she's pregnant. 
+
+She'll be looking forward to "the big day" when she won't be pregnant anymore. She'll understand that she has to get through the end before she can get there, she'll know she can't skip any part of the process, and she'll know that somatic recoil is only going to get worse, but she'll also know after it gets worse then it will end.  
+ 
+# D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.40 Labor + Birth.md 
+ 
+ 
+Jane and Sarah are at home and Sarah starts having contractions and she has reason to think that they're real, and you know she's not like really freaking out just more of a oof and not like a scream or oh my God or whatever. She can take pain. She was training to be a pro athlete, not to mention how large her tattoos are: from shoulder to shoulder across her upper chest, on most of one arm, and all down the other arm. Plus whenever she does an intense workout, the last mile she does, that last rep, and etc. I would say generally aren't comfortable. And she's looking forward to going back to doing those intense workouts again after she's recovered post-birth. Handling physical pain is something Sara is good at. 
+
+But anyway she communicates to Jane that yeah she's in labor and Jane probably starts freaking out and Sara is like "calm down, it's okay, I promise. It's okay, breathe for a second honey" I don't know kind of like a funny role reversal? Again that thing where I don't know I guess it's kind of a reoccurring theme with this pregnancy that Sara is the one that is physically vulnerable while Jane is the one that is emotionally vulnerable, so again Sara gets to be protective of Jane (and at the same time the only reason Sara has her footing emotionally is because she's feeling protective of Jane). 
+
+I'm also thinking I might do something for basically Sarah has opted for a home birth. I could just bring in some random Sim and say oh that's the midwife that they hired or whatever in the screenshots. Assuming Jane didn't just like you know take midwife training? I don't know how long that takes.
+
+Like yeah contractions and birth hurt, but Sara knows it's supposed to hurt so for her this is simply the process in action. No different than when her hands hurt or have bruises after using her punch bag. Or when her tattoos were sore when she got them. Or probably dozens of other examples from her intense workouts. 
+
+And during labor might be the first time in a long time where that somatic feeling is finally gone, because her body is removing the thing that has been causing it. Either that, or at least the feeling is oddly quiet during the labor and then it's basically gone after birth. I mean sure her organs don't instantly snap back to where they were (biology always takes time), but with the twins gone, I think that somatic feeling will end. I could also see Sara being strangely calm for at least like a day or three after giving birth. Just peaceful. Tired sure, and spending a lot of time resting and napping (because they are not getting much sleep), but quickly adjusting to breast feeding infants instead of being pregnant. Because she did it, the big thing is over. Goal achieved. Family started. Her and Jane have two babies.
+
+Sara's going to be going into these initial post-birth days knowing what to expect. Things like she already created her meal plan (knowing she's going to be recovering and planning for breast feed), cuz she knew she'd be too tired to make it after she gives birth. 
+
+Maybe at the moment of birth, when the second twin is born, Sara is almost the eye of the storm. Peaceful and still while there's the chaos of whoever is around her dealing with the newborn. 
+
+Oh that's another thought, there will be time between the two, Sara could feel a very significant shift in that somatic feeling after the first twin is born. Maybe Emma is born first? 
+
+After the twins are born, Sara will absolutely make sure that her time off work is long enough to stay with them for a while. Like she might not leave the house for a week or something like that. They don't have a separate nursey, the cribs are in their bedroom, and Sara will spend a lot of time with them. Her protective nature (her love language) is going to be laser focused on their care and her recovery. And Jane going to be there to support her of course, to help take care of all three of them. Maybe trying to make sense of the meal plan Sara has put together with detail, trying to remember how she explained it. 
+
+Though Sara will of course be careful to not overdo it once the twins are born, she knows she needs to last long term to take care of them. She knows this is a marathon not a sprint. She still need to give her body the right nutrition, the right amount of rest, proper hydration, and all of that because being a mother to and breastfeeding two infants (even with tons of help from Jane) while recovering from twin pregnancy is still asking a lot of her body, no different than the pregnancy or her high intensity workouts. But emotionally, I think she might actually be pretty level for like I said at least a few days, because she's tired and she has three people she can feel protective of (and that protectiveness is a source of strength for her, it is grounding and calming).  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\2.01-TwinBabies.md 
  

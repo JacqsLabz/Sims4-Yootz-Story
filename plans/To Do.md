@@ -1,6 +1,9 @@
 
 Sources:
 - [ ] no "ecto pooling" for emma
+- [ ] Sara giving up punching during preg is TEMPORARY
+- [ ] Sara makes the decision about her pregnancy alone because it's her decision because it's her body 
+- [ ] The lotion does actually help with the skin stretching, but because Sara can put the lotion on herself, asking Jane to do it is asking for connection, well and Sara trying to ask for help with the somatic thing (Jane doesn't know about the somatic thing at this point). 
 
 - [ ] Sara's dark form eyes & sleep make up? 
 - [ ] pool: search slab (spa day) or shelf (base game)
