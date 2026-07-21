@@ -55,7 +55,7 @@ canvas:
 ---
 After she got home from the appointment with the blood test, Sara was laying in bed on her phone. And found herself down a rabbit hole online, specifically a thread where people were complaining about morning sickness. Right, because she'd never ran until she puked, no... she rolled her eyes. Was it healthy? Probably not. Had she pushed her body to that extreme before? Multiple times. 
 
-She had to agree that the various common symptoms of pregnancy sounded really uncomfortable; downright painful and unpleasant. But physical discomfort was part of becoming and being an athlete. She was no stranger to that. It was what it took to train to compete at the level she was aiming for. She could handle it. She was willing to deal with the pain and the risks and all of it for her goal of having a child of her own. 
+She had to agree that the various common symptoms of pregnancy sounded really uncomfortable; downright painful and unpleasant. But physical discomfort, including pain, was no stranger to her. It was part of getting her tattoos and now part of becoming an athlete. The price of entry you could say. She could handle pain. She was willing to deal with the pain and the risks and all of it for her goal of having a child of her own. 
 
 At the same time... everything she saw online agreed with what her doctor had said: unless she wanted to risk the pregnancy, her workouts were going to need to change; everything high intensity had to go. And not here soon, starting yesterday. Not that she would ever trust the internet over her doctor, but death by a thousand cuts (or sources in this case) helped to counter the urge she felt to use her punch bag to let off steam. Sara put her phone down, and sighed. That urge to kick and punch was a bit less, but it wasn't gone. Understanding helped some, but it didn't solve it or really do much. 
 
@@ -110,17 +110,33 @@ Sara's breath shifted automatically and she felt a few of her muscles relax. "Th
 ## Author's notes
 The character Sara's pregnancy is actually at 1 month at this point in the plot, but she doesn't find that out until the ultrasound. 
 
-The first part of this scene (where she's alone on the bed) show the character Sara thinking about temporarily giving up her intense workout vs give up on her pregnancy, and it's no contest for her: this character wants her own biological children more than anything. She willing gives up her intense workouts temporarily knowing it will be difficult for her but more than worth it to her. This character also knows not doing these workouts will be temporary, as after she gives birth, she will not be pregnant and therefore able to do high intensity workouts without risking the things or people (other characters) that she loves. 
+The first part of this scene (where she's alone on the bed) show the character Sara thinking about temporarily giving up her intense workout vs giving up on her pregnancy, and it's no contest for her: this character wants her own biological children more than anything. She willing gives up her intense workouts temporarily knowing it will be difficult for her but more than worth it to her. This character also knows not doing these workouts will be temporary, as after she gives birth, she will not be pregnant and therefore able to do high intensity workouts without risking the things or people (other characters) that she loves. 
 
-The first part of this scene shows that the character Sara doesn't have much of a reaction to the pain and discomfort of pregnancy. She is used to her goals requiring pain and discomfort in her body. This is nothing new to her, and for her is a small price to pay for entry into having a family of her own. At this point in the story, the character Sara wants a family, she wants her own biological children more than anything. 
+The first part of this scene shows that the character Sara doesn't have much of a reaction to the pain and discomfort of pregnancy. Because she is used to her goals requiring pain and discomfort in her body. This is nothing new to her, and for her is a small price to pay for entry into having a family of her own. At this point in the story, the character Sara wants a family, she wants her own biological children more than anything. 
 
 The first part of this scene mainly shows that Sara is choosing to keep the pregnancy and carry it to term on her own, before even her wife knows about it. She makes this choice fully willingly and she is fully informed about how difficult it will be for her and what she will need to temporarily give up to make that happen. 
 
-In the second part of this scene, the character Sara is approaching the character Jane with her decision already made. Sara is informing Jane and not asking what Jane thinks of all this or what Jane wants to do, because Sara has made the decision that she's choosing to go through with the pregnancy. Sara is scared the anger will push Jane away, because Sara's anger has pushed away other characters before, but again Sara has already decided carrying the pregnancy to term is what she wants to do because to her that is worth all of this, because that's how much she values having her own biological children.  
+In the second part of this scene, the character Sara is approaching the character Jane with her decision already made. Sara is informing Jane and not asking what Jane thinks of all this or what Jane wants to do, because Sara has made the decision that she's choosing to go through with the pregnancy. Sara is scared the anger will push Jane away, because Sara's anger has pushed away other characters before, but again Sara has already decided carrying the pregnancy to term is what she wants to do because to her that is worth all of this, because that's how much she values having her own biological children. 
+
+But admitting about her anger to Jane is hard because Sara is used to managing her internal world alone. No one else in her past as been able to weather the storm within her. Sara thinks she believes Jane, but there will be some subconscious part of her that will be scared Jane is going to change her mind anyway.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.05 Muscle Blur.md 
  
  
+
+When Sara went to work the next day, she told them about her pregnancy. 
+
+Learning and research quickly became their new focus during their free time. Jane focused mainly on learning about anger management, though she couldn't help learning some about pregnancy, she was just too excited. 
+
+Meanwhile, Sara also had to inform her job, and figure out how they were going to handle things. In her free time, her research focused on things like how to change her diet to come up with new meal plans, what changes to expect to her body and when, and what exercises were safest. It was a bit of a relief that swimming made that list, so not wanting to hope hadn't risked anything. 
+
+Walking also made that list, so they started taking slow walks in their neighborhood, often comparing notes. Jane would summarize key points of what she'd learned from some audiobook or podcast she'd listened to while she had been at work. Until she'd get winded, but Sara didn't mind taking breaks during their walks. All things considered, she figured it was probably good for herself too. 
+
+Jane found tips like regularly putting an ice pack over her eyes and explained things like sitting with emotions. 
+
+- [x] meditation class? benches in willow creek?
+	- Sort of, any meditation seat can host guided. 
+	- There's 1 bench in the community garden. Which could be part of how we get to "Jane loves to garden"? if she doesn't have her own plants already at this time, idk. 
 ## Author's Notes
 
 Sarah notices especially her lower abs losing their definition. Because this is a normal and expected part of pregnancy, Sara accepts this temporary change to her body. 
@@ -131,18 +147,81 @@ Maybe some morning sickness or nausea starts? But Sara would be already proactiv
  
  
 
-One day (about a week or two after telling Jane), while they're getting ready to go the pool together, Sara does something like slam a cabinet or a door and Jane is like you want the ice pack, and Sarah roughly is like yeah. She sounds angry but Jane knows what's going on. This is becoming routine. Jane brings Sara the ice pack to put over her eyes and maybe stays with her just as a presence. Sara breathes deeply and has to work on / learn to not fight the anger, but to allow the anger to exist and breathe through it. Though knowing she needs to do that because she read about it online and actually doing it are two different things. 
+"Do you want your back rubbed?" Jane asked, since that had done a lot to help Sara during the past two weeks or since she'd told Jane about the pregnancy. 
 
-The ice helps some, but there's still a degree of chaos in her system. She feels the urge to wrap her hands like she's going to punch/box. She checks that it's safe, and wraps her hands before she gets in the pool (being extra careful about the tension of the wraps). Sara will swim with the wraps on. She might slowly do some of her boxing moves in the shallow end. If she does moves that use her arms, she will make sure they are in the water so that she is safe. 
+"No." Sara ground out as her arm twitched. She flexed her hands and tried to breath. She didn't even know what she was angry about, just that this time she didn't want to be touched. 
+
+Jane nodded, today's episode was a bad one then. "What about the ice pack then?" 
+
+"Maybe, I don't know." She honestly couldn't tell.  
+
+"Are you ok with trying it?" Jane checked. 
+
+"I guess." Sara kept clenching and unclenching her hands as she went to the bedroom. She just wanted out of this loop. The one that had her stuck between the urge to go wrap up her hands then punch until she felt like herself again, until she felt stable; and the knowledge that doing so with her joints like this came with too high a risk of injury, which came with several other possible problems, none of which were worth taking that risk. 
+
+Jane grabbed the ice pack from the freezer, holding it by the edge of the fabric sleeve to avoid getting her fingers cold, then came into the bedroom to find Sara curled up on top the covers. She set the ice pack down near Sara's face, and then went over to her side of the bed and sat down. "If you want me to leave, just let me know." She knew all too well that sometimes being in that dark pit meant needing space, and sometimes it meant the only thing worse than being in it was being alone in it. 
+
+Sara rolled on her back and laid the ice pack in it's fabric sleeve over her eyes and upper cheeks and tried to slow her breathing. She wasn't sure she wanted Jane to stay, but didn't like the idea of her leaving. Her breathe was ragged and her lungs didn't want expand. Sara flexed her fists and tried to think about what Jane had said on their walk yesterday, about not fighting the anger. They had been in the park, holding hands as they resting on a bench because Jane had said her legs were tired. 
+
+Sara moved her hand along the covers until she found the texture of Jane's skirt, and then just held it open. 
+
+Jane looked down to see Sara's open palm at her thigh. Looked like she had managed to get at least one hand out of the pit maybe? Jane put her palm over's Sara, but didn't close her fingers until Sara closed hers first. Sara gave a little squeeze, Jane firmly squeezed back as if to say yes she was right here. 
+
+They just stayed like that for around ten minutes or so, until Sara opened her fingers and tugged so Jane knew to let go. 
+
+Sara took the ice pack off her face. She had known this wasn't going to be easy, but this one was especially rough. In a way she felt like her body been hit by a ton of bricks. She wasn't sure she would ever get used to feeling so exhausted when she basically hadn't moved. 
+
+"Want me to put it back?" Jane pointed to the ice pack. 
+
+"Yeah," Sara swallowed and stated to sit up. "Can you grab the protein shake while you're in there?"
+
+"Of course." Jane grabbed the ice pack and moved to get off the bed. 
+
+Her arms felt shaky as Sara pushed herself up and moved back to lean against the headboard. She let out a belched then rubbed her stomach as she grabbed a cracker from her nightstand. 
 
 ----
 
+Actually no stomach acid. More like a strange stillness or calm. If she check in with herself she'll also feel that heavy cramping feeling, but that's normal so it doesn't bother her. Like sure maybe her body has this vague shouldn't but she knows it should so she's ok with it. 
+
+I think Sara will thank Jane? Or at least say sorry that one came out of no where. 
+
+Jane says she knows there will be good days and bad days. 
+
+Maybe Sara feels this sudden strong appreciation for Jane. A sort of what did I do to deserve you type of feeling. And does something like lean in to kiss her. Maybe they end up at least like cuddling or making out. 
+
+----
+
+Maybe after a while Sara comes over to Jane, and Jane rubs her back. 
+
+Maybe Jane suggests they go swimming? 
+
+And/or Sara mentions about missing wrapping her hands, and Jane points out that just wrapping them won't hurt her. Or maybe like Jane sees Sara holding the strips of fabric? And so Jane is like hey what's up and Sara explains she misses wrapping her hands, and Jane suggest she just wrap them (without throwing punches). 
+
+----
+
+One day (about a week or two after telling Jane), while they're getting ready to go the pool together, Sara does something like slam a cabinet or a door and Jane is like you want the ice pack, and Sara roughly is like yeah. She sounds angry but Jane knows what's going on. This is becoming routine. Jane brings Sara the ice pack to put over her eyes and just stays with her just as a presence. Sara breathes deeply and has to work on / learn to not fight the anger, but to allow the anger to exist and breathe through it. Though knowing she needs to do that because she read about it online and actually doing it are two different things. 
+
+The ice helps some, but there's still a degree of chaos in her system. She feels the urge to wrap her hands like she's going to punch/box. She checks that it's safe, and wraps her hands ~~before she gets in the pool (being extra careful about the tension of the wraps). Then Sara keeps the wraps on while swimming in the pool.~~ (no, cotton + pool = too heavy)
+
+She might slowly do some of her boxing moves in the shallow end. If she does moves that use her arms, she will make sure they are in the water so that she is safe. 
+
+----
+
+- [ ] massage during pregnancy? 
 ## Author's Notes
 At this point Sara still looks normal, though she can feel what feels like bad period cramps and like there's a weight on her bladder. Maybe she's already having a sort of shouldn't feel that way but it's small and quiet and easy to deal with by reminding herself that yes it should. 
 
 The actual reason for boxing wraps are because for Sara they have a learned associated with releasing her anger when wearing them. They are like signal to her subconscious that its time to work through her emotions, and they feel very familiar. The process of doing the wrapping helps her relax just a little, and might cause her to visualize punching to release anger without serious focused effort. Then the mild compression (at a healthy amount) while she wears the wraps on some level helps her feel steady, even if she doesn't directly realize or think about it. In boxing, the wraps are to stabilize the hands and help protect them from injury during punching. Obviously nothing makes injury impossible, but they greatly reduce the risk of breaking bones in the hands while boxing & punching. 
 
-This scene is showing the character Sara is struggling to adjust to the temporary changes she is choosing to make to minimize the risk to her wanted pregnancy. Sara exacted this, and this scene is also payoff for Sara being honest with Jane. This scene is one example of showing Jane doing what she said: helping Sara find new ways to manage her emotions while Sara has choose to temporarily forgo her usual high intensity workouts because Sara values having her own biological children more.  
+If she does slow boxing moves while in the water, it's because moving her box into those positions is familiar, and helps her use visualization of doing the moves with her normal speed and force. Plus she can work on her form, and keep it familiar. But she might decide she doesn't like that and sticks to just swimming with her hands wrapped. Because again putting them on is familiar, wearing them is familiar, and her brain associates them to releasing anger. Having them on while swimming would probably help her deal with more anger while she's swimming. 
+
+This scene is showing an example of what becomes a common moment that isn't always shown in the story: the character Sara is struggling to adjust to the temporary changes she is choosing to make to minimize the risk to her wanted pregnancy. Sara exacted this, and this scene is also payoff for Sara being honest with Jane. This scene is one example of showing Jane doing what she said: helping Sara find new ways to manage her emotions while Sara has choose to temporarily forgo her usual high intensity workouts because Sara values having her own biological children more. 
+
+This scene also matters because it's showing one example of the character Jane sticking to what she said: helping Sara with this. Which is actually in a way scary for Sara. Sara is used to handling managing and taking care of her internal world on her own. She is used to managing her emotions independently, because she learned many years ago that letting people see it pushes them away. She is scared she's going to in a fit a rage do something that will push Jane away or cause a rift or harm their relationship, something that she will regret even without the consequence, something she doesn't want to do and then have to deal with the consequence of the harm to the relationship. She's so scared of it she can't really even admit she's scared of it. And while all of that was indirectly shown in the scene where Sarah was telling Jane about the pregnancy and the anger, this scene is critical because it is the story showing one moment that represents dozens of moments where Sara's anger flares up and it is visible and Jane can see it, and Jane doesn't turn away. Jane makes a suggestion on something to manage it by asking Sarah if Sara wants an ice pack, respecting that Sarah can still choose how to handle the situation while also prompting Sara to help remind Sara of her new tools, and then Jane just stays nearby. Jane doesn't realize it but this is exactly what Sara needs, to know that Jane will still be there even if she sees what's inside. 
+
+Also this is kind of implied in the narrative, for Jane a lack of painting would not cause anger it would cause what she calls the dark place. This is implying depression, similar to how Sarah has been using intense workouts to be okay emotionally since she was still a minor, Jane has been doing the same thing but with painting and with depression and sadness instead of anger. From Jane's perspective, just because it looks like Sara is angry on the outside, Jane sees it as Sara's version of the dark depressed pit that Jane knows too well. Because while anger and sadness look different on the outside, it's still being emotionally overwhelmed. And this dark place that Jane knows, this pit, the one thing she knows about it is the only thing worse than being in the pit is being alone in the pit. Jane knows enough to understand that she can't pull Sara out of the pit, only the person in the pit can pull themselves out, but she can be there. That way at least Sara isn't alone. 
+
+This is accidentally exactly what Sara needs, because again Sara is used to managing her internal world alone, she doesn't know how to let someone help her. It takes a lot of trust, and Jane is accidentally slowly building that trust just by being present. By physically showing Sara's subconscious that Jane isn't going anywhere. Going through this, Sara learns how to be emotionally vulnerable. How to rely on someone else instead of handling everything alone.  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.07 Bikini poof.md 
  
@@ -3262,7 +3341,7 @@ Later that evening, Kaylie knocked on their door.
 		{"id":"23967a973b5367a3","type":"text","text":"Maybe eventually Sara switches her pj outfit to her pj pants and her workout top? The sports bra, if her belly gets to big for her usual pj shirt","x":-2960,"y":2260,"width":400,"height":400},
 		{"id":"f6e53d1468473ee6","type":"text","text":"One the day Sara gets the blood test, she spends time reading about pregnancy instead of emotion regulation because again she knows how to make a meal plan. She doesn't know the term emotion regulation. She doesn't know a practical next step. Or maybe that next step is ask Don tomorrow or something like that. Or see someone her doctor referred her to in a week or something like that. Anyway, researching topics like meal plans and exercise modifications is familiar. \n\nLearning \"how to tell your spouse about an unexpected unplanned wanted pregnancy that's going to mess up your emotions not just because of hormones but also because you don't know how to cope without boxing until your knuckle are bruised or bleeding on some days (after you said you weren't fertile and you both agreed to wait to discuss having kids)\" is not something she's looked into before.","x":200,"y":-797,"width":400,"height":400},
 		{"id":"8d46475780b1f6ec","type":"text","text":"This is for the part of the story where the character Sara is pregnant for her first time with twins. Her and the twin are human the whole time. ","x":-439,"y":-3000,"width":400,"height":400},
-		{"id":"0011b20cc1bfd3ed","type":"text","text":"# Sara's Preg Coping\n- Visualization: imagining she's doing a high intensity workout while she's physically sitting still. She kinda already knows this before she's pregnant, and basically just relies on it way more. \n\t- Optional: engaging her senses to help call up and immerse herself in the memories: smelling her punch bag, wearing her boxing gloves (but not using them!), sitting the gym to take in the sounds/smells, loosely wrapping her hands (familiar ritual, her hands would always be wrapped in her gloves, so this would help \"prime\" her mind), etc. \n- Connecting with Jane: Jane's touch, Jane's happiness, and/or doing anything that causes her to feel protective of Jane (including protecting Jane's dream of parenthood) is very grounding for Sara\n\t- This includes Jane touching her belly, and applying lotion. \n\t- Walks with Jane (around the neighborhood)\n- Swimming: The classic joint-safe fall-proof does-not-matter-that-your-center-of-gravity-is-off exercise that's low intensity, protects again overheating, and is one of the safety forms of movement for pregnant women (and maybe others with health issues). \n- Yoga: no, not worth the risk for Sara, I need to remove this one from the scenes, because Sara can get mindful movement in a pool. Even if she wants to do yoga poses, she's safer doing them in water anyway. \n- Meditation: Trying to learn to just sit with uncomfortable things\n- Ice pack on her eyes: This one they find online as is new, but it helps Sara get her activation down (via the vagus nerve)\n\t- Side note: no cold showers, no cold/hot on her belly. \n- \"Pool boxing\" - she can wrap her hands and do slow versions of at least some her her boxing moves while in the water. ","x":-2120,"y":-397,"width":780,"height":697},
+		{"id":"0011b20cc1bfd3ed","type":"text","text":"# Sara's Preg Coping\n- Visualization: imagining she's doing a high intensity workout while she's physically sitting still. She kinda already knows this before she's pregnant, and basically just relies on it way more. \n\t- Optional: engaging her senses to help call up and immerse herself in the memories: smelling her punch bag, wearing her boxing gloves (but not using them!), sitting the gym to take in the sounds/smells, loosely wrapping her hands (familiar ritual, her hands would always be wrapped in her gloves, so this would help \"prime\" her mind), etc. \n- Connecting with Jane: Jane's touch, Jane's happiness, and/or doing anything that causes her to feel protective of Jane (including protecting Jane's dream of parenthood) is very grounding for Sara\n\t- This includes Jane touching her belly, and applying lotion. \n\t- Walks with Jane (around the neighborhood)\n- Swimming: The classic joint-safe fall-proof does-not-matter-that-your-center-of-gravity-is-off exercise that's low intensity, protects again overheating, and is one of the safety forms of movement for anyone with joint issues of pretty much any kind. \n- Meditation: Trying to learn to just sit with uncomfortable things\n- Ice pack on her eyes: This one they find online as is new, but it helps Sara get her activation down (via the vagus nerve)\n\t- Side note: no cold showers, no cold/hot on her belly. \n- Doing slow versions of at least some her her boxing moves while in the water, if using her arms she would have her arms under the water, either in a shallow part of the pool or with floats like in water aerobics (not with cotton wraps, maybe with swimming gloves or swim tape, but normal cotton would get stupid heavy while wet) ","x":-2120,"y":-397,"width":780,"height":697},
 		{"id":"091b14cb196dc380","type":"text","text":"Sara is absolutely going to want to take birthing classes, the idea of training her body and practicing what she's going to do on the big day are both a given in her world. \n\nI know there's how to breathe, idk, it's another of those things she going to approach in her shameless practical straightforward way. She's not going to get grossed out or scared. She's going to take it like an athlete who competes at the Olympics with an injury, and accept pain as part of the process. She isn't the glowing \"this is what I'm doing for my baby\" woman. She's doing this for herself, she wants a family to protect (aka love). ","x":-220,"y":4390,"width":400,"height":400}
 	],
 	"edges":[
