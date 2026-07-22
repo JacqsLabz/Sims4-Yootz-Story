@@ -5,9 +5,21 @@ TheBoys: []
 ---
 Grant ended up deciding he wanted a plate of the real food, and Cass led him to the cabin. 
 
-Maybe Sara is at the bar, making sunlight reversal cocktails for her and Don, and she's back to her usual collected self. She's like "Hey Grant. Sorry about leaving earlier. What can I get you to drink?" She gestured to the bar. 
+Maybe Sara is at the bar, making sunlight reversal cocktails for her and Don, and she's back to her usual collected self. 
 
-Her eyes were a little raw, and she had a new fresh bandage. Grant definitely didn't want to risk upsetting her, and something to wash down the sausage did sound nice. "I'll have whatever you're having." 
+Cass comes around the bar, and hugs Sara. "Are you ok?" Cass asked. 
+
+"I'll be ok." Sara rubbed her back, "I'm sorry I worried you sweetie."
+
+Cass's stomach growled loudly again, and she closed her eyes. 
+
+"Let's get some food in you, ok?" Sara stroked Cass's hair. "No need to make it wait, I'm ok now."
+
+Cass frowned, the her hands flitched, "I guess." Then she went to grab herself a plate of food. 
+
+With Cass getting food, Sara's attention turned to Grant. "Hey Grant. Sorry about leaving earlier. What can I get you to drink?" She gestured to the bar. 
+
+Her eyes were a little raw, and she had a new fresh bandage (or maybe now there's blood on the hand wraps? Not that Grant knows they're wraps and not bandages). Grant definitely didn't want to risk upsetting her, and something to wash down the sausage did sound nice. "I'll have whatever you're having." 
 
 Sara smirked, "I'm not sure you'll enjoy a sunlight reversal cocktail, since you aren't a vampire. How about a root beer float?" 
 

@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[TheBoys.canvas]]"
-TheBoys: []
+TheBoys:
+  - "[Couch nap](Couch%20nap.md)"
 ---
 Maybe the first night, Grant tries to sleep, but he can't fall asleep. He feels tired like from exercise, not like sleepy. Like he doesn't have a ton of energy, but he isn't sleepy. And he's just laying there in bed. 
 

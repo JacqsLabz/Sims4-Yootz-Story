@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[TheBoys.canvas]]"
-TheBoys: []
+TheBoys:
+  - "[Nightterror](Nightterror.md)"
 ---
 Maybe one morning, Emma comes into the main room of the cabin and starts cooking or something. She thinks Grant is in one of the bedrooms. He's not, he's on the couch. But the sudden noise startled him awake. Sudden noise while he's asleep on a couch used to mean Savanna was home and pissed. So he jolts awake and might like yell or something. Which freak out Emma because she didn't even know he was in the room. 
 

@@ -1,7 +1,8 @@
 ---
 canvas:
   - "[[TheBoys.canvas]]"
-TheBoys: []
+TheBoys:
+  - "[41_FirstNight](41_FirstNight.md)"
 ---
 When they get to the cabin in Granite Falls, Emma gives Grant a tour of the cabin. Since they're going to be there for about a week and she's really familiar with it. He's going to notices some small things in her body language. Because of her past: This cabin is where the main family were all staying together when Emma found out she was pregnant with Brenda. 
 
