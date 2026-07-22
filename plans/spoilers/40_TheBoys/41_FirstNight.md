@@ -3,7 +3,7 @@ canvas:
   - "[[TheBoys.canvas]]"
 TheBoys: []
 ---
-Maybe the first night, Grant tries to sleep, but he can't fall asleep. He feels tired like from exercise, not like sleepy. Like he doesn't have a ton of energy, but he isn't sleepy. And he's just 
+Maybe the first night, Grant tries to sleep, but he can't fall asleep. He feels tired like from exercise, not like sleepy. Like he doesn't have a ton of energy, but he isn't sleepy. And he's just laying there in bed. 
 
 Well, he supposed that made sense. He'd woke up up not that long ago. Grant decided to get out of bed and find something to do. It was odd. He was tired but not sleepy. He didn't have much energy, but his mind was wide awake. 
 
@@ -15,9 +15,9 @@ The end of the book seemed to come so fast, there was so much in it. His stomach
 
 Several snacks later, he head the sound of a door. Grant looked up to see Emma coming in the back door.
 
-"Oh, good morning." Emma yawned. "You're up early." 
+"Oh, good morning." Emma yawned. "You're up early." She knew he had slept in past noon the previous day, but maybe he was normally a morning person? 
 
-"Eh, more up late." He looked out the windows, sunrise. 
+"Eh, more up late." He looked out the windows, it was sunrise. 
 
 She came over to the counter. "Couldn't sleep?" 
 
