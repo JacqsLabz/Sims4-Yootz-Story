@@ -7,19 +7,19 @@ Grant woke to his phone ringing. He rolled over and pulled it out. What the hell
 
 "Where the hell are you? Your shift starts in 10 minutes." His coworker's voice came through the phone. 
 
-But his alarm hadn't gone off yet... Grant blinked at his phone screen. The rush was like lightening through his nervous system. He hadn't just slept through his alarm, it was the afternoon! The guy was right. Grant jumped to his feet looking for his keys and work uniform. 
+But his alarm hadn't gone off yet... Grant blinked at his phone screen. The rush was like lightening through his nervous system. He hadn't just slept through his alarm, it was the afternoon! Jessie was right. Grant jumped to his feet looking for his keys and work uniform. 
 
 But for a minute Grant didn't know where he was. This wasn't the apartment. It was a tent? Why was he in a tent? Was this a dream? Who's tent... the memories of yesterday hit him all at once. Savanna. Emma. Jane. Sara. Cass. All of it. 
 
-"Just tell the boss I call in sick, ok?" Even if he wanted to, there was no way he could get there on time, it's simply wasn't possible. But he could avoid being fired by burning a sick day, because this was the best paying job he could find.
+"Just tell them I call in sick, ok?" Even if he wanted to, there was no way he could get there on time, it's simply wasn't possible. But he could avoid being fired by burning a sick day. This was the best paying job he could get. 
 
-"Dude, the hell?" Then Jessie lowered his voice and whispered into the phone, "I went by your apartment. What are you doing?" Grant sometimes regretting letting his coworker know where he lived. 
+"Dude, the hell?" Then Jessie lowered his voice and whispered into the phone, "I went by your apartment. What are you doing?" Grant sometimes regretted letting his coworker know where he lived. 
 
-It occurred to Grant that the phrase 'it's complicated' didn't even begin to cover what was going on. Grant had to resist laughing at the truth: He was sleeping in a fairy's tent outside a werewolf safehouse. Grant couldn't tell Jessie or his boss the truth, they'd never believe it. "Look, just tell management I'm suddenly sick, ok?" He didn't have that many sick days, but it was the only workable solution he could think of. 
+It occurred to Grant that the phrase 'it's complicated' didn't even begin to cover what was going on. Grant had to resist laughing at the truth: He was sleeping in a fairy's tent outside a cabin on top of a werewolf bunker. Grant couldn't tell anyone at his job the truth, they'd never believe it. "Look, just tell them I'm suddenly sick, ok? I don't know, that I threw up, probably a stomach bug." He didn't have that many sick days, but it was the only workable solution he could think of. 
 
-Jessie started to complain about how they were going to be short for the shift anyway, but then Grant heard Ben calling for him from outside the tent. 
+Jessie started to complain about how they were going to be short for the shift anyway, but then Grant heard Ben happily calling for him from outside the tent. 
 
-So he kept his voice down as he interrupted Jessie's rant, "Dude, I gotta go." Because Grant was not going to let Ben see him worrying about this. 
+So he kept his voice down as he interrupted Jessie's rant, "Dude, I gotta go." 
 
 "Don't you hang up on me Grant!" It was always the same thing with Jessie. 
 
@@ -29,7 +29,7 @@ Ben unzipped the door to the tent. "Good morning!" He came over and hugged Grant
 
 "I did? What fun is that?" Was it always this hard to smile? 
 
-Ben started listing off activities, from making pancakes with Jane, to watching Cass and Sara race in kayaks. It sounded like they'd made sure they're not let him get too close to the water, which was good because the kid couldn't swim. 
+Ben started listing off activities, from making pancakes with Jane, to watching Cass and Sara race in kayaks. It sounded like they'd made sure they'd not let him get too close to the water, which was good because the kid couldn't swim. 
 
 Grant tried his best to be attentive. Despite the extra sleep, he felt so exhausted. 
 
