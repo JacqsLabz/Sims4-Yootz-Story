@@ -415,11 +415,11 @@ At least a few days after Jane spots the dome shape starting to be visible when 
 
 Consciousness came to Sara a little bit at a time. First thing to hit her sleepy awareness was that the tightness in her lower abs and the skin there was worse than ever, even though she had thought it was at the limit before. 
 
-She rubbed her eyes. Another thing that felt almost weird was that the pressure on her bladder had actually gone down a bit. It didn't feel totally full, but she definitely needed to use the bathroom. So she threw off the covers and remembered to roll her on side thing then swings out her legs to get out of bed. Since directly just sitting up with her abs was neither comfortable nor recommended anymore. And then caught herself by grabbing the bed, because her center of gravity is way off, like as if there was weights strapped to- Sara looked down. Right: twin pop. She'd read about about it, but in her half asleep haze had forgotten for a moment that it was due to happen any day now. 
+She rubbed her eyes. Another thing that felt almost weird was that the pressure on her bladder had actually gone down a bit. It didn't feel totally full, but she definitely needed to use the bathroom. So she threw off the covers and remembered to roll her on side thing then swung out her legs to get out of bed.  And then caught herself by grabbing the bed, because her center of gravity is way off, like as if there was weights strapped to- Sara looked down. Right: twin pop. She'd read about about it, but in her half asleep haze had forgotten for a moment that it was due to happen any day now. 
 
 Sara rubbed her eyes with her right index finger and thumb, hunched her shoulders, and shuddered. Just when she had almost gotten... well, not comfortable, but less uncomfortable in her own skin. She had actually started to get a handle on that somatic recoil urge, but now it was back in full force. And her bladder was of course insisting, so hiding under the covers and pretending it wasn't there wasn't an option. Sara grabbed two crackers from her nightstand stash and chewed on them, as she carefully and slowly made her way to the bathroom. As she did, she decided that she had definitely taken walking for granted before now, and (sharply) learned a new definition for the phrase 'stretched to the limit' when it came to her belly. 
 
-Once she relieved herself, Sara noticed her reflection in the bathroom mirror. Oh boy, Jane was going to squeal so loud. Sara squirted some lotion from the bottle in the bathroom into her hand, and noticed the bottle felt light and clearly was running low. She rubbed some of it on her taut belly, though she really wished Jane was there to do it. Being touched by her wife felt so nice. But since Jane was at work, Sara decided to try the ice pack to see if help with that skin crawling somatic feeling in the mean time. She carefully left the bathroom and grabbed it from the freezer as she passed the fridge as she slowly made her way back to the bedroom. 
+Once she relieved herself, Sara noticed her reflection in the bathroom mirror. Oh boy, Jane was going to squeal so loud. Sara squirted some lotion from the bottle in the bathroom into her hand, and noticed the bottle felt light and clearly was running low. She rubbed some of it on her taut belly, though she really wished Jane was there to do it. Being touched by her wife felt so nice. But since Jane was at work, Sara decided to try the ice pack to see if help with that skin crawling somatic feeling. She carefully left the bathroom and grabbed it from the freezer as she passed the fridge as she slowly made her way back to the bedroom. 
 
 In the bedroom she grabbed her phone from the nightstand, took a picture of herself, and sent Jane the image. Then Sara proceeded to get into bed, lay down, and put the cold pack in its fabric sleeve on her eyes. 
 
@@ -449,7 +449,7 @@ Jane came close, and Sara put an arm around her. When Jane put both hands on her
 
 Jane nodded, "I've been looking forward to that all day."
 
-Sara kissed her forehead. "Me too "
+Sara kissed her forehead. "Me too."
  
  
 # D:\Sync\obsidian\Sims-Stories\Sims4-Yootz-Story\Chapters\1.14 Gym.md 
@@ -460,11 +460,11 @@ canvas:
   - "[[2 Preg.canvas]]"
 2 Preg: []
 ---
-Maybe a scene a two week after Sara start to show, where she's obviously show (especially in her gym clothes), she goes to the gym and gets some looks, but that doesn't both her. Maybe she's amused by it? Not sure. If she even notices, maybe her friend notices? She's just going because it's familiar, all she's going to do is walk on a treadmill, like she has been doing for week at this point. 
+Maybe a scene a two week after Sara start to show, where she's obviously show (especially in her gym clothes), she goes to the gym and gets some looks, but that doesn't bother her. Maybe she's amused by it? Not sure. If she doesn't even notice, maybe Don notices? She's just going to the gym because it's familiar, all she's going to do is walk on a treadmill, like she has been doing for week at this point. 
 
 Don came over near her treadmill with an interesting look on his face. "You're really not bothered by it, are you?" He asked. 
 
-"Bothered by what?" Sara took the treadmill down a notch or two. She could talk already, but no reason she couldn't make it easier. 
+"Bothered by what?" Sara took the treadmill's speed down a notch or two. She could talk already, but no reason she couldn't make it easier. 
 
 "Bothered by the looks I think half the people in here are giving you."
 
@@ -2646,7 +2646,9 @@ Of course, she shared the news with the whole coven.
 
 Once the contraction passed, Sara pulled her in for a hug. "Don't worry, you got this Anne."
 
-![](../assets/img/03.00/06-17-18_9-43-48%20AM.png)![](../assets/img/03.00/06-17-18_9-45-32%20AM.png)
+![](../assets/img/03.00/06-17-18_9-43-48%20AM.png)
+
+![](../assets/img/03.00/06-17-18_9-45-32%20AM.png)
 
 So everyone was there when Cassandra, daughter of Anne Yootz and Maki Hasegawa, was born.
  
@@ -2709,6 +2711,8 @@ Meanwhile, Emma's stomach didn't improve.
 
 But that didn't stop Anne & Emma from having random dance-off's.
 
+----
+
 Anne called a family meeting.
 
 ![](../assets/img/03.01/06-19-18_10-03-19%20PM.png)
@@ -2723,7 +2727,7 @@ Especially Sara was excited.
 
 "That's sounds great." Anne said.
 
-"Yeah, just like when you were two were young." Then Sara turned to the toddler, "What you think Cassandra, ready to be outside?" 
+"Yeah, just like when you were two were young." Then Sara turned to her granddaughter, "What you think Cassandra, ready to be outside?" 
 
 Cass turned to Sara and smiled at her. 
 
@@ -2769,7 +2773,7 @@ One night Anne and Emma decided to enjoy the view from the back deck of the cabi
 
 ![](../assets/img/03.01/06-19-18_10-31-22%20PM.png)
 
-One of the waves of pain crashed into Emma's stomach.
+That same weird feeling waved over Emma.
 
 "Hey, are you ok?" Anne asked.
 
@@ -2805,7 +2809,7 @@ Everyone else just walked by, no one else seemed to see him. If he was here for 
 
 she knew there was no use in running, "Are you here for me again?"
 
-"No," the unearthly tone came from the hood, "Not you or the child you carry. Not now."
+"No," the unearthly tone came from the hood, "Not you or the child you bear. Not now."
 
 ![](../assets/img/03.01/06-19-18_11-50-16%20PM.png)
 
