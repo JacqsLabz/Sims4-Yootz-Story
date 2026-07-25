@@ -3,7 +3,7 @@ canvas:
   - "[[TheBoys.canvas]]"
 TheBoys: []
 ---
-Grant woke to his phone ringing. He rolled over and pulled it out. What the hell did Jessie want now? "What?"
+Grant woke to his phone ringing. He rolled over and pulled it out. What the hell did Jessie want now? "What?" He goaned. 
 
 "Where the hell are you? Your shift starts in 10 minutes." His coworker's voice came through the phone. 
 

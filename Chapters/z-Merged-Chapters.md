@@ -1682,7 +1682,7 @@ and roasting marshmallows for a few days.
 
 There wasn't any blood fruit trees in the forest near where they stayed, but Sara didn't have any trouble finding sims to feed from. 
 
-![](../assets/img/02.11/12-22-17_11-52-49%20AM.png)
+![](../assets/img/02.11/12-22-17_11-52-49%20AM.png "Savanna")
 
 Savanna grew up into a teenager.
 
@@ -1732,7 +1732,7 @@ When they were done, Savanna's voice was flat. "Neither of your are freaking lis
 
 Jane's face filled with rage as she stood.
 
-But Sara saw her, and recognized that type of look from the mirror. "Dear, stop, before you say something you might regret. Trust me."
+But Sara saw her, and recognized that look from the mirror. "Dear, stop, before you say something you might regret. Trust me. Please?"
 
 ![](../assets/img/02.11/12-23-17_11-02-18%20PM.png)
 
@@ -1744,7 +1744,7 @@ Jane let Savanna walk past.
 
 Jane did, and after a few moments collapse on the couch, deflated. "We're losing our other little girl."
 
-"Look, with how old she is, short of mind control, we can't stop her." Sara reached for Jane's hand. "If we give her space and enough time, she'll cool down. When she does, I bet she'll come back."
+"I know. But with how old she is, short of mind control, we can't stop her." Sara reached for Jane's hand. "If we give her space and enough time, she'll cool down. When she does, she'll come back."
 
 They agreed to start setting aside money for when that happened.  
  
@@ -2813,15 +2813,15 @@ she knew there was no use in running, "Are you here for me again?"
 
 ![](../assets/img/03.01/06-19-18_11-50-16%20PM.png)
 
-"The what?" Emma's face scrunched in confusion. "What child?"
+"The...?" Emma's face scrunched in confusion. "What child?"
 
-Death made a noise, Emma wasn't sure if it was a sigh. "I am not here for you or your family. Just busy with another job." 
+Death made a noise, Emma wasn't sure if it was a sigh. "I am not here for you or your family. Just getting away for a small break."
 
-"Another job?"
+"Death takes a break?" 
 
-"Yes, we're short on grimterns. So much so that we've had to start posting opening one regular mortal job boards. If you ever need a job, reply to one. Given you history, you should be a natural at reaping souls."
+"We've started a new program: Grimterns. It's posted on mortal job boards. If you ever need a job, please put in an application. Given you history, you would be a natural at reaping souls."
 
-"Th-thanks." Emma raised an eye brow, "I'll keep that in mind if I'm ever in the market for a job." 
+"Th-thanks." Emma blinked, "I'll keep that in mind... if I'm ever in the market for a job." Emma said to be polite. She didn't need a job, the family had so much money saved up, none of them worked unless they honestly wanted a certain job. 
 
 He nodded and floated away.
 
@@ -2895,11 +2895,14 @@ Sara was around the table in an instant. "Careful sweetie." Sara held her up. "L
 
 Emma bit her lip and nodded, "Ok Mom." Her voice was soft and sad. 
 
-Sara picked up Emma, "Do you want the couch or your coffin downstairs?"
+Sara picked up Emma, "Do you want a bed or your coffin downstairs?"
 
-"I'd rather a bed..." Emma whispered. 
+"Maybe just the couch..." Emma whispered, she suddenly didn't want to be alone. 
 
-Sara nodded then carried Emma upstairs to one of the beds they weren't using, and helped her get under the covers. 
+Sara nodded then carried Emma over to the long couch near the fireplace. Sara sat on one end of it, and put Emma's head in her lap. 
+
+
+
 
 When Sara came back downstairs, Jane looked worried. "Will she be ok?"
 
@@ -2977,15 +2980,11 @@ So they headed home.
 
 ![](../assets/img/03.02/06-20-18_8-31-07%20PM.png)
 
-From the moment Brenda was born, Emma felt nothing but love for her. And promised herself that she would protect her daughter.
+From the moment Brenda was born, Emma promised herself that she would would do whatever it took to protect her daughter. 
 
 ![](../assets/img/03.02/06-20-18_11-13-38%20PM.png)
 
 She needed some time to recover, but stayed near her new daughter.
-
-![](../assets/img/03.02/06-20-18_11-34-20%20PM.png)
-
-They spent some time together as a family.
 
 ![](../assets/img/03.02/06-20-18_11-42-52%20PM.png)
 
@@ -3352,9 +3351,10 @@ Later that evening, Kaylie knocked on their door.
 		{"id":"6105724b64bd1c8c","type":"text","text":"Jane is going to ask to feel the baby \"ball\" again, and mavel at it growing","x":-1660,"y":1160,"width":400,"height":400},
 		{"id":"055ffede5f2cce26","type":"file","file":"Sims4-Yootz-Story/Chapters/1.08 The Ball.md","x":-1120,"y":840,"width":400,"height":400},
 		{"id":"289b354d4dae4331","type":"file","file":"Sims4-Yootz-Story/Chapters/1.09 Ultrasound.md","x":-1120,"y":1320,"width":400,"height":400},
-		{"id":"9c70291ce5e1a414","x":-1120,"y":1800,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Chapters/1.12 Showing.md"},
-		{"id":"eefb1143c88bcb27","x":-1120,"y":2280,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Chapters/1.14 Gym.md"},
-		{"id":"23967a973b5367a3","type":"text","text":"Maybe eventually Sara switches her pj outfit to her pj pants and her workout top? The sports bra, if her belly gets to big for her usual pj shirt","x":-2220,"y":2280,"width":400,"height":400}
+		{"id":"9c70291ce5e1a414","type":"file","file":"Sims4-Yootz-Story/Chapters/1.12 Showing.md","x":-1120,"y":1800,"width":400,"height":400},
+		{"id":"eefb1143c88bcb27","type":"file","file":"Sims4-Yootz-Story/Chapters/1.14 Gym.md","x":-1120,"y":2280,"width":400,"height":400},
+		{"id":"23967a973b5367a3","type":"text","text":"Maybe eventually Sara switches her pj outfit to her pj pants and her workout top? The sports bra, if her belly gets to big for her usual pj shirt","x":-2220,"y":2280,"width":400,"height":400},
+		{"id":"442189c4eace6bd9","x":-1860,"y":-1541,"width":400,"height":400,"type":"text","text":"Sure, Sara technically could just do less intense version of her usual workouts, but she didn't see any point. Not when she could get stay active and moving with swimming, which came with less risk. No matter what exercise she did, the high intensity that calmed her wasn't an option. \n\nHer joints feeling squishy and and unstable instead of solid was unnerving for Sara. "}
 	],
 	"edges":[
 		{"id":"f63889f26e8ed924","fromNode":"e26f9d417d3aac74","fromSide":"right","toNode":"f2e355545f37221d","toSide":"left"},

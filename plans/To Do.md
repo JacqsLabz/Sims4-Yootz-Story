@@ -1,4 +1,9 @@
 
+- [ ] Recolor the hand wraps (don't cover whole forearm)
+- [ ] Check mod for ceilings, if it needs updates (xml tuning)
+- [ ] get no boxing gloves mod for Sara (so we can see her wraps) 
+- [ ] Lock gem skill for emma https://triplis.github.io/mods/lock-skills.html 
+
 Sources:
 - [ ] no "ecto pooling" for emma
 - [ ] Sara giving up punching during preg is TEMPORARY
