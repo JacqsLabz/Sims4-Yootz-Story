@@ -2839,7 +2839,7 @@ Emma decided to get in some dark meditation before heading back inside for break
  
 ---
 canvas:
-  - "[[3.2-Breakfast.canvas]]"
+  - "[[3.02-Breakfast.canvas]]"
 3.2-Breakfast: []
 ---
 
