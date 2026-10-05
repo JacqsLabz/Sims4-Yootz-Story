@@ -5,7 +5,7 @@ TheBoys: []
 ---
 Maybe at some point Grant makes the popcorn? Like he was just feeling like he wanted a snack, and maybe the nightmares have been kind of rough and just wanted something comforting, so he decides to whip him up Jane's recipe. 
 
-And Emma is like oh popcorn, thinking about the last time she had popcorn in this cabin, and then she tastes it and she's like you know how to make chains popcorn? With like complete disbelief in her voice. Or tears just start rolling down her eyes and grants like what's wrong, and she needs a minute and it's just like I didn't know you knew how to make Jane's popcorn. Or she asks how he knows how to make it well she's kind of sniffling. 
+And Emma is like oh popcorn, thinking about the last time she had popcorn in this cabin, and then she tastes it and she's like you know how to make Jane's popcorn? With like complete disbelief in her voice. Or tears just start rolling down her eyes and grants like what's wrong, and she needs a minute and it's just like I didn't know you knew how to make Jane's popcorn. Or she asks how he knows how to make it well she's kind of sniffling. 
 
 Like I said she's just thinking about the last time she had this popcorn in this cabin, and I don't know if she'll explain it or not. Even if she says something small like the last time I had this popcorn in this cabin was when I found out I was pregnant, the apparent absence of a child is kind of a implies this is a delicate matter without anything else needing to be said. Like Grant doesn't know about brenda, and Grant's not aware of Emma having a child. Emma hasn't said anything about that. I mean there is one point where she's like the grim reaper won't tell me about Brenda, but that doesn't necessarily mean Grant knows who Brenda is. 
 
@@ -15,4 +15,4 @@ And she's like "it's fine it's fine, I just- the last time I had this popcorn in
 
 And even though Emma has said Brenda in front of Grant, Grant doesn't know that Brenda is her daughter, so to Grant it's kind of like what child? Like he's not going to say that, he's just kind of like oh. Because it's clearly a very delicate subject partly because she hasn't mentioned having children or even a child before now to him. 
 
-So like Grant doesn't know how to respond to that because well she hasn't glowingly introduced him to her child. Despite having introduced him to both of her parents, her sister, her niece says all three of them, her sister's wife, you know lots of people in the family. 
+So like Grant doesn't know how to respond to that because well she hasn't glowingly introduced him to her child. Despite having introduced him to both of her parents, her sister, her nieces (all three of them), her sister's wife, you know lots of people in the family. 

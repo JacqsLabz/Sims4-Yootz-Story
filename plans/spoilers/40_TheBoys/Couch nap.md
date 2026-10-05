@@ -4,9 +4,9 @@ canvas:
 TheBoys:
   - "[Nightterror](Nightterror.md)"
 ---
-Maybe one morning, Emma comes into the main room of the cabin and starts cooking or something. She thinks Grant is in one of the bedrooms. He's not, he's on the couch. But the sudden noise startled him awake. Sudden noise while he's asleep on a couch used to mean Savanna was home and pissed. So he jolts awake and might like yell or something. Which freak out Emma because she didn't even know he was in the room. 
+Emma comes into the main room of the cabin and starts cooking or something. She thinks Grant is in one of the bedrooms. He's not, he's on the couch. But the sudden noise startles him awake. Sudden noise while he's asleep on a couch used to mean Savanna was home and pissed. So he jolts awake and might like yell or something. Which freaks out Emma because she didn't even know he was in the room. 
 
-So like Grant bolts up during a nightmare and yells them recognizes the cabin. 
+So like Grant bolts up during a nightmare and yells then recognizes the cabin. 
 
 Meanwhile Emma scream and maybe say drops something. "Ah! What are you..." Emma swallowed and took a deep breath, "Sorry. I'm sorry. I didn't know you were in here." She does something like rub her face to try to help calm herself down. 
 

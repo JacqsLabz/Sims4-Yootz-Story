@@ -13,7 +13,7 @@ But for a minute Grant didn't know where he was. This wasn't the apartment. It w
 
 "Just tell them I call in sick, ok?" Even if he wanted to, there was no way he could get there on time, it's simply wasn't possible. But he could avoid being fired by burning a sick day. This was the best paying job he could get. 
 
-"Dude, the hell?" Then Jessie lowered his voice and whispered into the phone, "I went by your apartment. What are you doing?" Grant sometimes regretted letting his coworker know where he lived. 
+"Dude, the hell?" Then Jessie lowered his voice and whispered into the phone, "I went by your apartment. What is going on?" Grant sometimes regretted letting his coworker know where he lived. 
 
 It occurred to Grant that the phrase 'it's complicated' didn't even begin to cover what was going on. Grant had to resist laughing at the truth: He was sleeping in a fairy's tent outside a cabin on top of a werewolf bunker. Grant couldn't tell anyone at his job the truth, they'd never believe it. "Look, just tell them I'm suddenly sick, ok? I don't know, that I threw up, probably a stomach bug." He didn't have that many sick days, but it was the only workable solution he could think of. 
 

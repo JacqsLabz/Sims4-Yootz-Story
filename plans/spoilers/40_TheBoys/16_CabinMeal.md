@@ -19,11 +19,11 @@ Cass frowned, the her hands flitched, "I guess." Then she went to grab herself a
 
 With Cass getting food, Sara's attention turned to Grant. "Hey Grant. Sorry about leaving earlier. What can I get you to drink?" She gestured to the bar. 
 
-Her eyes were a little raw, and she had a new fresh bandage (or maybe now there's blood on the hand wraps? Not that Grant knows they're wraps and not bandages). Grant definitely didn't want to risk upsetting her, and something to wash down the sausage did sound nice. "I'll have whatever you're having." 
+Her eyes were a little raw, and she had a new fresh bandage (or maybe now there's blood on the hand wraps? Not that Grant knows they're wraps and not bandages). Grant definitely didn't want to risk upsetting her by refusing, and something to wash down the sausage did sound nice. "I'll have whatever you're having." 
 
 Sara smirked, "I'm not sure you'll enjoy a sunlight reversal cocktail, since you aren't a vampire. How about a root beer float?" 
 
-A sunlight reversal cocktail, for vampires? That certainly was a new one on Grant. He nodded. 
+A sunlight reversal cocktail, for vampires? That certainly was a new one on Grant. He just nodded. 
 
 "Ooh, me too?" Cass asked. 
 

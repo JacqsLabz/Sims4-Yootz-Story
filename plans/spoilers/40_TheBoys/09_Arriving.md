@@ -36,7 +36,7 @@ Everyone sort of paused, except Grant.
 
 "Kinda..." Grant rubbed his neck, probably better to be honest. "Technically Savanna was my grandmother." 
 
-Ben looked sad, "She was our mother." 
+Ben looked sad, "She was our mom." 
 
 Grant gave him a hug. "I know, buddy." 
 
@@ -50,7 +50,7 @@ Sara scowled and fidgeted for a moment, then stood. "I need a minute." Her tone 
 
 Cass stood and turned, as if she was about to follow. 
 
-"Let her go Cass." Jane swallowed. "She'll need space." It hurt, both the loss and seeing Sara so upset, but 
+"Let her go Cass." Jane swallowed. "She'll need space." It hurt, both the loss and seeing Sara so upset, but-
 
 "But..."
 

@@ -2,7 +2,7 @@
 canvas:
   - "[[TheBoys.canvas]]"
 TheBoys:
-  - "[13_RestMyEyes](13_RestMyEyes.md)"
+  - "[12_FamilyTree](12_FamilyTree.md)"
 ---
 Once Ben and Jane were out of earshot, Emma came in close to Grant, "So Ben is your...?" Emma let the question hang.
 

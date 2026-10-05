@@ -20,13 +20,13 @@ Sara's expression was frank when she turned to Grant. "Cass is a new werewolf, s
 
 Jane hesitated, "Are you sure?" she looked down at her hands.
 
-"I'm sure he trusts you." Grant said. Getting Ben calmed down enough to sleep could be so hard sometimes, because if he was upset, took Grant physically being there to hold him. 
+"I'm sure he trusts you." Grant said. Getting Ben calmed down enough to sleep could be so hard sometimes, because if he was upset, it took Grant physically being there to hold him. 
 
 Sara didn't blame the kid, he had no way to know the subtext about Cass here. She moved to hug Jane, and whispered, "What happened to her isn't you fault."
 
 "I know, I just..." She whispered back. 
 
-"If you're not up to it, we'll come up with something else. You know you don't have to do this if it isn't what you want." Sara wasn't about to force anything onto Jane. Especially not a third round of parenthood, and a second round of single parenthood. She held her lover's hands, then caressed her face. 
+"If you're not up to it, we'll come up with something else. You know you don't have to do this if it isn't what you want." Sara wasn't about to force anything onto Jane. Especially not a third round of parenthood, and what would be a second round of single parenthood. She held her lover's hands, then caressed her face. 
 
 "Do you two need a room?" Emma rolled her eyes as she rubbed her left palm with her right thumb. 
 
@@ -84,7 +84,7 @@ Emma hesitated. "No, it's unique to me." She looked up to her parents, "But I'm 
 
 Sara finally found her voice. "And you trust him to be honest with you?"
 
-"He was honest about Brenda before I knew anything." Emma looked down, "Not that he'll tell me anything about her now. He is already majorly bending the rules by telling me rather my time will be up in the next twenty four hours or so."
+"He was honest about Brenda before I knew anything." Emma looked down, "Not that he'll tell me anything about her now. He is already majorly bending the rules by telling me rather my own time will be up in the next twenty four hours or so."
 
 Grant shrugged, "Well, and, I mean, if you were dead, another agent of death would have showed up by now, wouldn't they?"
 
@@ -102,6 +102,6 @@ Grant took a step back; piecing together why Sara and Jane's reaction was so str
 
 "Bunker?" Grant blurted out the useless one word question. "Sorry."
 
-Sara waved a hand, "No need to apologize. I said basement earlier to help Cass feel normal. Under the cabin is a special bunker with a room we built for Cass. Her inner wolf doesn't always like being in there, and it's harder for her understand that part of herself when it's upset. But one night won't upset her wolf too much." 
+Sara waved a hand, "No need to apologize. I said basement earlier to help Cass feel normal. Under the cabin is a special bunker with a room we built for Cass. Her inner wolf doesn't always like being in there, and it's harder for her understand that part of herself when it's upset. But one night won't upset the wolf too much." 
 
 Grant slept in the same tent as Ben. It felt good to know the kid was close and safe. 
