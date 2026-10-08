@@ -4,7 +4,7 @@
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---
-So the use the draining schedule for a while. The wolf doesn't like it. Cass might not be able to tell, but her furry starts to build faster. The wolf is angry because it's needs aren't getting met, and it's attempts to get them met aren't working. 
+So they use the draining schedule for a while. The wolf doesn't like it. Cass might not be able to tell, but her furry starts to build faster. The wolf is angry because it's needs aren't getting met, and it's attempts to get them met aren't working. 
 
 Near the full moon, Cass starts to shift despite sticking to the draining schedule that was working. 
 
