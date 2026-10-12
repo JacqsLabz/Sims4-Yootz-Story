@@ -1,6 +1,7 @@
 ---
 35_FirstFullMoon:
   - "[Moonpetal Harvesting](Moonpetal%20Harvesting.md)"
+  - "[[Moonpetal Harvesting]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

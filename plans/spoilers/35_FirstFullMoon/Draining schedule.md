@@ -2,6 +2,8 @@
 35_FirstFullMoon:
   - "[Transform despite draining](Transform%20despite%20draining.md)"
   - "[Things taking all her Spoons](Things%20taking%20all%20her%20Spoons.md)"
+  - "[[Transform despite draining]]"
+  - "[[Things taking all her Spoons]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

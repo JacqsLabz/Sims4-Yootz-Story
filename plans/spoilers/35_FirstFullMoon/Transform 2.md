@@ -1,6 +1,7 @@
 ---
 35_FirstFullMoon:
   - "[Don checks on Sara](Don%20checks%20on%20Sara.md)"
+  - "[[Don checks on Sara]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

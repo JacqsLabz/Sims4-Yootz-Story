@@ -1,6 +1,7 @@
 ---
 35_FirstFullMoon:
   - "[Draining schedule](Draining%20schedule.md)"
+  - "[[Draining schedule]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

@@ -1,6 +1,7 @@
 ---
 30_Woods:
   - "[Sick](Sick.md)"
+  - "[[Sick]]"
 canvas:
   - "[[30_Woods.canvas]]"
 ---

@@ -1,6 +1,7 @@
 ---
 35_FirstFullMoon:
   - "[More advice](More%20advice.md)"
+  - "[[More advice]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

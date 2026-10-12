@@ -1,6 +1,7 @@
 ---
 35_FirstFullMoon:
   - "[Fairy draining](Fairy%20draining.md)"
+  - "[[Fairy draining]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

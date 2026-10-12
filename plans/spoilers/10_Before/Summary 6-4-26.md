@@ -1,7 +1,9 @@
 ---
 canvas:
   - "[[10_Before.canvas]]"
+  - "[[Merging Sara is still hot headed punk.canvas]]"
 10_Before: []
+Merging Sara is still hot headed punk: []
 ---
 So something I thought I had explained but I guess I didn't, The Strangerville Arc is not a long ago thing. It's actually more recent, it's actually what Sara was doing right before the werewolf thing. I mean maybe they have like a little bit of time to relax and catch their breath, but not super long. I've talked about how the family is going to split up. Right now in the save file in The Sims they're all living in one big house. 
 

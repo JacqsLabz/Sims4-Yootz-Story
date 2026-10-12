@@ -3,6 +3,9 @@
   - "[Jane feels at fault](Jane%20feels%20at%20fault.md)"
   - "[Cass confused by bandages](Cass%20confused%20by%20bandages.md)"
   - "[Asking where](Asking%20where.md)"
+  - "[[Jane feels at fault]]"
+  - "[[Cass confused by bandages]]"
+  - "[[Asking where]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

@@ -1,6 +1,7 @@
 ---
 35_FirstFullMoon:
   - "[Retracing steps](Retracing%20steps.md)"
+  - "[[Retracing steps]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

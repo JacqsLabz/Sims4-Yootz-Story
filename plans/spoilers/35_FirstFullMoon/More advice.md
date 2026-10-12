@@ -1,6 +1,7 @@
 ---
 35_FirstFullMoon:
   - "[First full moon](First%20full%20moon.md)"
+  - "[[First full moon]]"
 canvas:
   - "[[35_FirstFullMoon.canvas]]"
 ---

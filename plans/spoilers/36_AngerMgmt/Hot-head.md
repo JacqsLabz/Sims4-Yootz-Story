@@ -1,7 +1,9 @@
 ---
 canvas:
   - "[[36_AngerMgmt.canvas]]"
+  - "[[Merging Sara is still hot headed punk.canvas]]"
 36_AngerMgmt: []
+Merging Sara is still hot headed punk: []
 ---
 Actually the anger doesn't come from being a vampire. That did not have any effect either way on her anger. That's just always been her nature, even back when she was human. In the game I gave her the hot headed trait, and in the game that means that she regularly gets anger moodlets because she's a hot head. Like that's what it says she's angry because she's an angry kind of person basically is what it means give or take. And from the beginning I've had her manage that anger using a punching bag or treadmill or a job or a swim or something like that. 
 

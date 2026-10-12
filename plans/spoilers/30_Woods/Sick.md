@@ -1,6 +1,7 @@
 ---
 30_Woods:
   - "[Transformation](Transformation.md)"
+  - "[[Transformation]]"
 canvas:
   - "[[30_Woods.canvas]]"
 ---

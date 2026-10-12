@@ -1,6 +1,7 @@
 ---
 30_Woods:
   - "[Fairies](Fairies.md)"
+  - "[[Fairies]]"
 canvas:
   - "[[30_Woods.canvas]]"
 ---

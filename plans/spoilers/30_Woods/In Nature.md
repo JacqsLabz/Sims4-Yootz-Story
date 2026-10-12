@@ -1,6 +1,7 @@
 ---
 30_Woods:
   - "[Cass Teen](Cass%20Teen.md)"
+  - "[[Cass Teen]]"
 canvas:
   - "[[30_Woods.canvas]]"
 ---
