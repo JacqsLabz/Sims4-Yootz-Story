@@ -1,12 +1,6 @@
 This story starts with two roommate sims, when their friendship became more.
 
-![](../assets/img/01.01/05-22-22_1-48-25%20AM.png)
 
-Sara Yootz, always the athletic hot-head;
-
-![](../assets/img/01.01/05-22-22_1-46-29%20AM.png)
-
-and Jane Witt, the creative soul.
 
 They lived together in Daisy Hovel as roommates, just trying to get by. 
 
@@ -16,7 +10,7 @@ They lived together in Daisy Hovel as roommates, just trying to get by.
 - [ ] Show Sara's feelings with a certain sort of smile at the dinner table? Surely there's some like bonding or interested pose packs? 
 - [ ] Show Jane painting 
 	- [ ] Oh and maybe that's part of what Sara likes about Jane? Though maybe a lot of it is that Sara enjoys things like sharing a meal together, so I could show that? Surely there's pose packs for falling for each other or crushing or whatever. 
-- [ ] Maybe actually show Sara talking about her feelings with Don training her? Though maybe not intentionally. Maybe Sara is just making casual comments on hwo great her roomate is (after Don talks about his roommates and how he likes them), and Don gives her a knowing look. And she's like what, and he's like be honest with yourself, and she jokes or is like ok yes. 
+- [ ] Maybe actually show Sara talking about her feelings with Don training her? Though maybe not intentionally. Maybe Sara is just making casual comments on how great her roommate is (after Don talks about his roommates and how he likes them), and Don gives her a knowing look. And she's like what, and he's like be honest with yourself, and she jokes or is like ok yes. 
 - [ ] We need some chemistry here. 
 
 The two had been living together for some time, and as that time passed, Sara had found herself slowing catching feelings for Jane. When she asked her friend at the gym, Don, for some advice. he recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
