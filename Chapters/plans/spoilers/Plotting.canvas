@@ -1,9 +1,0 @@
-{
-	"nodes":[
-		{"id":"f8cc27e0e2fbc3e7","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/Cure.md","x":9200,"y":2440,"width":400,"height":400},
-		{"id":"c221ebe477f1adc0","type":"file","file":"Sims4-Yootz-Story/plans/spoilers/Adult.md","x":9665,"y":2440,"width":400,"height":400},
-		{"id":"2913181a35f7fbfd","x":8920,"y":3655,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/idk.md"},
-		{"id":"2557c95a5aa68c87","x":10065,"y":3655,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/plans/spoilers/Summary 6-10-26 bak.md"}
-	],
-	"edges":[]
-}

@@ -1,0 +1,10 @@
+{
+	"nodes":[
+		{"id":"367def32f795b2ce","type":"file","file":"Sims4-Yootz-Story/Part_10/36_AngerMgmt/Hot-head.md","x":-1999,"y":-220,"width":400,"height":400},
+		{"id":"6bbb466788b7a143","type":"file","file":"Sims4-Yootz-Story/Part_10/36_AngerMgmt/Misc Notes 1.md","x":266,"y":-89,"width":400,"height":400},
+		{"id":"6cc211359dd0b2ca","type":"file","file":"Sims4-Yootz-Story/Part_10/36_AngerMgmt/Old + Recent History.md","x":-322,"y":-28,"width":400,"height":400},
+		{"id":"e90437789404e8ca","type":"file","file":"Sims4-Yootz-Story/Part_08/10_Before/Summary 6-4-26.md","x":-862,"y":-85,"width":400,"height":400},
+		{"id":"79c79fbaab092401","type":"file","file":"Sims4-Yootz-Story/Part_10/36_AngerMgmt/Anger Mgmt Advice.md","x":-1520,"y":-120,"width":400,"height":400}
+	],
+	"edges":[]
+}
