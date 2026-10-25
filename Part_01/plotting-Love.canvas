@@ -12,8 +12,9 @@
 		{"id":"e26c26cd25ef8ca2","type":"text","text":"- [ ] add Sara's job, at least that she has one. ","x":1160,"y":-801,"width":400,"height":400},
 		{"id":"39aaff0567ae8fd8","type":"text","text":"# Moving in together ","x":760,"y":-3280,"width":400,"height":400},
 		{"id":"9205f9acd748ac76","type":"text","text":"# House Hunt & Tour\n\nOnce they've decided to actually be roommates, well they start looking at places. And probably only show them actually viewing the daisy hovel house. They noticed that it has one bedroom with one big bed. Maybe Jane blushes, but Sara is like I can sleep on a cot, I've slept on worse. We can save up some money and build a second bedroom. (The irony being that when they have money for a second bedroom it's for their twin daughters). And they're thinking about saving up to get separate beds, but they end up falling for each other before that happens. \n\nMaybe Jane likes the big porch for her painting easel while Sarah likes the living room cuz she can make it sort of a living/workout room. Like they think the house is cute, and I start talking about where to put furniture and so they like it and they end up going at that house. ","x":-80,"y":-3280,"width":400,"height":400},
-		{"id":"fc370d2cb007dbd5","x":-816,"y":-3680,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_01/1.50-Meeting Over Coffee.md"},
-		{"id":"e080f4c8f5eeeca7","x":-80,"y":-3680,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_01/1.60-House Hunting.md"}
+		{"id":"fc370d2cb007dbd5","type":"file","file":"Sims4-Yootz-Story/Part_01/1.50-Meeting Over Coffee.md","x":-816,"y":-3680,"width":400,"height":400},
+		{"id":"e080f4c8f5eeeca7","type":"file","file":"Sims4-Yootz-Story/Part_01/1.60-House Hunting.md","x":-80,"y":-3680,"width":400,"height":400},
+		{"id":"d60b53fd9ab1dcee","x":760,"y":-3680,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_01/2.01-Move In.md"}
 	],
 	"edges":[]
 }
