@@ -1,13 +1,14 @@
 {
 	"nodes":[
-		{"id":"f77fd70d6e0747bc","x":-365,"y":-165,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.02-Children.md"},
-		{"id":"7dc62a8fba8b571b","x":320,"y":-165,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.03-FamiliarFeeling.md"},
-		{"id":"eb198f39d2a5362e","x":940,"y":-165,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.04-TalkToVampires.md"},
-		{"id":"b95e9ddb34098703","x":940,"y":-660,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.04-TalkToVampires.canvas"},
-		{"id":"d52bfc1837163012","x":1620,"y":-165,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.05-ThirdOne.md"},
-		{"id":"9faba5d8080cb994","x":2320,"y":-165,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.06-NewTree.md"},
-		{"id":"aebd4262be241d35","x":3080,"y":-165,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.07-DateNightOut.md"},
-		{"id":"0b1c2802ec6b9646","x":3840,"y":-165,"width":400,"height":400,"type":"file","file":"Sims4-Yootz-Story/Part_04/2.08-Transformation.md"}
+		{"id":"f77fd70d6e0747bc","type":"file","file":"Sims4-Yootz-Story/Part_04/2.02-Children.md","x":-365,"y":-165,"width":400,"height":400},
+		{"id":"7dc62a8fba8b571b","type":"file","file":"Sims4-Yootz-Story/Part_04/2.03-FamiliarFeeling.md","x":320,"y":-165,"width":400,"height":400},
+		{"id":"eb198f39d2a5362e","type":"file","file":"Sims4-Yootz-Story/Part_04/2.04-TalkToVampires.md","x":940,"y":-165,"width":400,"height":400},
+		{"id":"b95e9ddb34098703","type":"file","file":"Sims4-Yootz-Story/Part_04/2.04-TalkToVampires.canvas","x":940,"y":-660,"width":400,"height":400},
+		{"id":"d52bfc1837163012","type":"file","file":"Sims4-Yootz-Story/Part_04/2.05-ThirdOne.md","x":1620,"y":-165,"width":400,"height":400},
+		{"id":"9faba5d8080cb994","type":"file","file":"Sims4-Yootz-Story/Part_04/2.06-NewTree.md","x":2320,"y":-165,"width":400,"height":400},
+		{"id":"aebd4262be241d35","type":"file","file":"Sims4-Yootz-Story/Part_04/2.07-DateNightOut.md","x":3080,"y":-165,"width":400,"height":400},
+		{"id":"0b1c2802ec6b9646","type":"file","file":"Sims4-Yootz-Story/Part_04/2.08-Transformation.md","x":3840,"y":-165,"width":400,"height":400},
+		{"id":"d19621b68400a31d","x":1280,"y":280,"width":400,"height":400,"type":"text","text":"\"I've heard vampire pregnancies take longer.\" Lilith said.\n\n\"You aren't sure?\"\n\n\"Well I've never been pregnant myself. So no.\"\n\n\"Don't want kids?\" Sara asked.\n\n\"I do, it's just... not been the right time yet.\"\n\nSara rubbed her belly and nodded, \"Timing is everything, that's for sure.\" "}
 	],
 	"edges":[]
 }
