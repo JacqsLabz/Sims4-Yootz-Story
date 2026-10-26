@@ -2,7 +2,7 @@
 setlocal enabledelayedexpansion
 
 :: Configuration
-set "OutputFile=z-Merged-Plan.md"
+set "OutputFile=z-Merged-Yootz.md"
 
 :: Ensure we are working in the script's directory
 cd /d "%~dp0"
