@@ -3,7 +3,7 @@
   - "[Retracing steps](Retracing%20steps.md)"
   - "[Retracing steps](Retracing steps.md)"
 canvas:
-  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas)"
 ---
 Sara talks to Cass and asks her about what's happened recently and what's been going on, where she's been, that type of thing. 
 

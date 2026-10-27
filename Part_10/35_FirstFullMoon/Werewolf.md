@@ -7,7 +7,7 @@
   - "[Cass confused by bandages](Cass confused by bandages.md)"
   - "[Asking where](Asking where.md)"
 canvas:
-  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas)"
 ---
 Jane calls Sara for help, since this is beyond what she can handle alone. 
 

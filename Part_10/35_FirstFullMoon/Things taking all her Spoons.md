@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas)"
 35_FirstFullMoon: []
 ---
 So during all this Cass is kinda being ground down by everything. 

@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[../Part_12/Plotting.canvas](../Part_12/Plotting.canvas.md)"
+  - "[../Part_12/Plotting.canvas](../Part_12/Plotting.canvas)"
 Plotting: []
 ---
 So I've been working on plotting out a Sims story in the Sims 4. Sometimes I have to bend/ignore how the game works, but is my story & telling that story matters more than the limits of the game. 

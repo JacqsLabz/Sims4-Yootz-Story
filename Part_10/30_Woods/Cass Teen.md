@@ -3,7 +3,7 @@
   - "[Fairies](Fairies.md)"
   - "[Fairies](Fairies.md)"
 canvas:
-  - "[30_Woods.canvas](30_Woods.canvas.md)"
+  - "[30_Woods.canvas](30_Woods.canvas)"
 ---
 Cass grows up into a teen. 
 

@@ -1,6 +1,7 @@
 ---
 canvas:
-  - "[TheBoys.canvas](TheBoys.canvas.md)"
+  - "[TheBoys.canvas](TheBoys.canvas)"
+  - "[[TheBoys.canvas]]"
 TheBoys: []
 ---
 Maybe at some point Grant makes the popcorn? Like he was just feeling like he wanted a snack, and maybe the nightmares have been kind of rough and just wanted something comforting, so he decides to whip him up Jane's recipe. 

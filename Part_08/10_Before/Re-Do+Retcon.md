@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[10_Before.canvas](10_Before.canvas.md)"
+  - "[10_Before.canvas](10_Before.canvas)"
 10_Before: []
 ---
 Since I'm looking at going back and redoing some things, I might also redo who has what weakness. Since now they don't have to have a certain fixed number. 

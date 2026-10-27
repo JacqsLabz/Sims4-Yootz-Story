@@ -3,7 +3,7 @@
   - "[Virus](Virus.md)"
   - "[Virus](Virus.md)"
 canvas:
-  - "[30_Strangerville.canvas](30_Strangerville.canvas.md)"
+  - "[30_Strangerville.canvas](30_Strangerville.canvas)"
 ---
 While Sara and Emma are happy that Brenda is safe and learning about her people, culture, and heritage, they are also sad that Brenda isn't around and they can't just go see her. Maybe they don't know if they'll ever see her again? 
 

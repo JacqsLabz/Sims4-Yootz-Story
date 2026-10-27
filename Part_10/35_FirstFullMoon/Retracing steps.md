@@ -3,7 +3,7 @@
   - "[Transform 2](Transform%202.md)"
   - "[Transform 2](Transform 2.md)"
 canvas:
-  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas)"
 ---
 
 Sara explores various places Cass has been recently. Many of them are dead ends. A few aren't.  

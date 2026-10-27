@@ -3,7 +3,7 @@
   - "[Moonpetal Harvesting](Moonpetal%20Harvesting.md)"
   - "[Moonpetal Harvesting](Moonpetal Harvesting.md)"
 canvas:
-  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas)"
 ---
 Cass goes into the safe room for the full moon. They have some meat (and maybe any other supplies?) in there. Sara and Don take turns fighting the wolf. The wolf is extra/especially violent, more than before. 
 

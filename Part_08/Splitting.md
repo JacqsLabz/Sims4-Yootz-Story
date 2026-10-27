@@ -2,7 +2,7 @@
 20_Split:
   - "[3.4-Distant Family-spoilers](3.4-Distant%20Family-spoilers.md)"
 canvas:
-  - "[20_Split.canvas](20_Split.canvas.md)"
+  - "[20_Split.canvas](20_Split.canvas)"
 ---
 Anne brings up her & Clara moving to Ravenwood, and having that be the family's new "home base" so therefore be a large house. 
 

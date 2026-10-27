@@ -5,7 +5,7 @@
   - "[Transform despite draining](Transform despite draining.md)"
   - "[Things taking all her Spoons](Things taking all her Spoons.md)"
 canvas:
-  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas)"
 ---
 Maybe Cass wants to go back to school, and when Cass talks to Jane & Sara about it, all three of them agree that she can go if she gets all her fury drained by Jane in the morning before she leaves. Because the adults see the larger "she could be in series trouble if she harms another student" and she sees the "omfg I would so embarrassed, I just want to seem normal" (as teenagers typically do). So Cass agrees to a draining schedule and tries to stick with it. 
 

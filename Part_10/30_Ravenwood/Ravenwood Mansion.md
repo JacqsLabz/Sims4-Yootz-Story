@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[30_Ravenwood.canvas](30_Ravenwood.canvas.md)"
+  - "[30_Ravenwood.canvas](30_Ravenwood.canvas)"
 30_Ravenwood: []
 ---
 Anne moves to the Old Ravenwood Estate in Crow's Crossing in Ravenwood with Clara, Karlie, and Loreli.

@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[Plotting.canvas](Plotting.canvas.md)"
+  - "[Plotting.canvas](Plotting.canvas)"
 Plotting: []
 ---
 

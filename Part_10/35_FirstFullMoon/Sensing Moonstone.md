@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas)"
 35_FirstFullMoon: []
 ---
 Sara can sense the moonstone Jane left outside, and how being in the moonlight has given it some energy. 

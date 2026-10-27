@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[TheBoys.canvas](TheBoys.canvas.md)"
+  - "[[TheBoys.canvas]]"
 TheBoys:
   - "[Couch nap](Couch%20nap.md)"
 ---
@@ -27,3 +27,4 @@ Grant shrugged, "I slept for most of yesterday, so I'm not really surprised." No
 She nodded. "Sounds good, I'm going to go hiking."
 
 I want Emma to see him head to bed. Maybe she's going to take a shower, and she pays attention to which bedroom he goes in? Or she's going to have some coffee so she's in the kitchen for a little while? 
+

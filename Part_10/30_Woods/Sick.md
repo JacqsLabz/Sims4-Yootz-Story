@@ -3,7 +3,7 @@
   - "[Transformation](Transformation.md)"
   - "[Transformation](Transformation.md)"
 canvas:
-  - "[30_Woods.canvas](30_Woods.canvas.md)"
+  - "[30_Woods.canvas](30_Woods.canvas)"
 ---
 Cass starts exploring the tunnels under an old mill, gets a bite, and gets sick. 
 

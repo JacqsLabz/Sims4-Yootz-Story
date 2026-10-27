@@ -3,7 +3,7 @@
   - "[Whats Next](Whats%20Next.md)"
   - "[Whats Next](Whats Next.md)"
 canvas:
-  - "[30_Strangerville.canvas](30_Strangerville.canvas.md)"
+  - "[30_Strangerville.canvas](30_Strangerville.canvas)"
 ---
 They get the rocket built.
 

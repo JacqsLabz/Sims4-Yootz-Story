@@ -1,6 +1,7 @@
 ---
 canvas:
-  - "[TheBoys.canvas](TheBoys.canvas.md)"
+  - "[TheBoys.canvas](TheBoys.canvas)"
+  - "[[TheBoys.canvas]]"
 TheBoys: []
 ---
 I just had another thought. I've already been thinking about giving Grant the bookworm trait. There's a bookcase at the cabin in Granite Falls. They're going to be staying at the big expensive cabin, because that's the one Emma has stayed at before. And because that's one I've decked out with all the fanciest stuff. Anyway, even if there's not a bookcase, I could add one. Maybe one day Grant is bored or staring at the trees becomes staring at the bookcase. The family has stayed here before, therefore maybe the first volume of encyclopedia vampirica or whatever it's called is on the shelves. And that could be a way for Grant's curiosity to show up. He's recently met 3 vampires, so maybe he reads the book just to learn more about them. Again that thing where he's exploring the limits of his reality.

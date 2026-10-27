@@ -1,7 +1,9 @@
 ---
 canvas:
-  - "[TheBoys.canvas](TheBoys.canvas.md)"
-TheBoys: []
+  - "[TheBoys.canvas](TheBoys.canvas)"
+  - "[[TheBoys.canvas]]"
+TheBoys:
+  - "[24_Laptop](24_Laptop.md)"
 ---
 Grant woke to his phone ringing. He rolled over and pulled it out. What the hell did Jessie want now? "What?" He goaned. 
 

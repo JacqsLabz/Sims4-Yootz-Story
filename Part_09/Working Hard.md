@@ -3,7 +3,7 @@
   - "[Brenda](Brenda.md)"
   - "[Brenda](Brenda.md)"
 canvas:
-  - "[30_Strangerville.canvas](30_Strangerville.canvas.md)"
+  - "[30_Strangerville.canvas](30_Strangerville.canvas)"
 ---
 Emma is sitting resting after a long day of her day job then helping Sara with the rocket. Ideally with a blanket, maybe in the backyard. 
 
