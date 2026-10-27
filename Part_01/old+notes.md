@@ -15,21 +15,21 @@ They lived together in Daisy Hovel as roommates, just trying to get by.
 
 The two had been living together for some time, and as that time passed, Sara had found herself slowing catching feelings for Jane. When she asked her friend at the gym, Don, for some advice. he recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
 
-![](../assets/img/01.01/12-22-16_6-21-05%20PM.png)
+![](../assets/img/01.01/12-22-16_6-21-05%C2%A0PM.png)
 
 It definitely surprised Jane, but
 
-![](../assets/img/01.01/12-22-16_3-48-25%20PM.png)
+![](../assets/img/01.01/12-22-16_3-48-25%C2%A0PM.png)
 
 but she liked it,
 
-![](../assets/img/01.01/12-22-16_6-23-43%20PM.png)
+![](../assets/img/01.01/12-22-16_6-23-43%C2%A0PM.png)
 
 she liked it a lot.
 
 ----
 
-![](../assets/img/01.01/12-22-16_5-50-38%20PM.png)
+![](../assets/img/01.01/12-22-16_5-50-38%C2%A0PM.png)
 
 Sara supressed a giggle.
 
@@ -37,29 +37,29 @@ Sara supressed a giggle.
 
 "No... ok maybe it is a bit much, but I like it." Sara glance around the night club. "How about a dance?"
 
-![](../assets/img/01.01/12-22-16_5-51-50%20PM.png)
+![](../assets/img/01.01/12-22-16_5-51-50%C2%A0PM.png)
 
 ----
 
 One morning, after her normal morning workout, Sara decided to surprise Jane again.
 
-![](../assets/img/01.01/12-22-16_4-47-03%20PM.png)
+![](../assets/img/01.01/12-22-16_4-47-03%C2%A0PM.png)
 
-![](../assets/img/01.01/12-22-16_4-47-43%20PM.png)
+![](../assets/img/01.01/12-22-16_4-47-43%C2%A0PM.png)
 
 ----
 
 They decided to waste no time,
 
-![](../assets/img/01.01/12-22-16_5-18-40%20PM.png)
+![](../assets/img/01.01/12-22-16_5-18-40%C2%A0PM.png)
 
 and eloped soon after.
 
-![](../assets/img/01.01/12-22-16_5-18-49%20PM.png)
+![](../assets/img/01.01/12-22-16_5-18-49%C2%A0PM.png)
 
 ----
 
-![](../assets/img/01.01/12-22-16_5-51-37%20PM.png)
+![](../assets/img/01.01/12-22-16_5-51-37%C2%A0PM.png)
 
 They went on another date to the same club to celebrate.
 
@@ -69,7 +69,7 @@ For a time, normal life rolled on, spending time together, at their jobs, and pu
 
 - [ ] Jane doesn't get a hobby pic?
 
-![](../assets/img/01.01/12-22-16_5-29-37%20PM.png)
+![](../assets/img/01.01/12-22-16_5-29-37%C2%A0PM.png)
 
 Sara got more tips from Don, including protein shakes.
 
