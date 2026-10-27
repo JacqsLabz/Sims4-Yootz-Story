@@ -1,9 +1,9 @@
 ---
 35_FirstFullMoon:
   - "[Draining schedule](Draining%20schedule.md)"
-  - "[[Draining schedule]]"
+  - "[Draining schedule](Draining schedule.md)"
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 ---
 Sara talks to Jane and tried to explain how Jane's new fairy magic can affect Cass's wolf magic. 
 

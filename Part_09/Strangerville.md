@@ -1,9 +1,9 @@
 ---
 30_Strangerville:
   - "[Working Hard](Working%20Hard.md)"
-  - "[[Working Hard]]"
+  - "[Working Hard](Working Hard.md)"
 canvas:
-  - "[[30_Strangerville.canvas]]"
+  - "[30_Strangerville.canvas](30_Strangerville.canvas.md)"
 ---
 Sara, Emma, and Brenda move to Strangerville to build a rocket. Don moves nearby. 
 

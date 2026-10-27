@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[30_Woods.canvas]]"
+  - "[30_Woods.canvas](30_Woods.canvas.md)"
 30_Woods: []
 ---
 Cass starts to feel really awful, and goes to Jane. 

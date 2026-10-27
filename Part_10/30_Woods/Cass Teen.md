@@ -1,9 +1,9 @@
 ---
 30_Woods:
   - "[Fairies](Fairies.md)"
-  - "[[Fairies]]"
+  - "[Fairies](Fairies.md)"
 canvas:
-  - "[[30_Woods.canvas]]"
+  - "[30_Woods.canvas](30_Woods.canvas.md)"
 ---
 Cass grows up into a teen. 
 

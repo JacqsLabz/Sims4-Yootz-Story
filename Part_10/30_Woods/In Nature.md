@@ -1,9 +1,9 @@
 ---
 30_Woods:
   - "[Cass Teen](Cass%20Teen.md)"
-  - "[[Cass Teen]]"
+  - "[Cass Teen](Cass Teen.md)"
 canvas:
-  - "[[30_Woods.canvas]]"
+  - "[30_Woods.canvas](30_Woods.canvas.md)"
 ---
 Jane and Cassandra move to a remote location to live in nature. 
 

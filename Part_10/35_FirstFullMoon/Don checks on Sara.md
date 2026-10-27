@@ -1,9 +1,9 @@
 ---
 35_FirstFullMoon:
   - "[Fairy draining](Fairy%20draining.md)"
-  - "[[Fairy draining]]"
+  - "[Fairy draining](Fairy draining.md)"
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 ---
 Sara and Don are alone after Cass is in control again.
 

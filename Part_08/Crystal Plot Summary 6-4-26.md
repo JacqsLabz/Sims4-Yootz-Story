@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[20_Split.canvas]]"
+  - "[20_Split.canvas](20_Split.canvas.md)"
 20_Split: []
 ---
 - [ ] When the family meeting & decision to break up happens, maybe Kaylie is an adult & wearing some jewelry she made herself 

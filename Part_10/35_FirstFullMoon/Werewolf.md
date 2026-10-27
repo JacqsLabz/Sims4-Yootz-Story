@@ -3,11 +3,11 @@
   - "[Jane feels at fault](Jane%20feels%20at%20fault.md)"
   - "[Cass confused by bandages](Cass%20confused%20by%20bandages.md)"
   - "[Asking where](Asking%20where.md)"
-  - "[[Jane feels at fault]]"
-  - "[[Cass confused by bandages]]"
-  - "[[Asking where]]"
+  - "[Jane feels at fault](Jane feels at fault.md)"
+  - "[Cass confused by bandages](Cass confused by bandages.md)"
+  - "[Asking where](Asking where.md)"
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 ---
 Jane calls Sara for help, since this is beyond what she can handle alone. 
 

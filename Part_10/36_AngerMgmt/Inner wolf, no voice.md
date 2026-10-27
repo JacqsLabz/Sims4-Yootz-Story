@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[36_AngerMgmt.canvas]]"
+  - "[36_AngerMgmt.canvas](36_AngerMgmt.canvas.md)"
 36_AngerMgmt: []
 ---
 I don't think I want the wolf to have a literal voice, like with words. I'm thinking it communicates more in feelings and urges. Which is just part of why recognizing that it's even there it difficult. A separate voice is easier to recognize and is more distinct. And unclear feeling that sometimes she can't even decipher makes things more muddy. Thing thing both has its own will and isn't separate from her. It's her, it's part of her, but it's also a wolf trying to get her attention and it's a new pup so it's not great at communicating. And she's new at this and still a teen, so she's not awesome at receiving the signals yet either. 

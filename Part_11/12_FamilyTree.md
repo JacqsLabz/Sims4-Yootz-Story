@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[TheBoys.canvas]]"
+  - "[TheBoys.canvas](TheBoys.canvas.md)"
 TheBoys:
   - "[12_FamilyTree](12_FamilyTree.md)"
 ---

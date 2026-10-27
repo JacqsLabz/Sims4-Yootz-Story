@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[TheBoys.canvas]]"
+  - "[TheBoys.canvas](TheBoys.canvas.md)"
 TheBoys: []
 ---
 Also maybe at some point Emma thinks a good workout will help both of them. So similar to how Sara taught her the basics of the punch bag, she teaches Grant? And maybe she invites him on a hike? 

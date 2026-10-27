@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 35_FirstFullMoon: []
 ---
 Maybe it takes Cass a while to trust things or to even know what's the wolf and what's not. Maybe she simply sometimes gets confused about things. 

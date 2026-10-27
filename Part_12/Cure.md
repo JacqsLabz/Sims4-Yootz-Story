@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[Plotting.canvas]]"
+  - "[Plotting.canvas](Plotting.canvas.md)"
 Plotting: []
 ---
 Like at some point a cure is going to become available, but by that time things have shifted. She's not going to want the cure, like at first you know "oh we found the cure" and/or "we can finally cure this" but she's like I need time to think about this. Because what she feels isn't unified, so she needs time to sort through her feelings and figure them out. 

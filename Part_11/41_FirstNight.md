@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[TheBoys.canvas]]"
+  - "[TheBoys.canvas](TheBoys.canvas.md)"
 TheBoys:
   - "[Couch nap](Couch%20nap.md)"
 ---

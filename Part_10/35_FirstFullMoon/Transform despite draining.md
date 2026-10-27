@@ -1,9 +1,9 @@
 ---
 35_FirstFullMoon:
   - "[More advice](More%20advice.md)"
-  - "[[More advice]]"
+  - "[More advice](More advice.md)"
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 ---
 So they use the draining schedule for a while. The wolf doesn't like it. Cass might not be able to tell, but her furry starts to build faster. The wolf is angry because it's needs aren't getting met, and it's attempts to get them met aren't working. 
 

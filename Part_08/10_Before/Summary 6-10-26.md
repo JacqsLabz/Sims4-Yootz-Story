@@ -4,7 +4,7 @@
   - "[Some more thoughts](Some%20more%20thoughts.md)"
   - "[Aging](Aging.md)"
 canvas:
-  - "[[10_Before.canvas]]"
+  - "[10_Before.canvas](10_Before.canvas.md)"
 ---
 So I've been working on plotting out a Sims story in the Sims 4. Sometimes I have to bend/ignore how the game works, but is my story & telling that story matters more than the limits of the game. 
 

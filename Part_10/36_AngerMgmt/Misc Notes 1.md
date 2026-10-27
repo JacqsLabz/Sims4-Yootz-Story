@@ -2,9 +2,9 @@
 36_AngerMgmt:
   - "[Old + Recent History](Old%20+%20Recent%20History.md)"
 canvas:
-  - "[[36_AngerMgmt.canvas]]"
-  - "[[Merging Sara is still hot headed punk.canvas]]"
-  - "[[Merging Sara is still hot headed punk.canvas]]"
+  - "[36_AngerMgmt.canvas](36_AngerMgmt.canvas.md)"
+  - "[Merging Sara is still hot headed punk.canvas](Merging Sara is still hot headed punk.canvas.md)"
+  - "[Merging Sara is still hot headed punk.canvas](Merging Sara is still hot headed punk.canvas.md)"
 Merging Sara is still hot headed punk: []
 ---
 

@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[TheBoys.canvas]]"
+  - "[TheBoys.canvas](TheBoys.canvas.md)"
 TheBoys: []
 ---
 I guess I'm trying to get Grant to this place where he's still got trauma issues, and it's hard (even with his disoriented mental framework), but he starts to think about what he truly wants. Having that being something in his mind I think would help give him forward momentum. A better future to build towards. Because I don't want this to be able him just sort of stopping. Like yes sure he's resting, but I want to weave in more of that natural curiosity to his healing process. Because at first he almost doesn't respond to the supernatural everything because he's too focused on Ben. He gets just the smallest piece of resting for a moment (Jane's purple eyes, Ben taking to her, and Jane making dinner), which causes him to dose off in the chair. 

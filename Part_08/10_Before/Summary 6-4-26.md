@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[10_Before.canvas]]"
-  - "[[../../../../Part_10/36_AngerMgmt/Merging Sara is still hot headed punk.canvas]]"
+  - "[10_Before.canvas](10_Before.canvas.md)"
+  - "[../../../../Part_10/36_AngerMgmt/Merging Sara is still hot headed punk.canvas](../../../../Part_10/36_AngerMgmt/Merging Sara is still hot headed punk.canvas.md)"
 10_Before: []
 Merging Sara is still hot headed punk: []
 ---

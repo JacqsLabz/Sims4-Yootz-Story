@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 35_FirstFullMoon: []
 ---
 Maybe the punch gives Sara an idea it try to make a nectar? 

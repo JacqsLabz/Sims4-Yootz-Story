@@ -1,9 +1,9 @@
 ---
 35_FirstFullMoon:
   - "[Don checks on Sara](Don%20checks%20on%20Sara.md)"
-  - "[[Don checks on Sara]]"
+  - "[Don checks on Sara](Don checks on Sara.md)"
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 ---
 They find or build some type of maybe underground safe room. 
 

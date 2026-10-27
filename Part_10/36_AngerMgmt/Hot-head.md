@@ -1,7 +1,7 @@
 ---
 canvas:
-  - "[[36_AngerMgmt.canvas]]"
-  - "[[Merging Sara is still hot headed punk.canvas]]"
+  - "[36_AngerMgmt.canvas](36_AngerMgmt.canvas.md)"
+  - "[Merging Sara is still hot headed punk.canvas](Merging Sara is still hot headed punk.canvas.md)"
 36_AngerMgmt: []
 Merging Sara is still hot headed punk: []
 ---

@@ -3,7 +3,7 @@
   - "[Splitting](Splitting.md)"
   - "[3.4-Distant Family-spoilers](3.4-Distant%20Family-spoilers.md)"
 canvas:
-  - "[[20_Split.canvas]]"
+  - "[20_Split.canvas](20_Split.canvas.md)"
 ---
 Anne discovers Clara's fangs, tells other adults. They discuss splitting up for the good of the kids. 
 

@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 35_FirstFullMoon: []
 ---
 Maybe meanwhile her moonstone necklace/s is/are ready, and maybe her mother comes to deliver it in person, and talk about using it as a focus point in meditation. Because while on the surface of the game mechanics, the necklace sounds like the fairy draining, I don't want it to actually be similar in the story. Maybe it's opposite of the fairy draining because it's basically magically filling the wolf's needs? Maybe it helps the wolf feel seen? The stuff is called moonstone and as a werewolf type wolf, it is inherently linked to the moon. Maybe the magic is akin to a mediator (or good cell phone signal) in the sense that it helps support communication. Not that it would give the wolf a voice, but that it would help put them on the same page, which would mean necklace helping manage her fury makes sense. 

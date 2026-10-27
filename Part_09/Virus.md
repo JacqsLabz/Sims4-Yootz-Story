@@ -1,9 +1,9 @@
 ---
 30_Strangerville:
   - "[Licking their wounds](Licking%20their%20wounds.md)"
-  - "[[Licking their wounds]]"
+  - "[Licking their wounds](Licking their wounds.md)"
 canvas:
-  - "[[30_Strangerville.canvas]]"
+  - "[30_Strangerville.canvas](30_Strangerville.canvas.md)"
 ---
 Don gets infected with the Strangerville virus, so Sara throws everything she has into helping him. 
 

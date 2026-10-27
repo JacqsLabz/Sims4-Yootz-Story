@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[10_Before.canvas]]"
+  - "[10_Before.canvas](10_Before.canvas.md)"
 10_Before: []
 ---
 So I could say that Brenda ages faster than normal. I could also say Clara is aging slow because she has her fangs. 

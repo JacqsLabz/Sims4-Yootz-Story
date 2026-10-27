@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 35_FirstFullMoon: []
 ---
 Jane harvests the moonpetals so they can later make Cass the drink to see if it will help her. 

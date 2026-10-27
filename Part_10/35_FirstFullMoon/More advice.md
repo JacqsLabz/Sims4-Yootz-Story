@@ -1,9 +1,9 @@
 ---
 35_FirstFullMoon:
   - "[First full moon](First%20full%20moon.md)"
-  - "[[First full moon]]"
+  - "[First full moon](First full moon.md)"
 canvas:
-  - "[[35_FirstFullMoon.canvas]]"
+  - "[35_FirstFullMoon.canvas](35_FirstFullMoon.canvas.md)"
 ---
 At some point Sara goes back to the bar looking for more advice. Maybe Cass comes with her? 
 

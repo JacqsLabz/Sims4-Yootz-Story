@@ -2,9 +2,9 @@
 36_AngerMgmt:
   - "[Misc Notes 1](Misc%20Notes%201.md)"
 canvas:
-  - "[[36_AngerMgmt.canvas]]"
-  - "[[Merging Sara is still hot headed punk.canvas]]"
-  - "[[Merging Sara is still hot headed punk.canvas]]"
+  - "[36_AngerMgmt.canvas](36_AngerMgmt.canvas.md)"
+  - "[Merging Sara is still hot headed punk.canvas](Merging Sara is still hot headed punk.canvas.md)"
+  - "[Merging Sara is still hot headed punk.canvas](Merging Sara is still hot headed punk.canvas.md)"
 Merging Sara is still hot headed punk: []
 ---
 - [ ] One element to Don's chuckle: Maybe Sara got good and PISSED AS HELL at some point during the Strangerville thing. So not only does he have memories of seeing her pissed and violent (she did teach him how to fight & spar as a vampire), but he's recently seen her lose her shit over his safety. Which makes his chuckling "oh kid you have NO idea." stick the landing even better. 

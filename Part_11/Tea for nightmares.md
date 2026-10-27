@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[TheBoys.canvas]]"
+  - "[TheBoys.canvas](TheBoys.canvas.md)"
 TheBoys: []
 ---
 He's having bad dreams sometimes, maybe Emma has at least one or two of her own during their little trip? Maybe about Savanna maybe about Brenda, maybe about both of them? Because she's still processing all of this. Maybe she basically admits that she has bad dreams about Brenda sometimes. 

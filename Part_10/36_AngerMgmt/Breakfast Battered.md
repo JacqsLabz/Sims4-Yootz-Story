@@ -3,7 +3,7 @@
   - "[After Full Moon Notes](After%20Full%20Moon%20Notes.md)"
   - "[Anger Mgmt Advice](Anger%20Mgmt%20Advice.md)"
 canvas:
-  - "[[36_AngerMgmt.canvas]]"
+  - "[36_AngerMgmt.canvas](36_AngerMgmt.canvas.md)"
 ---
 In the morning when Cass has shifted back, Sara might carry or help support her over to her sleeping area. Once she's tucked in and asleep, Sara leave her to sleep and Jane comes over to Sara. 
 

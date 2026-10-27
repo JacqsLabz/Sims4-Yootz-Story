@@ -1,9 +1,9 @@
 ---
 30_Woods:
   - "[Sick](Sick.md)"
-  - "[[Sick]]"
+  - "[Sick](Sick.md)"
 canvas:
-  - "[[30_Woods.canvas]]"
+  - "[30_Woods.canvas](30_Woods.canvas.md)"
 ---
 Jane discovers fairies, and ends up becoming one, but she keeps this hidden from Cass. 
 

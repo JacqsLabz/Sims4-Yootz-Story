@@ -1,6 +1,6 @@
 ---
 canvas:
-  - "[[TheBoys.canvas]]"
+  - "[TheBoys.canvas](TheBoys.canvas.md)"
 TheBoys: []
 ---
 Or maybe Emma doesn't care which room he takes? Because she's staying in her tent and she figures worst case she can put an air mattress down with the coffins. 
